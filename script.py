@@ -19,12 +19,13 @@ def main():
     data = response.json()
 
     tweets = list()
-    tweets.append("# Changoleón Legislativo")
+    tweets.append("# Changoleón Legislativo 🙈")
 
     for tweet in data:
 
-        date = datetime.strptime(
-            tweet["created_at"], "%a %b %d %H:%M:%S +0000 %Y")
+        timestamp = datetime.strptime(
+            tweet["created_at"], "%a %b %d %H:%M:%S +0000 %Y").timestamp() - 28800
+        date = datetime.fromtimestamp(timestamp)
 
         tweet_id = tweet["id"]
         fullname = tweet["user"]["name"]
@@ -54,7 +55,7 @@ def main():
 
         message = f"**{fullname}** (**@{username}**) • {date:%d-%m-%Y a las %H:%M:%S}\n*****\n"
         message += tweet_text
-        message += f"\n*****\n[Permalink]({permalink}) | {favorites:,} Me Gusta | {retweets:,} Retweets"
+        message += f"\n[Permalink]({permalink}) | {favorites:,} Me Gusta | {retweets:,} Retweets"
 
         tweets.append(message)
 

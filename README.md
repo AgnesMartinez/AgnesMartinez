@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 08:13:45
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 15:04:55
 *****
-@cas_fyd Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1456655986861781002) | 0 Me Gusta | 0 Retweets
+Sigue diciendo @lorenzocordovav que fue invitado, no fue así, fue citado a comparecer. Su arrogancia es del tamaño de su clasismo y su racismo.
+[Permalink](https://twitter.com/fernandeznorona/status/1456759463080185859) | 447 Me Gusta | 140 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 08:13:28
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 15:01:24
 *****
-Ya en @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1456655917273989122) | 94 Me Gusta | 13 Retweets
+Mi solidaridad a Dea Isabel Estrada Rodríguez, por la muerte de su madre María Delia Rodríguez. Mi solidaridad a familiares y amigos, en especial, a mi amigo y compañero de lucha @adan_augusto.
+[Permalink](https://twitter.com/fernandeznorona/status/1456758575921913857) | 69 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-11-2021 a las 20:36:45
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 14:43:51
 *****
-RT @evoespueblo: Los golpistas dicen que están arrepentidos de no haberme matado en 2019. Agradezco el esfuerzo de @alferdez, @lopezobrador…
-[Permalink](https://twitter.com/fernandeznorona/status/1456480583698190345) | 0 Me Gusta | 1,757 Retweets
+RT @aura_fdez: Urge que @AlcCuauhtemocMx pare el ecocidio.
+[Permalink](https://twitter.com/fernandeznorona/status/1456754159647068160) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-11-2021 a las 20:35:02
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 14:41:47
 *****
-@maurojas360 Jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1456480149692563461) | 8 Me Gusta | 0 Retweets
+RT @ALEIDAALAVEZ: El Presidente de la Mesa Directiva amonesta por segunda ocasión a @lorenzocordovav por conducta irrespetuosa ante el Plen…
+[Permalink](https://twitter.com/fernandeznorona/status/1456753640128004098) | 0 Me Gusta | 172 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-11-2021 a las 20:28:20
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 14:40:44
 *****
-Según una encuesta que me acaban de enviar, tendría el 10% del respaldo electoral y solo me conoce el 41% de la población. Bueno, de ahí partiremos.
-[Permalink](https://twitter.com/fernandeznorona/status/1456478464257806346) | 373 Me Gusta | 49 Retweets
+¿Ahora si le crees a @lorenzocordovav? Cuando dijo que tú y el #TomandanteBorolas alias @FelipeCalderon habían violado la ley, no le creíste @Mzavalagc.
+[Permalink](https://twitter.com/fernandeznorona/status/1456753374217572359) | 162 Me Gusta | 62 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 15:04:55
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 22:02:19
 *****
-Sigue diciendo @lorenzocordovav que fue invitado, no fue así, fue citado a comparecer. Su arrogancia es del tamaño de su clasismo y su racismo.
-[Permalink](https://twitter.com/fernandeznorona/status/1456759463080185859) | 447 Me Gusta | 140 Retweets
+Presúmenos los logros de tu candidatura rumbo a la presidencia en lugar de intrigar. No se dan cuenta de la posibilidad, que será cada día más sólida, de que yo sea su candidato. Me imagino que se quitarán la máscara y acabarán apoyando a la derecha.
+[Permalink](https://twitter.com/fernandeznorona/status/1456864503711338500) | 9 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 15:01:24
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 21:58:53
 *****
-Mi solidaridad a Dea Isabel Estrada Rodríguez, por la muerte de su madre María Delia Rodríguez. Mi solidaridad a familiares y amigos, en especial, a mi amigo y compañero de lucha @adan_augusto.
-[Permalink](https://twitter.com/fernandeznorona/status/1456758575921913857) | 69 Me Gusta | 11 Retweets
+RT @CamMttz: Morena Sí donó el 75% del dinero que sería para sus prerrogativas como prometió. Aquí @yeidckol lo demuestra con documento en…
+[Permalink](https://twitter.com/fernandeznorona/status/1456863638506070022) | 0 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 14:43:51
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 21:58:39
 *****
-RT @aura_fdez: Urge que @AlcCuauhtemocMx pare el ecocidio.
-[Permalink](https://twitter.com/fernandeznorona/status/1456754159647068160) | 0 Me Gusta | 16 Retweets
+No tienes que darles explicaciones a nadie. Mucho éxito.
+[Permalink](https://twitter.com/fernandeznorona/status/1456863580582813705) | 17 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 14:41:47
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 21:57:28
 *****
-RT @ALEIDAALAVEZ: El Presidente de la Mesa Directiva amonesta por segunda ocasión a @lorenzocordovav por conducta irrespetuosa ante el Plen…
-[Permalink](https://twitter.com/fernandeznorona/status/1456753640128004098) | 0 Me Gusta | 172 Retweets
+RT @SirChairo: Espero que no se queje Lorenzo Cordova de violencia de genero eh
+[Permalink](https://twitter.com/fernandeznorona/status/1456863283936366597) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 14:40:44
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2021 a las 21:56:46
 *****
-¿Ahora si le crees a @lorenzocordovav? Cuando dijo que tú y el #TomandanteBorolas alias @FelipeCalderon habían violado la ley, no le creíste @Mzavalagc.
-[Permalink](https://twitter.com/fernandeznorona/status/1456753374217572359) | 162 Me Gusta | 62 Retweets
+RT @Mike28dev: Un ingeniero de base de datos del INE gana muy poquito respecto al salario del presidente consejero. 29,000 mensuales.
+[Permalink](https://twitter.com/fernandeznorona/status/1456863107062566912) | 0 Me Gusta | 1 Retweets

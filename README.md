@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-11-2021 a las 15:50:54
+**Fernández Noroña** (**@fernandeznorona**) • 06-11-2021 a las 20:44:31
 *****
-Atardecer en Tepoztlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1457133420799270916) | 61 Me Gusta | 2 Retweets
+En “Los Pinos”. No falten. Compren ahí sus regalos de Navidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1457207313580761099) | 59 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-11-2021 a las 14:15:59
+**Fernández Noroña** (**@fernandeznorona**) • 06-11-2021 a las 20:43:43
 *****
-RT @andre4T1: Ah, la tal Margarita Zavala criticando al Diputado @oscar_canton ..
-No se nos olvida como  Felipe Calderón, trataba a sus sim…
-[Permalink](https://twitter.com/fernandeznorona/status/1457109536133705729) | 0 Me Gusta | 187 Retweets
+Ahí estaré. Muchas gracias.
+[Permalink](https://twitter.com/fernandeznorona/status/1457207111331495937) | 19 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-11-2021 a las 14:15:40
+**Fernández Noroña** (**@fernandeznorona**) • 06-11-2021 a las 20:42:53
 *****
-La verdad que sí es muy mala. En todos los lugares donde yo he estado no me he podido conectar nunca. Eso no le quita nada al enorme trabajo que ha realizado @Claudiashein, pero esa Red de Internet si deben revisarla.
-[Permalink](https://twitter.com/fernandeznorona/status/1457109452914495488) | 66 Me Gusta | 9 Retweets
+¿Dónde?
+[Permalink](https://twitter.com/fernandeznorona/status/1457206900228075521) | 20 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-11-2021 a las 14:12:41
+**Fernández Noroña** (**@fernandeznorona**) • 06-11-2021 a las 20:42:15
 *****
-Por cierto, hoy en la mañana, desayunando en “Domingo Santo”, me encontré a Adrián Lebarón.
-[Permalink](https://twitter.com/fernandeznorona/status/1457108705099456513) | 68 Me Gusta | 7 Retweets
+Pero no dice dónde será.
+[Permalink](https://twitter.com/fernandeznorona/status/1457206740760547330) | 17 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-11-2021 a las 14:09:54
+**Fernández Noroña** (**@fernandeznorona**) • 06-11-2021 a las 19:43:47
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1457108003883151363) | 33 Me Gusta | 4 Retweets
+Para @atameAti.
+[Permalink](https://twitter.com/fernandeznorona/status/1457192028056526853) | 64 Me Gusta | 13 Retweets

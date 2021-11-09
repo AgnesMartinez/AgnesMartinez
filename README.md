@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 06:59:51
+**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 11:45:25
 *****
-Por otra parte, #tomandanteborolas alias @FelipeCalderon, platícanos con cuales energías limpias se mueven los autos de fórmula uno.
-[Permalink](https://twitter.com/fernandeznorona/status/1457724551966642176) | 112 Me Gusta | 32 Retweets
+RT @IgnacioBCamposE: ¡Paletería Urani dona dos motocicletas al municipio de Uruapan!
+
+
+Como un acto simbólico de la necesidad de apoyo y tra…
+[Permalink](https://twitter.com/fernandeznorona/status/1457796418895106052) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 06:57:38
+**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 11:44:49
 *****
-Oye #tommandanteborolas alias @FelipeCalderon, te ves repuetisto.
-[Permalink](https://twitter.com/fernandeznorona/status/1457723997718786056) | 77 Me Gusta | 15 Retweets
+RT @jgnaredo: Juez aplaza comparecencia de Ricardo Anaya para el 31 de enero del próximo año. 
+
+
+Ya ven por qué urge renovar el poder judici…
+[Permalink](https://twitter.com/fernandeznorona/status/1457796269393342469) | 0 Me Gusta | 1,425 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2021 a las 22:45:14
+**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 11:05:56
 *****
-Yo no soy México. Por otra parte, son muy ligeros para hablar de dictaduras. No podrías decir nada de lo que dices.
-[Permalink](https://twitter.com/fernandeznorona/status/1457600079729201154) | 79 Me Gusta | 7 Retweets
+Me comenta una mujer: yo quiero que sea presidente. Le contesto: yo también.
+[Permalink](https://twitter.com/fernandeznorona/status/1457786483998277642) | 368 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2021 a las 18:31:23
+**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 10:59:46
 *****
-Esta segunda ocasión va a la @ONU_es. Su sede está en Nueva York, podría estar en cualquier otro lugar. No cuenta como viaje a Estados Unidos.
-[Permalink](https://twitter.com/fernandeznorona/status/1457536197472002048) | 76 Me Gusta | 15 Retweets
+Debe ser muy guapa tu madre, pues tú no cantas mal las rancheras. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1457784930511949825) | 37 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2021 a las 18:29:43
+**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 10:56:55
 *****
-Mira que curiosas dictaduras que van a las urnas y siempre que pierden, respetan el resultado.
-[Permalink](https://twitter.com/fernandeznorona/status/1457535778016448518) | 115 Me Gusta | 26 Retweets
+Jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1457784215269871619) | 34 Me Gusta | 6 Retweets

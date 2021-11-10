@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 12:49:14
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 20:41:33
 *****
-Casi 6 mil millones de pesos piden para la consulta. ¿No le pierden? ¿No tendrán que poner de su bolsa? @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1458174867979661317) | 98 Me Gusta | 20 Retweets
+RT @ARBedolla: Me siento muy emocionado de ser el primer gobernador que se le permite ingresar a Cherán, luego de diez años de restriccione…
+[Permalink](https://twitter.com/fernandeznorona/status/1458293731149291529) | 0 Me Gusta | 344 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 12:46:17
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 20:38:00
 *****
-¿De qué hablas?
-[Permalink](https://twitter.com/fernandeznorona/status/1458174123981500418) | 26 Me Gusta | 2 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1458292836533620736) | 120 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 12:45:41
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 20:30:55
 *****
-¡Qué chingón!
-[Permalink](https://twitter.com/fernandeznorona/status/1458173972743286785) | 290 Me Gusta | 68 Retweets
+¡Naa! ¡Sorprendente!
+[Permalink](https://twitter.com/fernandeznorona/status/1458291052297682949) | 51 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 11:23:36
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 20:30:23
 *****
-No es ningún idiota, no fue por falta de inteligencia que hizo eso.
-[Permalink](https://twitter.com/fernandeznorona/status/1458153314978308100) | 78 Me Gusta | 14 Retweets
+Pero es combustible solar o de viento ¿Verdad #TomandanteBorolas alias @FelipeCalderon y @Mzavalagc?
+[Permalink](https://twitter.com/fernandeznorona/status/1458290917815709702) | 72 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 11:23:09
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 20:28:58
 *****
-El mensaje es muy claro: no te cases. Yo por eso vivo en unión libre.
-[Permalink](https://twitter.com/fernandeznorona/status/1458153201253994500) | 203 Me Gusta | 25 Retweets
+Eso no está en tu mano controlarlo.
+[Permalink](https://twitter.com/fernandeznorona/status/1458290564462301186) | 27 Me Gusta | 3 Retweets

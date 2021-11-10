@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 07:31:08
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 12:49:14
 *****
-RT @HernanGomezB: .@Reforma habría logrado tirar a @SNietoCastillo a base de fake news y construyendo el relato exagerado y distorsionado d…
-[Permalink](https://twitter.com/fernandeznorona/status/1458094813857845264) | 0 Me Gusta | 121 Retweets
+Casi 6 mil millones de pesos piden para la consulta. ¿No le pierden? ¿No tendrán que poner de su bolsa? @CiroMurayamaINE.
+[Permalink](https://twitter.com/fernandeznorona/status/1458174867979661317) | 98 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 20:08:59
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 12:46:17
 *****
-Espléndida la recepción al compañero presidente @lopezobrador_.
-[Permalink](https://twitter.com/fernandeznorona/status/1457923147819278344) | 478 Me Gusta | 107 Retweets
+¿De qué hablas?
+[Permalink](https://twitter.com/fernandeznorona/status/1458174123981500418) | 26 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 18:57:50
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 12:45:41
 *****
-RT @jorgeadedo: Noruega sin máscaras en los aviones. ¿Te lo dijeron los medios masivos?
-[Permalink](https://twitter.com/fernandeznorona/status/1457905239709949958) | 0 Me Gusta | 856 Retweets
+¡Qué chingón!
+[Permalink](https://twitter.com/fernandeznorona/status/1458173972743286785) | 290 Me Gusta | 68 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 18:56:08
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 11:23:36
 *****
-RT @SheffieldGto: Hicimos un requerimiento a Viva Aerobús, Volaris y Aeroméxico para que dejen de cobrar como un extra el equipaje de mano.…
-[Permalink](https://twitter.com/fernandeznorona/status/1457904813174243328) | 0 Me Gusta | 1,516 Retweets
+No es ningún idiota, no fue por falta de inteligencia que hizo eso.
+[Permalink](https://twitter.com/fernandeznorona/status/1458153314978308100) | 78 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2021 a las 18:55:34
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2021 a las 11:23:09
 *****
-Está en modo repuestito el #tomandanteborolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1457904669364211712) | 93 Me Gusta | 29 Retweets
+El mensaje es muy claro: no te cases. Yo por eso vivo en unión libre.
+[Permalink](https://twitter.com/fernandeznorona/status/1458153201253994500) | 203 Me Gusta | 25 Retweets

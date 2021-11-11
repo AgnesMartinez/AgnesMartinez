@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2021 a las 21:36:00
+*****
+RT @ZuritaCarpio: Camaradas, acaban de suspender la cuenta @andre4T1 
+Hay que pedirle a @TwitterSeguro que se la regrese, ella no es violen…
+[Permalink](https://twitter.com/fernandeznorona/status/1458669820141056003) | 0 Me Gusta | 502 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2021 a las 21:20:31
+*****
+¡Do babes! Demóstenes reencarnó en la diputada @Mzavalagc.
+[Permalink](https://twitter.com/fernandeznorona/status/1458665923829764103) | 199 Me Gusta | 38 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2021 a las 21:12:49
+*****
+RT @DiputadosPTLXV: ☑ Con 274 votos a favor, 219 en contra y 3 abstenciones, aprobamos en lo general el dictamen con proyecto de #PEF2022.…
+[Permalink](https://twitter.com/fernandeznorona/status/1458663986069745671) | 0 Me Gusta | 27 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2021 a las 17:27:50
+*****
+26,786 en Facebook y, 12,623 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1458607366593679365) | 94 Me Gusta | 11 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 10-11-2021 a las 15:17:43
 *****
 RT @liliaaguilarmx: En el Grupo de @DiputadosPTLXV cumpliremos nuestro compromiso con las familias mexicanas y respaldaremos un #PEF2022 qu…
-[Permalink](https://twitter.com/fernandeznorona/status/1458574621901406213) | 0 Me Gusta | 14 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2021 a las 12:55:28
-*****
-Hoy fue una intervención más tranquila, Los paniaguados aguantaron la tentación de la confrontación.
-[Permalink](https://twitter.com/fernandeznorona/status/1458538821977612298) | 125 Me Gusta | 12 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2021 a las 12:40:04
-*****
-Va un paniaguado de movimiento paniaguado y luego, seguiré yo.
-[Permalink](https://twitter.com/fernandeznorona/status/1458534949766713349) | 141 Me Gusta | 20 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2021 a las 12:25:24
-*****
-RT @Al_Pirincho: !!! Fuerza #NuevaZelandia !!! Contra la vacunación obligatoria y el pase sanitario!!! Manifestación ruidosa de Motos y el…
-[Permalink](https://twitter.com/fernandeznorona/status/1458531254920482816) | 0 Me Gusta | 49 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2021 a las 12:24:34
-*****
-RT @AndreaChavezTre: La alianza Va X México tiene dueño, se llama Claudio X.
-
-
-Los diputados del PRIANRD suben a tribuna a defender interese…
-[Permalink](https://twitter.com/fernandeznorona/status/1458531045956067331) | 0 Me Gusta | 1,164 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1458574621901406213) | 0 Me Gusta | 20 Retweets

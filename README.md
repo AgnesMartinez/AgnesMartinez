@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2021 a las 09:54:39
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2021 a las 15:02:22
 *****
-RT @LJyDMX: Hoy, en medio de una pandemia se construye una refinería, el tren maya, el corredor transítsmico y un aeropuerto. Como nunca lo…
-[Permalink](https://twitter.com/fernandeznorona/status/1458855706988322823) | 0 Me Gusta | 15 Retweets
+Cierto.
+[Permalink](https://twitter.com/fernandeznorona/status/1458933145256882178) | 42 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2021 a las 09:49:56
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2021 a las 15:01:58
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1458854520214147079) | 11 Me Gusta | 0 Retweets
+Son simplemente rofundamente ignorantes y profundamente corruptos los paniaguados. A @AccionNacional le sobran las haches, al fin que son mudas, dicen que dicen.
+[Permalink](https://twitter.com/fernandeznorona/status/1458933046162255881) | 153 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2021 a las 09:49:32
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2021 a las 14:53:53
 *****
-Jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1458854420893118470) | 9 Me Gusta | 1 Retweets
+@AliteyU Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1458931013275381773) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2021 a las 09:38:35
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2021 a las 13:06:22
 *****
-Así fue.
-[Permalink](https://twitter.com/fernandeznorona/status/1458851665411547143) | 55 Me Gusta | 14 Retweets
+@aga10mx @CiroMurayamaINE Erario, todo erario es público.
+[Permalink](https://twitter.com/fernandeznorona/status/1458903952330838029) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2021 a las 09:38:21
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2021 a las 13:02:04
 *****
-@SupsipS Dizque.
-[Permalink](https://twitter.com/fernandeznorona/status/1458851603763580933) | 3 Me Gusta | 0 Retweets
+RT @politicomx: #ÚltimaHora | @Profeco coloca sellos de suspensión a Volaris y Viva Aerobús por cobro de tarifa básica sin incluir equipaje…
+[Permalink](https://twitter.com/fernandeznorona/status/1458902873765470218) | 0 Me Gusta | 33 Retweets

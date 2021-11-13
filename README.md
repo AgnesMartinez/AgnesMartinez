@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2021 a las 10:06:23
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2021 a las 15:33:52
 *****
-Pues ese no soy yo.
-[Permalink](https://twitter.com/fernandeznorona/status/1459221047794978822) | 5 Me Gusta | 0 Retweets
+Y si.
+[Permalink](https://twitter.com/fernandeznorona/status/1459303461514727426) | 18 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2021 a las 10:01:30
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2021 a las 14:55:47
 *****
-@danielmterres Abrazote doble.
-[Permalink](https://twitter.com/fernandeznorona/status/1459219818322829314) | 1 Me Gusta | 0 Retweets
+RT @mmarquezags: Hoy acudí al Comité Ejecutivo Nacional del Partido Acción Nacional a presentar mi renuncia a 18 años de militancia, una vi…
+[Permalink](https://twitter.com/fernandeznorona/status/1459293877156945926) | 0 Me Gusta | 248 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2021 a las 09:58:45
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2021 a las 14:48:55
 *****
-RT @abrahamendieta: Sí, nuevamente la derecha insultó y atacó en redes al hijo adolescente del Presidente con una foto falsa, de una person…
-[Permalink](https://twitter.com/fernandeznorona/status/1459219126375923715) | 0 Me Gusta | 464 Retweets
+RT @LILUZSA: El día de hoy el diputado @fernandeznorona apoyó y reconoció el  arte de los pueblos originarios.
+Señaló que a su arte se le c…
+[Permalink](https://twitter.com/fernandeznorona/status/1459292149544013824) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2021 a las 09:57:27
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2021 a las 14:38:13
 *****
-No expliques, explicador. Han estado desviando el dinero del presupuesto que se les ha asignado hacia esos fideicomisos. Tienen 1353 millones ahí.
-[Permalink](https://twitter.com/fernandeznorona/status/1459218801338327050) | 33 Me Gusta | 13 Retweets
+El primero se disfrazó de empleado de salchichonería y, el segundo, de vendedor de cervezas en el estadio.
+[Permalink](https://twitter.com/fernandeznorona/status/1459289456230420484) | 151 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2021 a las 09:55:19
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2021 a las 14:31:00
 *****
-Muy bien nuestro compañero Jorge Armando Ortiz Rodríguez “Fugio”, en su primera intervención en tribuna hizo pedazos a la oposición.
-[Permalink](https://twitter.com/fernandeznorona/status/1459218263041314822) | 51 Me Gusta | 11 Retweets
+RT @HernanGomezB: ¿Para esto quiere más dinero @lorenzocordovav y los consejeros del @INEMexico? Hay que ver en qué se gastó el presupuesto…
+[Permalink](https://twitter.com/fernandeznorona/status/1459287639446724609) | 0 Me Gusta | 731 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2021 a las 20:52:31
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 00:52:41
 *****
-RT @mardielos: Anda un "doctor" acusando a la 4T de negar la vacuna a los niños. Tengo dos hijas y no pienso vacunarlas, si a mi esposa le…
-[Permalink](https://twitter.com/fernandeznorona/status/1459746039473360899) | 0 Me Gusta | 23 Retweets
+A dormir, ha sido una semana intensa.
+[Permalink](https://twitter.com/fernandeznorona/status/1459806478940917761) | 84 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2021 a las 18:18:25
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 00:52:12
 *****
-RT @PatyArmendariz: Qué tortura estar sentada oyendo cientos de “reservas” que en realidad son insultos y mentiras de la oposición que ni s…
-[Permalink](https://twitter.com/fernandeznorona/status/1459707260377178112) | 0 Me Gusta | 719 Retweets
+Lo terminé de leer. Terrible historia. La lucha de Lucio Cabañas y la guerrilla del Partido de los Pobres.  De lectura obligada, aunque haga daño.
+[Permalink](https://twitter.com/fernandeznorona/status/1459806357507485696) | 56 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2021 a las 18:02:22
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 00:17:57
 *****
-RT @adela_bicha: A ver qué día pasan de noche para que vean las luminarias fundidas.
-[Permalink](https://twitter.com/fernandeznorona/status/1459703220104843269) | 0 Me Gusta | 9 Retweets
+Apenas llegando a casa. Aprobamos el presupuesto 2022 en @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1459797740473438211) | 328 Me Gusta | 46 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2021 a las 15:09:48
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2021 a las 23:47:06
 *****
-Oigo a la oposición en tribuna y recuerdo las palabras de Porfirio Díaz: “ese pollo quiere su máis”.
-[Permalink](https://twitter.com/fernandeznorona/status/1459659791635206144) | 567 Me Gusta | 133 Retweets
+A nombre de @AccionNacional, Jorge Triana, amenaza que porque no les dimos dinero del presupuesto, no apoyarán la reforma constitucional en materia eléctrica.
+[Permalink](https://twitter.com/fernandeznorona/status/1459789976925786117) | 170 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2021 a las 11:12:00
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2021 a las 23:02:04
 *****
-Una verdadera obra de arte.
-[Permalink](https://twitter.com/fernandeznorona/status/1459599947486019586) | 131 Me Gusta | 8 Retweets
+@JessAMorenoGle1 Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1459778644260364293) | 0 Me Gusta | 0 Retweets

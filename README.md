@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 00:52:41
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 15:42:46
 *****
-A dormir, ha sido una semana intensa.
-[Permalink](https://twitter.com/fernandeznorona/status/1459806478940917761) | 156 Me Gusta | 6 Retweets
+RT @CPJannyBarrera: Coco campechano (camarón crudo, pulpo,callo, almeja, caracol) los mejores mariscos del pacífico están en #Guaymas #Sono…
+[Permalink](https://twitter.com/fernandeznorona/status/1460030478489063427) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 00:52:12
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 15:41:48
 *****
-Lo terminé de leer. Terrible historia. La lucha de Lucio Cabañas y la guerrilla del Partido de los Pobres.  De lectura obligada, aunque haga daño.
-[Permalink](https://twitter.com/fernandeznorona/status/1459806357507485696) | 108 Me Gusta | 20 Retweets
+@AnaMendoza1989 Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1460030235991109686) | 4 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 00:17:57
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 15:30:56
 *****
-Apenas llegando a casa. Aprobamos el presupuesto 2022 en @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1459797740473438211) | 795 Me Gusta | 110 Retweets
+RT @rmartinmar: Hilary Arias Estrada y sus hijas Valentina y Bárbara ya fueron localizadas, sanas y salvas en Puebla, afortunadamente. Agra…
+[Permalink](https://twitter.com/fernandeznorona/status/1460027497957842947) | 0 Me Gusta | 156 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2021 a las 23:47:06
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 15:28:56
 *****
-A nombre de @AccionNacional, Jorge Triana, amenaza que porque no les dimos dinero del presupuesto, no apoyarán la reforma constitucional en materia eléctrica.
-[Permalink](https://twitter.com/fernandeznorona/status/1459789976925786117) | 449 Me Gusta | 105 Retweets
+Con el imperio NUNCA #Georgieboy. ¿Te pagan o das gratis tu pluma y algo más, @jorgeramosnews?
+[Permalink](https://twitter.com/fernandeznorona/status/1460026997413855232) | 42 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2021 a las 23:02:04
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 15:27:20
 *****
-@JessAMorenoGle1 Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1459778644260364293) | 0 Me Gusta | 0 Retweets
+Tu repartías el presupuesto, “maiceabas” - corrompías-, para que te lo aprobaran durante tu usurpación; hipócrita redomado es lo que eres #TomandanteBorolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1460026594639056900) | 86 Me Gusta | 33 Retweets

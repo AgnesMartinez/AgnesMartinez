@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 15:42:46
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 18:29:01
 *****
-RT @CPJannyBarrera: Coco campechano (camarón crudo, pulpo,callo, almeja, caracol) los mejores mariscos del pacífico están en #Guaymas #Sono…
-[Permalink](https://twitter.com/fernandeznorona/status/1460030478489063427) | 0 Me Gusta | 10 Retweets
+RT @SupsipS: #DenunciaCiudadana
+Es indignante el nivel de egoísmo e irresponsabilidad que se necesita (además de mucha corrupción) para que…
+[Permalink](https://twitter.com/fernandeznorona/status/1460072314503004162) | 0 Me Gusta | 67 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 15:41:48
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 18:26:10
 *****
-@AnaMendoza1989 Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1460030235991109686) | 4 Me Gusta | 2 Retweets
+Bonita pareja. Tal para cual.
+[Permalink](https://twitter.com/fernandeznorona/status/1460071598849814530) | 170 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 15:30:56
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 18:21:34
 *****
-RT @rmartinmar: Hilary Arias Estrada y sus hijas Valentina y Bárbara ya fueron localizadas, sanas y salvas en Puebla, afortunadamente. Agra…
-[Permalink](https://twitter.com/fernandeznorona/status/1460027497957842947) | 0 Me Gusta | 156 Retweets
+Las consigues en @Fonart_mx. Claro, debes tener buen ojo para verlas entre tantas cosas.
+[Permalink](https://twitter.com/fernandeznorona/status/1460070440903196672) | 19 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 15:28:56
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 18:20:00
 *****
-Con el imperio NUNCA #Georgieboy. ¿Te pagan o das gratis tu pluma y algo más, @jorgeramosnews?
-[Permalink](https://twitter.com/fernandeznorona/status/1460026997413855232) | 42 Me Gusta | 11 Retweets
+Tú.
+[Permalink](https://twitter.com/fernandeznorona/status/1460070047108325378) | 46 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 15:27:20
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2021 a las 17:07:31
 *****
-Tu repartías el presupuesto, “maiceabas” - corrompías-, para que te lo aprobaran durante tu usurpación; hipócrita redomado es lo que eres #TomandanteBorolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1460026594639056900) | 86 Me Gusta | 33 Retweets
+36,472 en Facebook y, 23,099 en YouTube. Estupendos números.
+[Permalink](https://twitter.com/fernandeznorona/status/1460051806365515781) | 109 Me Gusta | 13 Retweets

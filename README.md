@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 15:54:52
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 18:06:04
 *****
-RT @julioastillero: ¡Gracias a @lacasadetono por ofrecer a sus empleados la oportunidad de salir cansados de trabajar!
-[Permalink](https://twitter.com/fernandeznorona/status/1460758298517463049) | 0 Me Gusta | 172 Retweets
+RT @BibianaViana: Hasta Mañana.
+[Permalink](https://twitter.com/fernandeznorona/status/1460791316951060482) | 0 Me Gusta | 43 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 11:46:47
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 18:04:20
 *****
-RT @_BrendaEspinoza: El presidente @lopezobrador_ reconoció a los legisladores de #Morena #PT #PVEM por avalar el PEF 2022; sostuvo que la…
-[Permalink](https://twitter.com/fernandeznorona/status/1460695865052393472) | 0 Me Gusta | 28 Retweets
+Tú no estabas incluido. Hay que hacer un juicio a los que usurparon la presidencia, como fue tu caso #TomandanteBorolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1460790881104142336) | 109 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 11:45:33
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 18:02:10
 *****
-Te haces que no entiendes. Lee la boleta, hay una pregunta para revocar y otra para ratificar.  @CiroMurayamaINE se hace…
-[Permalink](https://twitter.com/fernandeznorona/status/1460695554569039875) | 116 Me Gusta | 44 Retweets
+Con este pinchi frío, por primera vez tienen una utilidad verdadera los cubrebocas.
+[Permalink](https://twitter.com/fernandeznorona/status/1460790334905102338) | 213 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 11:44:36
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 17:53:00
 *****
-RT @Helioflores_mex: PRESUPUESTO.
-[Permalink](https://twitter.com/fernandeznorona/status/1460695316454199299) | 0 Me Gusta | 1,038 Retweets
+RT @melishcs: Mi nuevo amigo me apoyó en la mesa de análisis de hoy. Muy atento.
+[Permalink](https://twitter.com/fernandeznorona/status/1460788026574004224) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 11:43:39
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 17:51:42
 *****
-RT @RobertoHdz: #LASRELEVANTES🗣🆕️ ¡Aberrante! Gerente de la cadena "gringa" @SamsClubMexico de #Tuxtepec #Oaxaca -con uso de la #FuerzaPubl…
-[Permalink](https://twitter.com/fernandeznorona/status/1460695076170960897) | 0 Me Gusta | 20 Retweets
+RT @monerohernandez: Para mi cartón de hoy, me usé a mí como modelo:
+[Permalink](https://twitter.com/fernandeznorona/status/1460787701427363842) | 0 Me Gusta | 245 Retweets

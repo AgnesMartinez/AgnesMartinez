@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 09:40:37
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 15:54:52
 *****
-Les compartiré lo que me dijo el compañero presidente. Me siento muy orgulloso y muy honrado.
-[Permalink](https://twitter.com/fernandeznorona/status/1460664113961619458) | 87 Me Gusta | 10 Retweets
+RT @julioastillero: ¡Gracias a @lacasadetono por ofrecer a sus empleados la oportunidad de salir cansados de trabajar!
+[Permalink](https://twitter.com/fernandeznorona/status/1460758298517463049) | 0 Me Gusta | 172 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 09:39:51
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 11:46:47
 *****
-Yo dejé mi teléfono en la camioneta, así es que no tengo ni fotografías, ni nada de la reunión. Pero en la video charla de las seis de la tarde les comentaré como estuvo.
-[Permalink](https://twitter.com/fernandeznorona/status/1460663923330400265) | 63 Me Gusta | 10 Retweets
+RT @_BrendaEspinoza: El presidente @lopezobrador_ reconoció a los legisladores de #Morena #PT #PVEM por avalar el PEF 2022; sostuvo que la…
+[Permalink](https://twitter.com/fernandeznorona/status/1460695865052393472) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 09:34:21
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 11:45:33
 *****
-Estoy muy contento de la reunión en Palacio Nacional. El compañero presidente @lopezobrador_ estaba muy contento y muy agradecido con nosotros. Conmigo fue particularmente cálido.
-[Permalink](https://twitter.com/fernandeznorona/status/1460662537234567172) | 287 Me Gusta | 57 Retweets
+Te haces que no entiendes. Lee la boleta, hay una pregunta para revocar y otra para ratificar.  @CiroMurayamaINE se hace…
+[Permalink](https://twitter.com/fernandeznorona/status/1460695554569039875) | 116 Me Gusta | 44 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 03:21:20
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 11:44:36
 *****
-Empezamos el día. En breve saldré de Pueblo quieto rumbo a Palacio Nacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1460568665183559681) | 192 Me Gusta | 10 Retweets
+RT @Helioflores_mex: PRESUPUESTO.
+[Permalink](https://twitter.com/fernandeznorona/status/1460695316454199299) | 0 Me Gusta | 1,038 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-11-2021 a las 18:46:21
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 11:43:39
 *****
-Simplemente hay que explicarlo.
-[Permalink](https://twitter.com/fernandeznorona/status/1460439066013356036) | 43 Me Gusta | 3 Retweets
+RT @RobertoHdz: #LASRELEVANTES🗣🆕️ ¡Aberrante! Gerente de la cadena "gringa" @SamsClubMexico de #Tuxtepec #Oaxaca -con uso de la #FuerzaPubl…
+[Permalink](https://twitter.com/fernandeznorona/status/1460695076170960897) | 0 Me Gusta | 20 Retweets

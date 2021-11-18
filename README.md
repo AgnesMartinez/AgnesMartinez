@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 18:06:04
+**Fernández Noroña** (**@fernandeznorona**) • 17-11-2021 a las 13:55:47
 *****
-RT @BibianaViana: Hasta Mañana.
-[Permalink](https://twitter.com/fernandeznorona/status/1460791316951060482) | 0 Me Gusta | 75 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1461090718009548807) | 63 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 18:04:20
+**Fernández Noroña** (**@fernandeznorona**) • 17-11-2021 a las 12:47:59
 *****
-Tú no estabas incluido. Hay que hacer un juicio a los que usurparon la presidencia, como fue tu caso #TomandanteBorolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1460790881104142336) | 131 Me Gusta | 33 Retweets
+Ahí les hablan a los sectarios. Será candidato del MOVIMIENTO quien gane la encuesta y esa persona, será el candidato del compañero presidente @lopezobrador_. Unidad y fin a las intrigas.
+[Permalink](https://twitter.com/fernandeznorona/status/1461073653261471744) | 139 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 18:02:10
+**Fernández Noroña** (**@fernandeznorona**) • 17-11-2021 a las 11:53:52
 *****
-Con este pinchi frío, por primera vez tienen una utilidad verdadera los cubrebocas.
-[Permalink](https://twitter.com/fernandeznorona/status/1460790334905102338) | 267 Me Gusta | 24 Retweets
+RT @LJyDMX: "Subí a la sierra, mejor dicho, me echaron al monte el 19 de mayo de 1967. Me fui porque si me quedaba me mataban. La vida vale…
+[Permalink](https://twitter.com/fernandeznorona/status/1461060035925069824) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 17:53:00
+**Fernández Noroña** (**@fernandeznorona**) • 17-11-2021 a las 11:52:43
 *****
-RT @melishcs: Mi nuevo amigo me apoyó en la mesa de análisis de hoy. Muy atento.
-[Permalink](https://twitter.com/fernandeznorona/status/1460788026574004224) | 0 Me Gusta | 11 Retweets
+RT @dianavegal: Ayúdenme a compartir! Y si viven en la Escandón a lo mejor lo han visto…
+[Permalink](https://twitter.com/fernandeznorona/status/1461059748854329345) | 0 Me Gusta | 54 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2021 a las 17:51:42
+**Fernández Noroña** (**@fernandeznorona**) • 17-11-2021 a las 11:18:24
 *****
-RT @monerohernandez: Para mi cartón de hoy, me usé a mí como modelo:
-[Permalink](https://twitter.com/fernandeznorona/status/1460787701427363842) | 0 Me Gusta | 356 Retweets
+RT @Foro_TV: AMLO defenderá su Reforma Energética en reunión con Biden y Trudeau; ni modo que ellos protejan a corruptos, señala 
+https://t…
+[Permalink](https://twitter.com/fernandeznorona/status/1461051109498363905) | 0 Me Gusta | 13 Retweets

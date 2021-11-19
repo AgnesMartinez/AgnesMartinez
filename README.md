@@ -8,12 +8,12 @@
 **Fernández Noroña** (**@fernandeznorona**) • 18-11-2021 a las 20:51:56
 *****
 Nunca es tarde cuando el amor es bueno, muchas felicidades por tu cumpleaños.
-[Permalink](https://twitter.com/fernandeznorona/status/1461557832445313029) | 39 Me Gusta | 5 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1461557832445313029) | 45 Me Gusta | 6 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 18-11-2021 a las 20:49:42
 *****
 Mañana iré a mi distrito en Iztapalapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1461557272488861697) | 99 Me Gusta | 12 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1461557272488861697) | 136 Me Gusta | 13 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 18-11-2021 a las 20:10:46
 *****

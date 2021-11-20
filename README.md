@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2021 a las 21:44:33
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2021 a las 09:31:26
 *****
-RT @Brenn0505: Lorenzo Córdova censuró a @euripidesf cuándo estaba dándo los montos de sus asesores y de muchos otros empleados del INE, to…
-[Permalink](https://twitter.com/fernandeznorona/status/1461933460910710784) | 0 Me Gusta | 537 Retweets
+RT @Nubia_SCG: Pues en el intento de chanclazo de @lorenzocordovav al representante de morena, ningún otro consejero dijo ni pío. Nadie se…
+[Permalink](https://twitter.com/fernandeznorona/status/1462111353309577221) | 0 Me Gusta | 64 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2021 a las 12:52:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2021 a las 09:21:16
 *****
-¿Crees que hice campaña de manera telemática? Besitos.
-[Permalink](https://twitter.com/fernandeznorona/status/1461799519922929666) | 55 Me Gusta | 7 Retweets
+No falten, hay verdaderas joyas de arte popular.
+[Permalink](https://twitter.com/fernandeznorona/status/1462108797950853121) | 42 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2021 a las 12:07:49
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2021 a las 09:15:58
 *****
-Muy buen recorrido en Iztapalapa. La gente súper cálida conmigo.
-[Permalink](https://twitter.com/fernandeznorona/status/1461788323333218316) | 192 Me Gusta | 29 Retweets
+Ya en Texmelucan, pero no se puede pasar porque hay desfile, obvio.
+[Permalink](https://twitter.com/fernandeznorona/status/1462107463361056772) | 30 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2021 a las 09:27:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2021 a las 08:57:03
 *****
-Deja lo torpes. Los vendepatrias y miserables. Que promuevan abiertamente mi intervención militar en México frente a su frustración de no poder seguir saqueando la nación es lamentable.
-[Permalink](https://twitter.com/fernandeznorona/status/1461747930948587520) | 74 Me Gusta | 16 Retweets
+La carretera México Puebla siempre es un problema con las obras.
+[Permalink](https://twitter.com/fernandeznorona/status/1462102703488872454) | 43 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2021 a las 09:25:58
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2021 a las 07:45:18
 *****
-Ya en Iztapalapa. A las 11:30 empezaremos a transmitir mi recorrido.
-[Permalink](https://twitter.com/fernandeznorona/status/1461747593004859394) | 72 Me Gusta | 8 Retweets
+Es un acto irrespetuoso y miserable que demuestra la animadversión del supuesto árbitro @lorenzocordovav contra @PartidoMorenaMx y nuestro movimiento. Toda mi solidaridad @euripidesf.
+[Permalink](https://twitter.com/fernandeznorona/status/1462084646645088257) | 92 Me Gusta | 40 Retweets

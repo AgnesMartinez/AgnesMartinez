@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-11-2021 a las 19:39:19
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 14:00:04
 *****
-@Nubia_SCG @KyleSkynet Jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1462626724106018820) | 9 Me Gusta | 0 Retweets
+Vuélvelo a escuchar hasta que lo entiendas. Es un respaldo institucional. @Luis_C_Sandoval es un patriota.
+[Permalink](https://twitter.com/fernandeznorona/status/1462903734317453321) | 101 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-11-2021 a las 17:52:03
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 13:51:25
 *****
-20,459 en Facebook y, 17,734 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1462599727669669896) | 103 Me Gusta | 13 Retweets
+Hoy decidí que cuando muera, espero falte mucho para eso, mis cenizas las dispersen en lo que llamamos la súper vista. Un lugar en la montaña donde simbólicamente solté las cenizas de mi hermanito Balfre Vargas. Hoy también recibí llamadas de @FunerariasG. #zopiloteando.
+[Permalink](https://twitter.com/fernandeznorona/status/1462901557771464706) | 64 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-11-2021 a las 15:58:52
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 13:46:19
 *****
-Atardecer en Tepoztlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1462571243291308032) | 243 Me Gusta | 17 Retweets
+@again_xavier @lorenzocordovav @CiroMurayamaINE Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1462900276453539840) | 4 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-11-2021 a las 12:31:33
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 13:46:00
 *****
-“La política puede sacar lo mejor de las personas pero sin duda saca todos los demonios habidos y por haber”.
-[Permalink](https://twitter.com/fernandeznorona/status/1462519071023386625) | 81 Me Gusta | 14 Retweets
+Ustedes tan revocadores, nosotros ratificando. Pero ustedes nada que pueden revocar y nosotros sí que ratificaremos.
+[Permalink](https://twitter.com/fernandeznorona/status/1462900196484923396) | 138 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-11-2021 a las 12:27:20
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 13:45:15
 *****
-Lo terminé. Me dijeron que la información valía la pena, no lo creo. Creo que está plagado de mentiras el libro.
-[Permalink](https://twitter.com/fernandeznorona/status/1462518009570807808) | 133 Me Gusta | 15 Retweets
+Tú revocas, nosotros ratificamos. Pero como no pueden revocar, descalifican.
+[Permalink](https://twitter.com/fernandeznorona/status/1462900006566785030) | 39 Me Gusta | 8 Retweets

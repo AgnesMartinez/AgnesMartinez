@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 14:00:04
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 21:01:34
 *****
-Vuélvelo a escuchar hasta que lo entiendas. Es un respaldo institucional. @Luis_C_Sandoval es un patriota.
-[Permalink](https://twitter.com/fernandeznorona/status/1462903734317453321) | 101 Me Gusta | 21 Retweets
+Tengo que dormirme y no puedo dejar de leer este libro. Dunne Es un espléndido escritor.
+[Permalink](https://twitter.com/fernandeznorona/status/1463009810018828289) | 64 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 13:51:25
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 18:05:39
 *****
-Hoy decidí que cuando muera, espero falte mucho para eso, mis cenizas las dispersen en lo que llamamos la súper vista. Un lugar en la montaña donde simbólicamente solté las cenizas de mi hermanito Balfre Vargas. Hoy también recibí llamadas de @FunerariasG. #zopiloteando.
-[Permalink](https://twitter.com/fernandeznorona/status/1462901557771464706) | 64 Me Gusta | 10 Retweets
+RT @jairocalixto: ¿Qué esperaban los del Ku Klux PAN, que Sandoval se pusiera pinochetista, diera golpe de estado y le declarara fidelidad…
+[Permalink](https://twitter.com/fernandeznorona/status/1462965539987279879) | 0 Me Gusta | 402 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 13:46:19
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 18:05:11
 *****
-@again_xavier @lorenzocordovav @CiroMurayamaINE Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1462900276453539840) | 4 Me Gusta | 1 Retweets
+RT @abrahamendieta: A Juan Guaidó hace un buen rato que se le cayó su teatrito, pero hoy, se le derrumbó hasta el escenario.
+[Permalink](https://twitter.com/fernandeznorona/status/1462965419262676992) | 0 Me Gusta | 513 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 13:46:00
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 18:04:40
 *****
-Ustedes tan revocadores, nosotros ratificando. Pero ustedes nada que pueden revocar y nosotros sí que ratificaremos.
-[Permalink](https://twitter.com/fernandeznorona/status/1462900196484923396) | 138 Me Gusta | 26 Retweets
+Ya quedó claro que son fachos disfrazados de la izquierda.
+[Permalink](https://twitter.com/fernandeznorona/status/1462965290895953920) | 53 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 13:45:15
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2021 a las 18:03:20
 *****
-Tú revocas, nosotros ratificamos. Pero como no pueden revocar, descalifican.
-[Permalink](https://twitter.com/fernandeznorona/status/1462900006566785030) | 39 Me Gusta | 8 Retweets
+RT @polimniaromana: ¿Recuerdan a Melchor?
+
+
+Ahora es un tigre siberiano
+[Permalink](https://twitter.com/fernandeznorona/status/1462964953690771460) | 0 Me Gusta | 17 Retweets

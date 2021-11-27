@@ -1,32 +1,33 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 15:37:38
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 19:03:14
 *****
-Juchitán.
-[Permalink](https://twitter.com/fernandeznorona/status/1464377838371487753) | 25 Me Gusta | 5 Retweets
+Es muy buena feria. Espléndida oferta en cuanto a diversidad, pero muy cara.
+[Permalink](https://twitter.com/fernandeznorona/status/1464429580618547201) | 24 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 14:56:07
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 19:01:17
 *****
-RT @BenjaminRoblesM: Hoy en #Tehuantepec. 
+Pues quíteselo compañero. Abrazote para ambos.
+[Permalink](https://twitter.com/fernandeznorona/status/1464429089058660355) | 57 Me Gusta | 6 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 19:00:37
+*****
+RT @again_xavier: Señor Marciano!, No me mate!! No todos votamos por ese pendejo!!
 
 
-Mil gracias a mi amigo  y compañero de lucha @fernandeznorona por su respaldo y apoyo. 
+Parfavaaaaar!
+😭😭😭😭😭😭😭
 
 
-La 4T…
-[Permalink](https://twitter.com/fernandeznorona/status/1464367393409486855) | 0 Me Gusta | 12 Retweets
+Hace un ratito, aquí en Nuevo Le…
+[Permalink](https://twitter.com/fernandeznorona/status/1464428921651351552) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 14:55:05
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 18:56:39
 *****
-Ya en Juchitán.
-[Permalink](https://twitter.com/fernandeznorona/status/1464367132981047298) | 53 Me Gusta | 5 Retweets
+Hoy en Juchitán, con mi tíos Daniel Noroña y Ana María Romero.
+[Permalink](https://twitter.com/fernandeznorona/status/1464427923767762945) | 265 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 14:33:47
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 18:53:39
 *****
-La charla de las seis de la tarde empezará por ahí de las 7 30 pues empalmaron el evento de Juchitán.
-[Permalink](https://twitter.com/fernandeznorona/status/1464361772685668354) | 62 Me Gusta | 16 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 14:23:20
-*****
-Me dicen habitantes de El Coyol, San Juan Lajarcia, que no les dan el recurso que les corresponde del ramo 28. Tienen tomada la carretera y el gobierno de @alejandromurat los amenaza con reprimirlos en vez de hacer que el municipio cumpla con la entrega de los recursos.
-[Permalink](https://twitter.com/fernandeznorona/status/1464359141372268547) | 54 Me Gusta | 15 Retweets
+Ya estamos en Ixtepec.
+[Permalink](https://twitter.com/fernandeznorona/status/1464427167123746816) | 35 Me Gusta | 1 Retweets

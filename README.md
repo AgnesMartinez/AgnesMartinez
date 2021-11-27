@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 09:44:46
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 15:37:38
 *****
-En la presentación de mi libro “La Casa.Blanca”, el 25 de noviembre de 2015.
-[Permalink](https://twitter.com/fernandeznorona/status/1464289038278574087) | 28 Me Gusta | 3 Retweets
+Juchitán.
+[Permalink](https://twitter.com/fernandeznorona/status/1464377838371487753) | 25 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 09:36:50
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 14:56:07
 *****
-Vamos a llegar a tiempo al evento de Tehuantepec.
-[Permalink](https://twitter.com/fernandeznorona/status/1464287039478808582) | 23 Me Gusta | 1 Retweets
+RT @BenjaminRoblesM: Hoy en #Tehuantepec. 
+
+
+Mil gracias a mi amigo  y compañero de lucha @fernandeznorona por su respaldo y apoyo. 
+
+
+La 4T…
+[Permalink](https://twitter.com/fernandeznorona/status/1464367393409486855) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-11-2021 a las 21:24:45
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 14:55:05
 *****
-Pues no. Todavía falta bajar del avión y desplazarse al hotel.
-[Permalink](https://twitter.com/fernandeznorona/status/1464102804755296256) | 39 Me Gusta | 0 Retweets
+Ya en Juchitán.
+[Permalink](https://twitter.com/fernandeznorona/status/1464367132981047298) | 53 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-11-2021 a las 21:23:26
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 14:33:47
 *****
-Recién aterrizamos en Tuxtla Gutiérrez.
-[Permalink](https://twitter.com/fernandeznorona/status/1464102477062627332) | 79 Me Gusta | 5 Retweets
+La charla de las seis de la tarde empezará por ahí de las 7 30 pues empalmaron el evento de Juchitán.
+[Permalink](https://twitter.com/fernandeznorona/status/1464361772685668354) | 62 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-11-2021 a las 20:14:52
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2021 a las 14:23:20
 *****
-Apenas vamos a despegar rumbo a Tuxtla Gutiérrez.
-[Permalink](https://twitter.com/fernandeznorona/status/1464085220496396289) | 67 Me Gusta | 3 Retweets
+Me dicen habitantes de El Coyol, San Juan Lajarcia, que no les dan el recurso que les corresponde del ramo 28. Tienen tomada la carretera y el gobierno de @alejandromurat los amenaza con reprimirlos en vez de hacer que el municipio cumpla con la entrega de los recursos.
+[Permalink](https://twitter.com/fernandeznorona/status/1464359141372268547) | 54 Me Gusta | 15 Retweets

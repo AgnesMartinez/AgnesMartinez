@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-11-2021 a las 20:35:50
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 16:23:37
 *****
-Ya me quiero dormir, pero Dunne es muy bueno.
-[Permalink](https://twitter.com/fernandeznorona/status/1464815272649449475) | 125 Me Gusta | 13 Retweets
+Ya lo hicimos. Lo volveremos a hacer.
+[Permalink](https://twitter.com/fernandeznorona/status/1465114185688395777) | 6 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-11-2021 a las 19:45:06
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 16:06:42
 *****
-RT @julioastillero: Pues no hubo ninguna "sorpresa", como había augurado @ceciliasotog : fueron los mismos, los ya sabidos, nomás que con o…
-[Permalink](https://twitter.com/fernandeznorona/status/1464802503359221762) | 0 Me Gusta | 360 Retweets
+Eres además de un pendejo, un miserable @PedroFerriz.
+[Permalink](https://twitter.com/fernandeznorona/status/1465109932114649092) | 93 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-11-2021 a las 17:17:02
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 16:05:07
 *****
-13,239 en Facebook y 11,630 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1464765242030886915) | 112 Me Gusta | 19 Retweets
+RT @DavidRazu: Estoy muy feliz. En julio pasado, hospitalizado por #Covid_19 en mi querido @Tu_IMSS, con cables y mangueras por todos lados…
+[Permalink](https://twitter.com/fernandeznorona/status/1465109532242292737) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-11-2021 a las 15:39:56
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 16:00:19
 *****
-Ayudar.
-[Permalink](https://twitter.com/fernandeznorona/status/1464740806384885760) | 95 Me Gusta | 122 Retweets
+Vamos tarde, la video charla será como 6:30 PM.
+[Permalink](https://twitter.com/fernandeznorona/status/1465108326098907137) | 16 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-11-2021 a las 12:01:10
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 15:14:09
 *****
-Ixtepec, Oax. Ésta chingadera pone lo que quiere.
-[Permalink](https://twitter.com/fernandeznorona/status/1464685752625864711) | 83 Me Gusta | 16 Retweets
+Muy buen evento hoy en Oaxaca capital con @BenjaminRoblesM.
+[Permalink](https://twitter.com/fernandeznorona/status/1465096705578356740) | 49 Me Gusta | 11 Retweets

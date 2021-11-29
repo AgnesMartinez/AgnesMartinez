@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 16:23:37
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 20:39:56
 *****
-Ya lo hicimos. Lo volveremos a hacer.
-[Permalink](https://twitter.com/fernandeznorona/status/1465114185688395777) | 6 Me Gusta | 1 Retweets
+Que un médico diga en otras palabras “él se lo buscó”, me parece por decirlo suave, poco responsable.
+[Permalink](https://twitter.com/fernandeznorona/status/1465178691877552129) | 25 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 16:06:42
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 20:38:52
 *****
-Eres además de un pendejo, un miserable @PedroFerriz.
-[Permalink](https://twitter.com/fernandeznorona/status/1465109932114649092) | 93 Me Gusta | 13 Retweets
+Pero te diré lo que me tocó el nervio. Plantear que el estado en que se encuentra es por no haberse vacunado, sin conocer su verdadero estado de salud previo. O me dirás que era un deportista espectacular, con una dieta excepcional y con una salud de caballo de carreras.
+[Permalink](https://twitter.com/fernandeznorona/status/1465178421579825158) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 16:05:07
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 20:37:31
 *****
-RT @DavidRazu: Estoy muy feliz. En julio pasado, hospitalizado por #Covid_19 en mi querido @Tu_IMSS, con cables y mangueras por todos lados…
-[Permalink](https://twitter.com/fernandeznorona/status/1465109532242292737) | 0 Me Gusta | 33 Retweets
+Dicho lo cual, hay quien se ha vacunado, usa el cubrebocas y se enferma y muere. Más aún, se han vacunado y los obligan a seguir usando cubrebocas. ¡La ciencia es la ciencia!
+[Permalink](https://twitter.com/fernandeznorona/status/1465178084223582209) | 27 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 16:00:19
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 19:54:26
 *****
-Vamos tarde, la video charla será como 6:30 PM.
-[Permalink](https://twitter.com/fernandeznorona/status/1465108326098907137) | 16 Me Gusta | 3 Retweets
+RT @EffiePalacios: Honduras y todos los pueblos hermanos de izquierda están de fiesta. @XiomaraCastroZ presidenta.
+[Permalink](https://twitter.com/fernandeznorona/status/1465167242933542918) | 0 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 15:14:09
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 19:52:30
 *****
-Muy buen evento hoy en Oaxaca capital con @BenjaminRoblesM.
-[Permalink](https://twitter.com/fernandeznorona/status/1465096705578356740) | 49 Me Gusta | 11 Retweets
+RT @BenjaminRoblesM: Agradezco el acompañamiento de mi gran amigo y compañero el diputado federal @fernandeznorona.🫂
+
+
+En Oaxaca la #4T avan…
+[Permalink](https://twitter.com/fernandeznorona/status/1465166755203010564) | 0 Me Gusta | 16 Retweets

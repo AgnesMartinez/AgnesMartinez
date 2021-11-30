@@ -1,29 +1,35 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-11-2021 a las 08:07:50
+**Fernández Noroña** (**@fernandeznorona**) • 29-11-2021 a las 12:53:02
 *****
-RT @BenjaminRoblesM: ¡La lucha sigue hasta que las cosas cambien! ¡Porque ya le toca a Oaxaca!👊🏽👇🏽 
+Porque el ataque en esencia es a su persona, Queriendo plantear que no hay corrupción en él pero si en su familia.
+[Permalink](https://twitter.com/fernandeznorona/status/1465423580989120515) | 135 Me Gusta | 29 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 29-11-2021 a las 11:09:51
+*****
+Con @XiomaraCastroZ, próxima presidente de Honduras. Una gran noticia para nuestro hermano país.
+[Permalink](https://twitter.com/fernandeznorona/status/1465397613705015315) | 135 Me Gusta | 27 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 29-11-2021 a las 10:35:11
+*****
+O al estadio de fútbol.
+[Permalink](https://twitter.com/fernandeznorona/status/1465388889967841293) | 64 Me Gusta | 12 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 29-11-2021 a las 10:20:10
+*****
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1465385110346293255) | 60 Me Gusta | 12 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 29-11-2021 a las 10:19:29
+*****
+RT @LJyDMX: - Dime, ¿Por qué si uno sabe nadar flota sin moverse y cuando no sabe se hunde?
 
 
-El calor del pueblo sabio y bueno se s…
-[Permalink](https://twitter.com/fernandeznorona/status/1465351807199236105) | 0 Me Gusta | 39 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 29-11-2021 a las 08:07:32
-*****
-Salí de Pueblo quieto rumbo a @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1465351730313498631) | 35 Me Gusta | 2 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 20:39:56
-*****
-Que un médico diga en otras palabras “él se lo buscó”, me parece por decirlo suave, poco responsable.
-[Permalink](https://twitter.com/fernandeznorona/status/1465178691877552129) | 46 Me Gusta | 8 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 20:38:52
-*****
-Pero te diré lo que me tocó el nervio. Plantear que el estado en que se encuentra es por no haberse vacunado, sin conocer su verdadero estado de salud previo. O me dirás que era un deportista espectacular, con una dieta excepcional y con una salud de caballo de carreras.
-[Permalink](https://twitter.com/fernandeznorona/status/1465178421579825158) | 36 Me Gusta | 6 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2021 a las 20:37:31
-*****
-Dicho lo cual, hay quien se ha vacunado, usa el cubrebocas y se enferma y muere. Más aún, se han vacunado y los obligan a seguir usando cubrebocas. ¡La ciencia es la ciencia!
-[Permalink](https://twitter.com/fernandeznorona/status/1465178084223582209) | 47 Me Gusta | 3 Retweets
+- El miedo pesa, hijo.
+
+
+Miguel Delibes.
+
+
+Que e…
+[Permalink](https://twitter.com/fernandeznorona/status/1465384936739946503) | 0 Me Gusta | 26 Retweets

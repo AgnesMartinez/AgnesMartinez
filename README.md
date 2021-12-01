@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 14:58:16
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 20:17:50
 *****
-Lo mas cabrón es que va a ganar “el otro”.
-[Permalink](https://twitter.com/fernandeznorona/status/1465817485949734913) | 72 Me Gusta | 16 Retweets
+Y otros no pueden llenar su cabeza, cabeza hueca @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1465897905143775233) | 204 Me Gusta | 50 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 14:32:57
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 19:36:48
 *****
-No los odia. Simplemente presentó un reportaje muy falto de profesionalismo periodístico @AristeguiOnline.
-[Permalink](https://twitter.com/fernandeznorona/status/1465811114369892359) | 75 Me Gusta | 11 Retweets
+¡Putos extras! ¡Qué expresivo!
+[Permalink](https://twitter.com/fernandeznorona/status/1465887578591092737) | 27 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 12:47:53
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 19:35:07
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1465784671711621124) | 26 Me Gusta | 5 Retweets
+RT @Helioflores_mex: SIEMPRE A LA MODA.
+[Permalink](https://twitter.com/fernandeznorona/status/1465887154853212162) | 0 Me Gusta | 996 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 12:21:52
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 19:31:03
 *****
-Puej ji, no es obligatorio, ni lo ha sido nunca en México, aunque lo hayan impuesto por la vía de los hechos autoridades menores.
-[Permalink](https://twitter.com/fernandeznorona/status/1465778123052441600) | 121 Me Gusta | 35 Retweets
+RT @XiomaraCastroZ: Nasry Asfura Zablah, Candidato del PN, acepta la voluntad del pueblo, reconoce la victoria de Libre en alianza, y mi tr…
+[Permalink](https://twitter.com/fernandeznorona/status/1465886133229801477) | 0 Me Gusta | 1,351 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 12:08:07
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 19:30:42
 *****
-Son de una ligereza impresionante, @SergioSarmiento. No les deseo que vivan nunca, lo que dicen que sufren. Ustedes NUNCA han arriesgado ni el bisoñé.
-[Permalink](https://twitter.com/fernandeznorona/status/1465774666614652931) | 96 Me Gusta | 26 Retweets
+Aunque ahí @SergioSarmiento está igualito a quien da clases en esas instituciones con ese mismo rigor, @sergioaguayo.
+[Permalink](https://twitter.com/fernandeznorona/status/1465886043282968581) | 31 Me Gusta | 9 Retweets

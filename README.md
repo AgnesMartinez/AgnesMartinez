@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 20:17:50
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2021 a las 09:54:07
 *****
-Y otros no pueden llenar su cabeza, cabeza hueca @VicenteFoxQue.
-[Permalink](https://twitter.com/fernandeznorona/status/1465897905143775233) | 250 Me Gusta | 56 Retweets
+¡Te pasas! Pero si, de repente son horrores ortográficos.
+[Permalink](https://twitter.com/fernandeznorona/status/1466103330535530499) | 20 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 19:36:48
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2021 a las 09:52:18
 *****
-¡Putos extras! ¡Qué expresivo!
-[Permalink](https://twitter.com/fernandeznorona/status/1465887578591092737) | 27 Me Gusta | 5 Retweets
+RT @Nubia_SCG: Hoy el pueblo de México se hará sentir en el zócalo, se confirmará el “desastre” que berrea la derecha todos los días.
+
+
+¿Qué…
+[Permalink](https://twitter.com/fernandeznorona/status/1466102873859792899) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 19:35:07
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2021 a las 09:47:20
 *****
-RT @Helioflores_mex: SIEMPRE A LA MODA.
-[Permalink](https://twitter.com/fernandeznorona/status/1465887154853212162) | 0 Me Gusta | 1,014 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1466101621482565636) | 19 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 19:31:03
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2021 a las 09:46:54
 *****
-RT @XiomaraCastroZ: Nasry Asfura Zablah, Candidato del PN, acepta la voluntad del pueblo, reconoce la victoria de Libre en alianza, y mi tr…
-[Permalink](https://twitter.com/fernandeznorona/status/1465886133229801477) | 0 Me Gusta | 1,452 Retweets
+Jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1466101513093369860) | 25 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2021 a las 19:30:42
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2021 a las 09:45:55
 *****
-Aunque ahí @SergioSarmiento está igualito a quien da clases en esas instituciones con ese mismo rigor, @sergioaguayo.
-[Permalink](https://twitter.com/fernandeznorona/status/1465886043282968581) | 30 Me Gusta | 9 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1466101266828910600) | 16 Me Gusta | 3 Retweets

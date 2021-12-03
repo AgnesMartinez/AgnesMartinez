@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 15:54:46
+**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 21:59:10
 *****
-Estupenda conferencia impartió hoy @dilmabr en @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1466556479209713665) | 35 Me Gusta | 8 Retweets
+@xX_DarkAdria_Xx @Navegaciones @CiroGomezL @Mitofsky_group @EPN @Televisa @mileniotv Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1466648182042292224) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 15:52:18
+**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 21:07:58
 *****
-Hoy con @dilmabr en @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1466555857223749635) | 40 Me Gusta | 10 Retweets
+No estaríamos donde estamos en la aportación al proceso democrático sin la lucha del ingeniero Cuauhtémoc Cárdenas Solórzano. Como lo dijo ayer el compañero presidente @lopezobrador_ , es una lucha de todos y de muchas décadas.
+[Permalink](https://twitter.com/fernandeznorona/status/1466635296515268609) | 54 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 15:27:55
+**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 21:02:12
 *****
-¿No?
-[Permalink](https://twitter.com/fernandeznorona/status/1466549719711240193) | 12 Me Gusta | 1 Retweets
+Acabamos de aterrizar en el aeropuerto de San Luis Potosí. Estoy cansado.
+[Permalink](https://twitter.com/fernandeznorona/status/1466633848138182656) | 67 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 15:22:08
+**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 21:01:43
 *****
-Ayer en el zócalo.
-[Permalink](https://twitter.com/fernandeznorona/status/1466548268238884865) | 225 Me Gusta | 28 Retweets
+RT @Esther_Mtz03: ⭐⭐ || Hacemos la invitación para que nos acompañen a las reuniones informativas que dará el Diputado Federal @fernandezno…
+[Permalink](https://twitter.com/fernandeznorona/status/1466633726096465923) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 15:19:33
+**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 19:49:36
 *****
-RT @Pajaropolitico: #LoÚltimo | Con 78 votos a favor, 21 en contra y 10 abstenciones, el @senadomexicano designó a Victoria Rodríguez Ceja…
-[Permalink](https://twitter.com/fernandeznorona/status/1466547615353425929) | 0 Me Gusta | 23 Retweets
+RT @epigmenioibarra: Mexico no tiene-salvo honrosas excepciones-la oposición, la intelectualidad,la prensa que este momento histórico exige…
+[Permalink](https://twitter.com/fernandeznorona/status/1466615577582379010) | 0 Me Gusta | 1,527 Retweets

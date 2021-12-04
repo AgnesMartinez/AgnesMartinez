@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2021 a las 19:11:49
+**Fernández Noroña** (**@fernandeznorona**) • 04-12-2021 a las 09:42:44
 *****
-Dicen tonterías, parece que no han oído al compañero presidente. Por otro lado, su arrogancia es del tamaño de su torpeza. Nos necesitamos todos y todas y la unidad es fundamental.
-[Permalink](https://twitter.com/fernandeznorona/status/1466968455161253888) | 67 Me Gusta | 13 Retweets
+En verdad estás enfermo de hipocresía y de miseria humana. Si alguien destruyó fuiste tú #TomandanteBorolas alias @FelipeCalderon, que ni siquiera respetaste al voto de la gente. Encima, tu gurú es el Botijón de @CartonCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1467187627635920902) | 51 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2021 a las 18:49:40
+**Fernández Noroña** (**@fernandeznorona**) • 04-12-2021 a las 09:37:41
 *****
-Al #TomandanteBorolas alias @FelipeCalderon ya se le olvidó que se fue a vacunar a Estados Unidos porque decía que le iba tocar hasta el 2050 en México y ahora quiere que le den un certificado de vacunación nacional. #lagunasbacachas.
-[Permalink](https://twitter.com/fernandeznorona/status/1466962882722103300) | 530 Me Gusta | 133 Retweets
+RT @SupsipS: Ya se dieron cuenta?
+Los que pueden viajar son personas vacunadas, no? 
+Quienes están propagando la nueva versión del virus es…
+[Permalink](https://twitter.com/fernandeznorona/status/1467186358473138176) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2021 a las 18:45:10
+**Fernández Noroña** (**@fernandeznorona**) • 04-12-2021 a las 07:33:05
 *****
-@Fernand67020437 @JuanitaIzaguir5 Eso sin considerar el chingo de acentos que te sobran.
-[Permalink](https://twitter.com/fernandeznorona/status/1466961750817796096) | 0 Me Gusta | 0 Retweets
+RT @elhijodelrayo: Hitler está vivo
+[Permalink](https://twitter.com/fernandeznorona/status/1467155003844567041) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2021 a las 18:44:31
+**Fernández Noroña** (**@fernandeznorona**) • 04-12-2021 a las 07:32:49
 *****
-@Fernand67020437 @JuanitaIzaguir5 Has hecho.
-[Permalink](https://twitter.com/fernandeznorona/status/1466961586283634689) | 0 Me Gusta | 0 Retweets
+RT @rubengluengas: Son los vacunados los que están propagando el coronavirus por el mundo y provocando los últimos brotes, dice un reciente…
+[Permalink](https://twitter.com/fernandeznorona/status/1467154933476700167) | 0 Me Gusta | 216 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2021 a las 18:44:12
+**Fernández Noroña** (**@fernandeznorona**) • 04-12-2021 a las 07:30:56
 *****
-En la medida que traigas en la cabeza la cartera en lugar del cerebro, señor XJr, seguirás cosechando fracasos electorales y políticos. Ni con el financiamiento de la embajada de Estados Unidos y la unidad opositora pueden @ClaudioXGG.
-[Permalink](https://twitter.com/fernandeznorona/status/1466961505178382339) | 138 Me Gusta | 40 Retweets
+Es ridículo que te pidan mantener sana distancia dentro del avión donde vas todo apeñuscado. @Aeromexico, salimos de San Luis Potosí al D.F.
+[Permalink](https://twitter.com/fernandeznorona/status/1467154459054821378) | 77 Me Gusta | 12 Retweets

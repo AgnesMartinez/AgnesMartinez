@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 21:59:10
+**Fernández Noroña** (**@fernandeznorona**) • 03-12-2021 a las 19:11:49
 *****
-@xX_DarkAdria_Xx @Navegaciones @CiroGomezL @Mitofsky_group @EPN @Televisa @mileniotv Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1466648182042292224) | 1 Me Gusta | 0 Retweets
+Dicen tonterías, parece que no han oído al compañero presidente. Por otro lado, su arrogancia es del tamaño de su torpeza. Nos necesitamos todos y todas y la unidad es fundamental.
+[Permalink](https://twitter.com/fernandeznorona/status/1466968455161253888) | 56 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 21:07:58
+**Fernández Noroña** (**@fernandeznorona**) • 03-12-2021 a las 18:49:40
 *****
-No estaríamos donde estamos en la aportación al proceso democrático sin la lucha del ingeniero Cuauhtémoc Cárdenas Solórzano. Como lo dijo ayer el compañero presidente @lopezobrador_ , es una lucha de todos y de muchas décadas.
-[Permalink](https://twitter.com/fernandeznorona/status/1466635296515268609) | 110 Me Gusta | 21 Retweets
+Al #TomandanteBorolas alias @FelipeCalderon ya se le olvidó que se fue a vacunar a Estados Unidos porque decía que le iba tocar hasta el 2050 en México y ahora quiere que le den un certificado de vacunación nacional. #lagunasbacachas.
+[Permalink](https://twitter.com/fernandeznorona/status/1466962882722103300) | 467 Me Gusta | 120 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 21:02:12
+**Fernández Noroña** (**@fernandeznorona**) • 03-12-2021 a las 18:45:10
 *****
-Acabamos de aterrizar en el aeropuerto de San Luis Potosí. Estoy cansado.
-[Permalink](https://twitter.com/fernandeznorona/status/1466633848138182656) | 150 Me Gusta | 12 Retweets
+@Fernand67020437 @JuanitaIzaguir5 Eso sin considerar el chingo de acentos que te sobran.
+[Permalink](https://twitter.com/fernandeznorona/status/1466961750817796096) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 21:01:43
+**Fernández Noroña** (**@fernandeznorona**) • 03-12-2021 a las 18:44:31
 *****
-RT @Esther_Mtz03: ⭐⭐ || Hacemos la invitación para que nos acompañen a las reuniones informativas que dará el Diputado Federal @fernandezno…
-[Permalink](https://twitter.com/fernandeznorona/status/1466633726096465923) | 0 Me Gusta | 32 Retweets
+@Fernand67020437 @JuanitaIzaguir5 Has hecho.
+[Permalink](https://twitter.com/fernandeznorona/status/1466961586283634689) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2021 a las 19:49:36
+**Fernández Noroña** (**@fernandeznorona**) • 03-12-2021 a las 18:44:12
 *****
-RT @epigmenioibarra: Mexico no tiene-salvo honrosas excepciones-la oposición, la intelectualidad,la prensa que este momento histórico exige…
-[Permalink](https://twitter.com/fernandeznorona/status/1466615577582379010) | 0 Me Gusta | 1,561 Retweets
+En la medida que traigas en la cabeza la cartera en lugar del cerebro, señor XJr, seguirás cosechando fracasos electorales y políticos. Ni con el financiamiento de la embajada de Estados Unidos y la unidad opositora pueden @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1466961505178382339) | 122 Me Gusta | 38 Retweets

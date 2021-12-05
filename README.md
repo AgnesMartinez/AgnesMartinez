@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2021 a las 19:39:54
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2021 a las 09:21:10
 *****
-RT @flaviososavilla: (1) El 4 de diciembre del 2006 fuimos detenidos: Ignacio García Maldonado (DEP), Marcelino Coache y su servidor. En un…
-[Permalink](https://twitter.com/fernandeznorona/status/1467337909753860098) | 0 Me Gusta | 121 Retweets
+Muy buena reunión en Tlatlauquitepec.
+[Permalink](https://twitter.com/fernandeznorona/status/1467544590253281287) | 49 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2021 a las 19:39:25
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2021 a las 09:14:50
 *****
-@Juliosucks3 @ChemoPonce Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1467337790920835077) | 0 Me Gusta | 0 Retweets
+RT @Kentt_Blue: Los mejores regalos no cualquiera los puede dar.
+[Permalink](https://twitter.com/fernandeznorona/status/1467542994781937674) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2021 a las 19:39:21
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2021 a las 08:02:39
 *****
-@ChemoPonce Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1467337774768480257) | 4 Me Gusta | 0 Retweets
+El cerro Cabezón en Tlatlauquitepec.
+[Permalink](https://twitter.com/fernandeznorona/status/1467524829532229636) | 56 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2021 a las 19:33:00
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2021 a las 05:14:42
 *****
-Intrigas y más intrigas. Encima celebras los ataques cobardes y no te das cuenta que promueves ambientes de los que serás víctima, @ESEMEJIA .
-[Permalink](https://twitter.com/fernandeznorona/status/1467336172871598080) | 63 Me Gusta | 10 Retweets
+Rumbo a Tlatlauquitepec.
+[Permalink](https://twitter.com/fernandeznorona/status/1467482563673481220) | 77 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2021 a las 19:26:34
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2021 a las 04:39:56
 *****
-Eres muy ignorante. Para ti está bien porque no vives ese régimen infame. NADIE debe trabajar bajo ese régimen voraz de la subcontratación.
-[Permalink](https://twitter.com/fernandeznorona/status/1467334556239941632) | 72 Me Gusta | 14 Retweets
+Ya rumbo a Tlatlauquitepec. El agua estaba helada.
+[Permalink](https://twitter.com/fernandeznorona/status/1467473816578314243) | 95 Me Gusta | 7 Retweets

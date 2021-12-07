@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 15:38:49
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 17:51:50
 *****
-Otro que confunde la plaza de Leandro Valle con estacionamiento ⁦@UCS_GCDMX⁩ ⁦@OVIALCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1468002015209041925) | 47 Me Gusta | 10 Retweets
+Diosa.
+[Permalink](https://twitter.com/fernandeznorona/status/1468035492407087111) | 10 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 14:44:08
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 17:48:06
 *****
-RT @sdpnoticias: Todo indica que no era un simulador
-Muestran otro video del tren que abordó @lopezobrador_ este domingo, luego de que @lop…
-[Permalink](https://twitter.com/fernandeznorona/status/1467988256671383557) | 0 Me Gusta | 12 Retweets
+¿Y si no lo tengo, le reclamo a dios?
+[Permalink](https://twitter.com/fernandeznorona/status/1468034550966239242) | 104 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 14:41:29
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 17:40:19
 *****
-RT @farreola: Los que hablan del simulador del tren dicen que en la 4T son unos mensos.  Pero si en realidad hicieron ese simulador, me imp…
-[Permalink](https://twitter.com/fernandeznorona/status/1467987587516219403) | 0 Me Gusta | 13 Retweets
+Muchas gracias.
+[Permalink](https://twitter.com/fernandeznorona/status/1468032592427556866) | 30 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 14:09:12
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 17:39:23
 *****
-Una reunión inusualmente cordial, de colaboración y de entendimiento de la JUCOPO con el Fiscal General de la República, Gertz Manero.
-[Permalink](https://twitter.com/fernandeznorona/status/1467979465116598278) | 62 Me Gusta | 4 Retweets
+Muy bien.
+[Permalink](https://twitter.com/fernandeznorona/status/1468032356783120389) | 20 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 09:40:59
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 17:07:52
 *****
-@Andres50877148 @piojo22e Has contestado.
-[Permalink](https://twitter.com/fernandeznorona/status/1467911964601028614) | 2 Me Gusta | 1 Retweets
+12,807 en Facebook y, 12,753 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1468024426419699723) | 65 Me Gusta | 13 Retweets

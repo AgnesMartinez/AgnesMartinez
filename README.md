@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 15:38:49
+*****
+Otro que confunde la plaza de Leandro Valle con estacionamiento ⁦@UCS_GCDMX⁩ ⁦@OVIALCDMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1468002015209041925) | 47 Me Gusta | 10 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 14:44:08
+*****
+RT @sdpnoticias: Todo indica que no era un simulador
+Muestran otro video del tren que abordó @lopezobrador_ este domingo, luego de que @lop…
+[Permalink](https://twitter.com/fernandeznorona/status/1467988256671383557) | 0 Me Gusta | 12 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 14:41:29
+*****
+RT @farreola: Los que hablan del simulador del tren dicen que en la 4T son unos mensos.  Pero si en realidad hicieron ese simulador, me imp…
+[Permalink](https://twitter.com/fernandeznorona/status/1467987587516219403) | 0 Me Gusta | 13 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 14:09:12
+*****
+Una reunión inusualmente cordial, de colaboración y de entendimiento de la JUCOPO con el Fiscal General de la República, Gertz Manero.
+[Permalink](https://twitter.com/fernandeznorona/status/1467979465116598278) | 62 Me Gusta | 4 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 09:40:59
 *****
 @Andres50877148 @piojo22e Has contestado.
-[Permalink](https://twitter.com/fernandeznorona/status/1467911964601028614) | 0 Me Gusta | 0 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 04:47:49
-*****
-RT @Esther_Mtz03: ¡Es el momento de la gente! 🤝 
-
-
-La consolidación de la #4T depende de que estemos organizados, trabajemos duro y no claud…
-[Permalink](https://twitter.com/fernandeznorona/status/1467838186994823170) | 0 Me Gusta | 11 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 04:45:14
-*****
-Ya vamos rumbo a @Mx_Diputados desde Cuetzalan.
-[Permalink](https://twitter.com/fernandeznorona/status/1467837538337320962) | 52 Me Gusta | 1 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 05-12-2021 a las 18:52:32
-*****
-Así fue, la lucha de un puñado de valientes que logramos evitar la venta del campo militar número 1F.
-[Permalink](https://twitter.com/fernandeznorona/status/1467688380196655108) | 194 Me Gusta | 50 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 05-12-2021 a las 17:14:15
-*****
-10,413 en Facebook y, 13,831 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1467663643819008006) | 115 Me Gusta | 11 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1467911964601028614) | 2 Me Gusta | 1 Retweets

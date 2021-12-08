@@ -1,5 +1,10 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2021 a las 17:40:20
+*****
+No conozco de nada a esa persona. No trabaja conmigo, no trabajó y no ha trabajado nunca ni siquiera en la fracción del @PTnacionalMX. De hecho, esas credenciales de metal conocidas como charolas ya no se hacen. Además, ese número de empleado no existe.
+[Permalink](https://twitter.com/fernandeznorona/status/1468394986538364932) | 136 Me Gusta | 51 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 07-12-2021 a las 06:48:47
 *****
 RT @DavidMendezPue: Este martes 12hrs escucha:
@@ -9,7 +14,7 @@ RT @DavidMendezPue: Este martes 12hrs escucha:
 
 
 por:
-[Permalink](https://twitter.com/fernandeznorona/status/1468231016095502336) | 0 Me Gusta | 10 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1468231016095502336) | 0 Me Gusta | 12 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 07-12-2021 a las 06:46:34
 *****
@@ -19,14 +24,9 @@ por:
 **Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 17:51:50
 *****
 Diosa.
-[Permalink](https://twitter.com/fernandeznorona/status/1468035492407087111) | 14 Me Gusta | 1 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1468035492407087111) | 15 Me Gusta | 1 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 17:48:06
 *****
 ¿Y si no lo tengo, le reclamo a dios?
-[Permalink](https://twitter.com/fernandeznorona/status/1468034550966239242) | 144 Me Gusta | 14 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2021 a las 17:40:19
-*****
-Muchas gracias.
-[Permalink](https://twitter.com/fernandeznorona/status/1468032592427556866) | 35 Me Gusta | 0 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1468034550966239242) | 154 Me Gusta | 16 Retweets

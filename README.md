@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 08:36:29
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 16:03:00
 *****
-@Novolunie_ Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1468620509189492740) | 2 Me Gusta | 1 Retweets
+Vamos rumbo al aeropuerto de ciudad Ixtepec. Espero antes de abordar el avión, hacer una pequeña Video charla.
+[Permalink](https://twitter.com/fernandeznorona/status/1468732876787265538) | 21 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 08:35:43
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 15:11:56
 *****
-La información es falsa. En ningún lado presentan un comprobante de que haya trabajado conmigo. No conozco a esa persona, nunca trabajó conmigo y esas identificaciones metálicas ya no se hacen por lo menos desde la LXI Legislatura.
-[Permalink](https://twitter.com/fernandeznorona/status/1468620316515655691) | 42 Me Gusta | 25 Retweets
+En el faro de Salina Cruz.
+[Permalink](https://twitter.com/fernandeznorona/status/1468720026584760321) | 57 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 08:30:24
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 14:48:09
 *****
-A pesar que desde aclaré que no conozco a una persona de nombre José Eduardo Ávila López,los medios continúan con la intriga de que era mi asesor. ¿Asesor de qué? Ya no saben que inventar.
-[Permalink](https://twitter.com/fernandeznorona/status/1468618976481751045) | 83 Me Gusta | 26 Retweets
+RT @epigmenioibarra: Sienten que ese “peligro para México” les amenaza hoy —como sucedió con Juárez, con Madero, con Cárdenas— desde Palaci…
+[Permalink](https://twitter.com/fernandeznorona/status/1468714042026037249) | 0 Me Gusta | 1,213 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 07:53:19
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 14:47:45
 *****
-Acabamos de aterrizar en ciudad Ixtepec, Oaxaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1468609645942034436) | 44 Me Gusta | 3 Retweets
+Esmerado, profesional y patriótico el trabajo que hace @SEMAR_mx y muy seria su tarea en el astillero.
+[Permalink](https://twitter.com/fernandeznorona/status/1468713941606051842) | 51 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 06:10:25
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 12:23:52
 *****
-Una locura, apenas vamos a despegar a Ixtepec y me hicieron llegar 6:15 al aeropuerto. @SEMAR_mx.
-[Permalink](https://twitter.com/fernandeznorona/status/1468583748266463233) | 51 Me Gusta | 4 Retweets
+RT @DiputadosPTLXV: ⚠️ #Comunicado || No hay vínculo con presunto asesor detenido por la Fiscalía del Estado de México: @fernandeznorona.…
+[Permalink](https://twitter.com/fernandeznorona/status/1468677732930306061) | 0 Me Gusta | 28 Retweets

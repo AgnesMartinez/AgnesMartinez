@@ -8,17 +8,17 @@
 **Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 22:32:10
 *****
 @luisanchezmejia Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1469193204318625797) | 2 Me Gusta | 0 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1469193204318625797) | 3 Me Gusta | 0 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 22:31:45
 *****
 Mis condolencias para familiares y amigos por el fallecimiento de Carmen Salinas.
-[Permalink](https://twitter.com/fernandeznorona/status/1469193098085289984) | 117 Me Gusta | 10 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1469193098085289984) | 149 Me Gusta | 12 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 22:27:31
 *****
 Estamos aterrizando apenas en Hermosillo.
-[Permalink](https://twitter.com/fernandeznorona/status/1469192032862146564) | 41 Me Gusta | 4 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1469192032862146564) | 53 Me Gusta | 5 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 20:01:08
 *****

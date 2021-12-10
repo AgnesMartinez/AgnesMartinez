@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 11:42:10
+**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 20:01:08
 *****
-RT @20_martha20: Bellos ❤️
-[Permalink](https://twitter.com/fernandeznorona/status/1469029626441785347) | 0 Me Gusta | 6 Retweets
+@luisanchezmejia Vez.
+[Permalink](https://twitter.com/fernandeznorona/status/1469155193329750028) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 11:41:15
+**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 19:59:02
 *****
-RT @fisgonmonero: La guerra de medios es la gran arma de la derecha contra los movimientos progresistas en todo el mundo. Es violenta y suc…
-[Permalink](https://twitter.com/fernandeznorona/status/1469029394052173824) | 0 Me Gusta | 1,611 Retweets
+A mi no me pasa. Será porque mis cabrones gatos son salvajes y no se dejan agarrar.
+[Permalink](https://twitter.com/fernandeznorona/status/1469154663794724869) | 19 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 08:20:41
+**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 19:57:33
 *****
-¿Habrá quien libere un día el eje uno Norte?
-[Permalink](https://twitter.com/fernandeznorona/status/1468978921228095493) | 75 Me Gusta | 9 Retweets
+Muchas felicidades a @julioastillero por los merecidos reconocimientos que hoy recibió debido a su tarea periodística.
+[Permalink](https://twitter.com/fernandeznorona/status/1469154291135000580) | 71 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 22:17:51
+**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 19:55:55
 *****
-Hay un pseudo periodista que cree que ejerce la crítica, pero que en realidad sirve al conservadurismo. ¿Es gratis o a sueldo @rivapa?
-[Permalink](https://twitter.com/fernandeznorona/status/1468827212606586887) | 152 Me Gusta | 46 Retweets
+RT @sotelo888: Hoy el periodista @julioastillero, además del premio del Certamen Nacional de Periodismo del Club Periodistas, recibió el re…
+[Permalink](https://twitter.com/fernandeznorona/status/1469153883138179075) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2021 a las 22:15:17
+**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 19:55:19
 *****
-Francamente tu pregunta es insidiosa. ¿Por qué no haces la pregunta a la inversa? ¿Por qué excluyes a otros aspirantes? Flaco favor le haces a @Claudiashein sembrando intriga y sectarismo.
-[Permalink](https://twitter.com/fernandeznorona/status/1468826564875927555) | 71 Me Gusta | 17 Retweets
+No. Deben ponerla en su lugar los senadores y senadoras del movimiento. No hay sanción en un debate entre pares. Si algo cubre el fuero es la libertad de expresión. Ello no quiere decir que comparta nada de lo que dice ese ser mezquino e ignorante.
+[Permalink](https://twitter.com/fernandeznorona/status/1469153730826280962) | 38 Me Gusta | 2 Retweets

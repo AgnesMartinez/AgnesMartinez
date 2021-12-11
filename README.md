@@ -1,5 +1,20 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 10-12-2021 a las 11:49:00
+*****
+Y ya estamos en Guaymas. Saludaremos a la alcaldesa y de ahí a la asamblea informativa.
+[Permalink](https://twitter.com/fernandeznorona/status/1469393731434463232) | 56 Me Gusta | 4 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 10-12-2021 a las 11:48:38
+*****
+Llegamos tarde a la rueda de prensa, pero muy bien los medios locales.
+[Permalink](https://twitter.com/fernandeznorona/status/1469393639759663115) | 28 Me Gusta | 2 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 10-12-2021 a las 11:48:24
+*****
+Muy bien va a mi visita a Sonora. Una extraordinaria reunión con mi amigo y compañero de lucha, el gobernador @AlfonsoDurazo.
+[Permalink](https://twitter.com/fernandeznorona/status/1469393582683480071) | 77 Me Gusta | 8 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 22:32:52
 *****
 @julioastillero Abrazote.
@@ -9,18 +24,3 @@
 *****
 @luisanchezmejia Abrazote.
 [Permalink](https://twitter.com/fernandeznorona/status/1469193204318625797) | 3 Me Gusta | 0 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 22:31:45
-*****
-Mis condolencias para familiares y amigos por el fallecimiento de Carmen Salinas.
-[Permalink](https://twitter.com/fernandeznorona/status/1469193098085289984) | 149 Me Gusta | 12 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 22:27:31
-*****
-Estamos aterrizando apenas en Hermosillo.
-[Permalink](https://twitter.com/fernandeznorona/status/1469192032862146564) | 53 Me Gusta | 5 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 09-12-2021 a las 20:01:08
-*****
-@luisanchezmejia Vez.
-[Permalink](https://twitter.com/fernandeznorona/status/1469155193329750028) | 3 Me Gusta | 0 Retweets

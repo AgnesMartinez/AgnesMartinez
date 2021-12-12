@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 16:04:07
+**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 22:06:36
 *****
-RT @Revolucion3_0: Con ayuda del ejército, llegan y llegan medicamentos a los hospitales, tal como lo prometió AMLO (+ #Video)
-[Permalink](https://twitter.com/fernandeznorona/status/1469820322568450050) | 0 Me Gusta | 19 Retweets
+9261 en Facebook y 7600 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1469911545601744898) | 2 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 16:03:11
+**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 19:00:21
 *****
-@susanaC27076804 @Vale___Mx Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1469820088345759745) | 1 Me Gusta | 1 Retweets
+Gracias, apenas tenga los datos del oficial se los reportaré.
+[Permalink](https://twitter.com/fernandeznorona/status/1469864672954355713) | 33 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 16:00:35
+**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 18:56:07
 *****
-533 en Facebook y, 534 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1469819432100786177) | 12 Me Gusta | 3 Retweets
+Un cabrón policía queriendo extorsionar a mi ayudante cerca del aeropuerto. @UCS_GCDMX. Ya se le pidió que levante la infracción y sigue haciéndose con la intención de que le des dinero.
+[Permalink](https://twitter.com/fernandeznorona/status/1469863606338695169) | 106 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 15:48:04
+**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 18:52:23
 *****
-Fue el regidor René a pedirla y ya les dijeron que no la pueden sacar de la basura -la piedra-. En verdad, son torpes y necios. Todo ello en el aeropuerto de Hermosillo. La piedra tenía dibujada una ballena, parecía dibujada por un niño. Una pequeña obra de arte.
-[Permalink](https://twitter.com/fernandeznorona/status/1469816284065972228) | 21 Me Gusta | 3 Retweets
+Gracias a ti. Buen trabajo del @PTnacionalMX en Sonora.
+[Permalink](https://twitter.com/fernandeznorona/status/1469862667502428170) | 48 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 15:46:30
+**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 18:51:45
 *****
-Estuvo muy bien la tarde y me dio mucho coraje que tiraran la piedra comcaav-serí-
-[Permalink](https://twitter.com/fernandeznorona/status/1469815887788183552) | 11 Me Gusta | 1 Retweets
+Son muy reaccionarios en derecho. Y luego se enojan cuando se critica la derechización de las universidades públicas.
+[Permalink](https://twitter.com/fernandeznorona/status/1469862507498164224) | 41 Me Gusta | 11 Retweets

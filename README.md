@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 10:07:39
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 15:38:37
 *****
-Muere un grande de la música popular mexicana, Vicente Fernández. Mi solidaridad para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1470093001338798080) | 2 Me Gusta | 0 Retweets
+RT @DianaKarinaBa: Les comparto más fotos de la visita a la comunidad Comca'ac en Punta Chueca, que tengan bonito domingo ✌🏽
+[Permalink](https://twitter.com/fernandeznorona/status/1470176294428160004) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 10:05:20
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 15:35:48
 *****
-RT @ViAr_DAVID: La base del trabajo en empresas como @Huizachearte @casa_arte_oax y otras empresas comunitarias son los sistemas de organiz…
-[Permalink](https://twitter.com/fernandeznorona/status/1470092419677011969) | 0 Me Gusta | 2 Retweets
+Te adelantaste 12 días.
+[Permalink](https://twitter.com/fernandeznorona/status/1470175584710021135) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 22:06:36
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 15:34:30
 *****
-9261 en Facebook y 7600 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1469911545601744898) | 70 Me Gusta | 7 Retweets
+RT @adrianasanv: Ya relájense.
+[Permalink](https://twitter.com/fernandeznorona/status/1470175256992272385) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 19:00:21
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 15:33:15
 *****
-Gracias, apenas tenga los datos del oficial se los reportaré.
-[Permalink](https://twitter.com/fernandeznorona/status/1469864672954355713) | 46 Me Gusta | 4 Retweets
+@Beatriz84981597 Sip.
+[Permalink](https://twitter.com/fernandeznorona/status/1470174942021005316) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2021 a las 18:56:07
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 15:32:26
 *****
-Un cabrón policía queriendo extorsionar a mi ayudante cerca del aeropuerto. @UCS_GCDMX. Ya se le pidió que levante la infracción y sigue haciéndose con la intención de que le des dinero.
-[Permalink](https://twitter.com/fernandeznorona/status/1469863606338695169) | 177 Me Gusta | 42 Retweets
+Comiendo sus camarones a la mantequilla. ⁦@Ascension528Hz⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1470174736802107399) | 33 Me Gusta | 2 Retweets

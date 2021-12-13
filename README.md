@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 20:36:03
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 10:05:10
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1470251143653564418) | 80 Me Gusta | 10 Retweets
+RT @CamMttz: Es una tortura subirse al didi y que estén escuchando La Corneta
+[Permalink](https://twitter.com/fernandeznorona/status/1470454763577819138) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 20:34:35
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 10:04:39
 *****
-Lo terminé. Bueno a secas.
-[Permalink](https://twitter.com/fernandeznorona/status/1470250776060579842) | 31 Me Gusta | 3 Retweets
+RT @AlMirRey0272: Declaración que a nadie le importa:
+
+
+1. Monreal me parece falso y convenenciero
+
+
+2. Gibrán me parece que erró el camino…
+[Permalink](https://twitter.com/fernandeznorona/status/1470454635886522378) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 20:05:16
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 10:04:18
 *****
-“Señor, dame castidad y dominio de mi mismo -dijo citando al santo-, pero, por favor, no me los des ahora”. Gabe, personaje de MacDermott citando a San Agustín.
-[Permalink](https://twitter.com/fernandeznorona/status/1470243397310898177) | 35 Me Gusta | 7 Retweets
+RT @lopezobrador_: Hablé por teléfono para felicitar a la presidenta electa de Honduras, Xiomara Castro. Es un gusto poder trabajar en coor…
+[Permalink](https://twitter.com/fernandeznorona/status/1470454549399937025) | 0 Me Gusta | 396 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 18:43:22
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 09:58:07
 *****
-RT @MonicaGIslas: La UNESCO declaró la obra de fotógrafa Mariana Yampolsky como patrimonio documental de México. Dejaré esto por aquí y me…
-[Permalink](https://twitter.com/fernandeznorona/status/1470222786920685568) | 0 Me Gusta | 510 Retweets
+@JoseyyyJose Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1470452991493025792) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 18:41:57
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 09:57:22
 *****
-Asesinar, pueden asesinar y generar masacres impunemente.
-[Permalink](https://twitter.com/fernandeznorona/status/1470222428592877573) | 82 Me Gusta | 30 Retweets
+RT @agustingc2012: Entre los diputados que votaron en contra del #Fobaproa y que ahora están en @PartidoMorenaMx se encuentran: @m_ebrard,…
+[Permalink](https://twitter.com/fernandeznorona/status/1470452802690465793) | 0 Me Gusta | 13 Retweets

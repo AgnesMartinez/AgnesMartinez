@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 15:38:37
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 20:36:03
 *****
-RT @DianaKarinaBa: Les comparto más fotos de la visita a la comunidad Comca'ac en Punta Chueca, que tengan bonito domingo ✌🏽
-[Permalink](https://twitter.com/fernandeznorona/status/1470176294428160004) | 0 Me Gusta | 6 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1470251143653564418) | 68 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 15:35:48
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 20:34:35
 *****
-Te adelantaste 12 días.
-[Permalink](https://twitter.com/fernandeznorona/status/1470175584710021135) | 3 Me Gusta | 0 Retweets
+Lo terminé. Bueno a secas.
+[Permalink](https://twitter.com/fernandeznorona/status/1470250776060579842) | 24 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 15:34:30
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 20:05:16
 *****
-RT @adrianasanv: Ya relájense.
-[Permalink](https://twitter.com/fernandeznorona/status/1470175256992272385) | 0 Me Gusta | 16 Retweets
+“Señor, dame castidad y dominio de mi mismo -dijo citando al santo-, pero, por favor, no me los des ahora”. Gabe, personaje de MacDermott citando a San Agustín.
+[Permalink](https://twitter.com/fernandeznorona/status/1470243397310898177) | 31 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 15:33:15
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 18:43:22
 *****
-@Beatriz84981597 Sip.
-[Permalink](https://twitter.com/fernandeznorona/status/1470174942021005316) | 3 Me Gusta | 1 Retweets
+RT @MonicaGIslas: La UNESCO declaró la obra de fotógrafa Mariana Yampolsky como patrimonio documental de México. Dejaré esto por aquí y me…
+[Permalink](https://twitter.com/fernandeznorona/status/1470222786920685568) | 0 Me Gusta | 428 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 15:32:26
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2021 a las 18:41:57
 *****
-Comiendo sus camarones a la mantequilla. ⁦@Ascension528Hz⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1470174736802107399) | 33 Me Gusta | 2 Retweets
+Asesinar, pueden asesinar y generar masacres impunemente.
+[Permalink](https://twitter.com/fernandeznorona/status/1470222428592877573) | 77 Me Gusta | 29 Retweets

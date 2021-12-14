@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 10:05:10
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 15:50:00
 *****
-RT @CamMttz: Es una tortura subirse al didi y que estén escuchando La Corneta
-[Permalink](https://twitter.com/fernandeznorona/status/1470454763577819138) | 0 Me Gusta | 28 Retweets
+Mejor que mejor. Hoy será mi transmisión desde ⁦@heraldodemexico⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1470541543710859270) | 32 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 10:04:39
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 15:48:37
 *****
-RT @AlMirRey0272: Declaración que a nadie le importa:
-
-
-1. Monreal me parece falso y convenenciero
-
-
-2. Gibrán me parece que erró el camino…
-[Permalink](https://twitter.com/fernandeznorona/status/1470454635886522378) | 0 Me Gusta | 5 Retweets
+Listo para transmitir a las 6:00 desde ⁦@heraldodemexico⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1470541199408775171) | 18 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 10:04:18
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 14:33:59
 *****
-RT @lopezobrador_: Hablé por teléfono para felicitar a la presidenta electa de Honduras, Xiomara Castro. Es un gusto poder trabajar en coor…
-[Permalink](https://twitter.com/fernandeznorona/status/1470454549399937025) | 0 Me Gusta | 396 Retweets
+Ah y es sí.
+[Permalink](https://twitter.com/fernandeznorona/status/1470522415730118657) | 12 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 09:58:07
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 14:31:34
 *****
-@JoseyyyJose Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1470452991493025792) | 1 Me Gusta | 0 Retweets
+Casi: “Perro Aguayo”, jejeje. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1470521805668601863) | 12 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 09:57:22
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 14:13:39
 *****
-RT @agustingc2012: Entre los diputados que votaron en contra del #Fobaproa y que ahora están en @PartidoMorenaMx se encuentran: @m_ebrard,…
-[Permalink](https://twitter.com/fernandeznorona/status/1470452802690465793) | 0 Me Gusta | 13 Retweets
+Ahí desmienten a @MovCiudadanoMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1470517297068576777) | 43 Me Gusta | 11 Retweets

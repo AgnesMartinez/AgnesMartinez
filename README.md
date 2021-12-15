@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 18:54:13
+**Fernández Noroña** (**@fernandeznorona**) • 14-12-2021 a las 15:34:11
 *****
-Los paniaguados ya entraron en razón.
-[Permalink](https://twitter.com/fernandeznorona/status/1470587904124760066) | 137 Me Gusta | 29 Retweets
+RT @MAKIALOBO: La discriminación es una lacra brutal de la humanidad en pleno siglo XXI que debe ser erradicada d todos los rincones del pa…
+[Permalink](https://twitter.com/fernandeznorona/status/1470899954667470851) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 15:50:00
+**Fernández Noroña** (**@fernandeznorona**) • 14-12-2021 a las 15:27:27
 *****
-Mejor que mejor. Hoy será mi transmisión desde ⁦@heraldodemexico⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1470541543710859270) | 74 Me Gusta | 11 Retweets
+RT @Regenta13: Las vacunas no funcionan. No lo digo yo, que jamás lo había dicho antes. Lo dice la TV: resulta que las UCIS, dicen, están a…
+[Permalink](https://twitter.com/fernandeznorona/status/1470898258419630083) | 0 Me Gusta | 437 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 15:48:37
+**Fernández Noroña** (**@fernandeznorona**) • 14-12-2021 a las 15:24:50
 *****
-Listo para transmitir a las 6:00 desde ⁦@heraldodemexico⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1470541199408775171) | 45 Me Gusta | 9 Retweets
+Falso. Lo que exigen es que la Cámara se haga cargo del pago que deben hacer de ISR. Eso se acabó. Deben de pagar sus impuestos. Llevan casi dos años sin ir a trabajar, pero acuden a protestar para que @Mx_Diputados absorba 600 millones de sus obligaciones tributarias.
+[Permalink](https://twitter.com/fernandeznorona/status/1470897602254233602) | 63 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 14:33:59
+**Fernández Noroña** (**@fernandeznorona**) • 14-12-2021 a las 15:18:45
 *****
-Ah y es sí.
-[Permalink](https://twitter.com/fernandeznorona/status/1470522415730118657) | 24 Me Gusta | 4 Retweets
+RT @laoctavadigital: #VIDEO l "El PRD (@PRDMexico) ya se dio cuenta que no es de izquierda. Solo les falta darse cuenta que son lambiscones…
+[Permalink](https://twitter.com/fernandeznorona/status/1470896067491282945) | 0 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2021 a las 14:31:34
+**Fernández Noroña** (**@fernandeznorona**) • 14-12-2021 a las 15:15:10
 *****
-Casi: “Perro Aguayo”, jejeje. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1470521805668601863) | 21 Me Gusta | 3 Retweets
+RT @LILUZSA: PANIAGUADOS suéltense el pelo, voten en contra, asuman que son discriminadores, homófonos, racistas, clasistas; !Asuman que od…
+[Permalink](https://twitter.com/fernandeznorona/status/1470895166240272388) | 0 Me Gusta | 19 Retweets

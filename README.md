@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 09:05:00
+**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 16:11:25
 *****
-¡Cómo sufre! Me imagino que si debe haber alguna diferencia con sus casas en Coyoacán o Polanco producto de sus raterías.
-[Permalink](https://twitter.com/fernandeznorona/status/1471164399993999374) | 33 Me Gusta | 7 Retweets
+La señora solo lee titulares. Así hizo su carrera política.
+[Permalink](https://twitter.com/fernandeznorona/status/1471271709118455816) | 46 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 09:03:50
+**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 16:10:03
 *****
-No sé de qué hablas, pero dices tonterías.
-[Permalink](https://twitter.com/fernandeznorona/status/1471164108363948032) | 13 Me Gusta | 2 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1471271365219135494) | 11 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 09:01:25
+**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 16:09:06
 *****
-Retiró @PartidoMorenaMx el dictamen sobre discriminación. Francamente, hay veces que no los entiendo.
-[Permalink](https://twitter.com/fernandeznorona/status/1471163497887248397) | 38 Me Gusta | 6 Retweets
+RT @lopezobrador_: Gracias de todo corazón.
+[Permalink](https://twitter.com/fernandeznorona/status/1471271128517816326) | 0 Me Gusta | 10,403 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 08:17:19
+**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 16:02:47
 *****
-Acabo de enviar mi video columna es para @sdpnoticias, desde mi curul: “Termina el primer periodo ordinario de sesiones”.
-[Permalink](https://twitter.com/fernandeznorona/status/1471152400199307268) | 44 Me Gusta | 4 Retweets
+@again_xavier Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1471269538192891908) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 07:45:40
+**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 15:56:25
 *****
-Deberías darte una vuelta por el eje uno Norte, donde invaden prácticamente todos los carriles.
-[Permalink](https://twitter.com/fernandeznorona/status/1471144433475207168) | 21 Me Gusta | 2 Retweets
+Empezaremos 6:30 la videocharla pues se retrasó la instalación de la Comisión Permanente.
+[Permalink](https://twitter.com/fernandeznorona/status/1471267937361305602) | 23 Me Gusta | 6 Retweets

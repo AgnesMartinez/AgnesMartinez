@@ -3,17 +3,17 @@
 **Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 21:35:34
 *****
 RT @epigmenioibarra: AMLO se ha atado al mástil. Hará lo que con votos le ordenamos.Como salió del pueblo,al pueblo quiere cumplirle y al p…
-[Permalink](https://twitter.com/fernandeznorona/status/1471353288037523457) | 0 Me Gusta | 1,157 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1471353288037523457) | 0 Me Gusta | 1,282 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 16:11:25
 *****
 La señora solo lee titulares. Así hizo su carrera política.
-[Permalink](https://twitter.com/fernandeznorona/status/1471271709118455816) | 183 Me Gusta | 52 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1471271709118455816) | 194 Me Gusta | 53 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 16:10:03
 *****
 Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1471271365219135494) | 36 Me Gusta | 7 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1471271365219135494) | 40 Me Gusta | 8 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 16:09:06
 *****

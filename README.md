@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-12-2021 a las 09:19:15
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2021 a las 14:27:38
 *****
-Medidas preventivas contra el coví. Métanse encuerados a una posa de agua helada en la montaña.
-[Permalink](https://twitter.com/fernandeznorona/status/1471530372299063297) | 91 Me Gusta | 5 Retweets
+Es su hijo. Están igualitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1471607981733072897) | 38 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 21:35:34
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2021 a las 14:26:38
 *****
-RT @epigmenioibarra: AMLO se ha atado al mástil. Hará lo que con votos le ordenamos.Como salió del pueblo,al pueblo quiere cumplirle y al p…
-[Permalink](https://twitter.com/fernandeznorona/status/1471353288037523457) | 0 Me Gusta | 1,502 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1471607729785499650) | 21 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 16:11:25
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2021 a las 14:26:11
 *****
-La señora solo lee titulares. Así hizo su carrera política.
-[Permalink](https://twitter.com/fernandeznorona/status/1471271709118455816) | 204 Me Gusta | 55 Retweets
+¿Te molesta, @azucenau?
+[Permalink](https://twitter.com/fernandeznorona/status/1471607615540973569) | 48 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 16:10:03
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2021 a las 14:24:05
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1471271365219135494) | 47 Me Gusta | 11 Retweets
+@QuesaVerdadess @lopezobrador_ He ido.
+[Permalink](https://twitter.com/fernandeznorona/status/1471607086245048320) | 9 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2021 a las 16:09:06
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2021 a las 14:21:29
 *****
-RT @lopezobrador_: Gracias de todo corazón.
-[Permalink](https://twitter.com/fernandeznorona/status/1471271128517816326) | 0 Me Gusta | 10,417 Retweets
+RT @Revolucion3_0: 4T rescata paraíso que iba a ser un aeropuerto neoliberal: propone decretar 14 mil hectáreas del Lago de Texcoco como Ár…
+[Permalink](https://twitter.com/fernandeznorona/status/1471606434735353856) | 0 Me Gusta | 31 Retweets

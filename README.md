@@ -3,17 +3,17 @@
 **Fernández Noroña** (**@fernandeznorona**) • 16-12-2021 a las 14:27:38
 *****
 Es su hijo. Están igualitos.
-[Permalink](https://twitter.com/fernandeznorona/status/1471607981733072897) | 52 Me Gusta | 10 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1471607981733072897) | 54 Me Gusta | 10 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 16-12-2021 a las 14:26:38
 *****
 Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1471607729785499650) | 28 Me Gusta | 1 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1471607729785499650) | 29 Me Gusta | 1 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 16-12-2021 a las 14:26:11
 *****
 ¿Te molesta, @azucenau?
-[Permalink](https://twitter.com/fernandeznorona/status/1471607615540973569) | 62 Me Gusta | 11 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1471607615540973569) | 65 Me Gusta | 11 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 16-12-2021 a las 14:24:05
 *****

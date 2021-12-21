@@ -18,9 +18,9 @@
 **Fernández Noroña** (**@fernandeznorona**) • 19-12-2021 a las 19:23:46
 *****
 No es necesario hacer prueba y ninguna línea aérea debe cobrar la maleta de mano.
-[Permalink](https://twitter.com/fernandeznorona/status/1472769668205236225) | 42 Me Gusta | 12 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1472769668205236225) | 41 Me Gusta | 12 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 19-12-2021 a las 19:19:54
 *****
 RT @stedile_mst: VIVA SALVADOR ALLENDE! VIVA O CHILE!
-[Permalink](https://twitter.com/fernandeznorona/status/1472768695625826304) | 0 Me Gusta | 773 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1472768695625826304) | 0 Me Gusta | 779 Retweets

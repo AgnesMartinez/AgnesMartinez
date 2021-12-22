@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 14:02:36
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 19:49:56
 *****
-La candidatura será del movimiento. De @PartidoMorenaMx, @PTnacionalMX y @partidoverdemex. Considero un error medir por separado. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1473413622353256456) | 25 Me Gusta | 3 Retweets
+Besitos…con cubrebocas.
+[Permalink](https://twitter.com/fernandeznorona/status/1473501030272880640) | 56 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 13:49:39
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 19:49:28
 *****
-Ni se cancelarán. ¿Ustedes ya cancelaron sus reuniones de fin de año y sus reuniones familiares?
-[Permalink](https://twitter.com/fernandeznorona/status/1473410361386749956) | 36 Me Gusta | 4 Retweets
+RT @AldoCampuzanoR: En @MXelige sí lo medimos don @fernandeznorona y de hecho le va bien. Considérelo seriamente don @FedericoArreola
+[Permalink](https://twitter.com/fernandeznorona/status/1473500911418888195) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 13:48:29
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 19:48:01
 *****
-Puej ji y te dices médico. Eres un simple promotor de histeria.
-[Permalink](https://twitter.com/fernandeznorona/status/1473410067462508547) | 44 Me Gusta | 3 Retweets
+Cierto. Muchas gracias. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1473500549395931136) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 13:45:56
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 19:47:08
 *****
-Botijón, siempre defiendes lo indefendible. Pero te sobrestimas, ni a zopilote llegas, mucho menos a águila. Eres puro pájaro nalgón @CartonCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1473409426711363586) | 123 Me Gusta | 35 Retweets
+RT @rosendomarind: Dos millones de firmas más para la revocación. Suman ya, 6.8 millones de ciudadanos que quieren ejercicio de revocación…
+[Permalink](https://twitter.com/fernandeznorona/status/1473500326149996546) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 13:42:41
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 19:46:03
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1473408609195544577) | 72 Me Gusta | 10 Retweets
+Y sí, lindo Michoacán.
+[Permalink](https://twitter.com/fernandeznorona/status/1473500054090563584) | 47 Me Gusta | 5 Retweets

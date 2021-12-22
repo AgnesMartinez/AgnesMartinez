@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 19:49:56
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 09:37:07
 *****
-Besitos…con cubrebocas.
-[Permalink](https://twitter.com/fernandeznorona/status/1473501030272880640) | 68 Me Gusta | 8 Retweets
+Aquí tienen el remedio contra #omicron.
+[Permalink](https://twitter.com/fernandeznorona/status/1473709197904814095) | 28 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 19:49:28
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 09:32:45
 *****
-RT @AldoCampuzanoR: En @MXelige sí lo medimos don @fernandeznorona y de hecho le va bien. Considérelo seriamente don @FedericoArreola
-[Permalink](https://twitter.com/fernandeznorona/status/1473500911418888195) | 0 Me Gusta | 9 Retweets
+También me encontré con mi compañero el alcalde de Morelia, Alfonso Martínez. Le pediré que me mande una foto, pues yo no tomé.
+[Permalink](https://twitter.com/fernandeznorona/status/1473708098296721422) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 19:48:01
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 09:29:42
 *****
-Cierto. Muchas gracias. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1473500549395931136) | 28 Me Gusta | 3 Retweets
+Esta máscara es genial pero no está a la venta.
+[Permalink](https://twitter.com/fernandeznorona/status/1473707332781723661) | 24 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 19:47:08
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 09:28:23
 *****
-RT @rosendomarind: Dos millones de firmas más para la revocación. Suman ya, 6.8 millones de ciudadanos que quieren ejercicio de revocación…
-[Permalink](https://twitter.com/fernandeznorona/status/1473500326149996546) | 0 Me Gusta | 19 Retweets
+¿A quién se parece?
+[Permalink](https://twitter.com/fernandeznorona/status/1473706999682633732) | 18 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 19:46:03
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 08:28:21
 *****
-Y sí, lindo Michoacán.
-[Permalink](https://twitter.com/fernandeznorona/status/1473500054090563584) | 66 Me Gusta | 6 Retweets
+Uh, toda mi solidaridad. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1473691892835659778) | 20 Me Gusta | 1 Retweets

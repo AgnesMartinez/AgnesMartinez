@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 07:34:29
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 14:02:36
 *****
-Jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1473315945858965506) | 162 Me Gusta | 26 Retweets
+La candidatura será del movimiento. De @PartidoMorenaMx, @PTnacionalMX y @partidoverdemex. Considero un error medir por separado. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1473413622353256456) | 25 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 07:33:38
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 13:49:39
 *****
-¡Qué envidia!
-[Permalink](https://twitter.com/fernandeznorona/status/1473315732184313876) | 24 Me Gusta | 1 Retweets
+Ni se cancelarán. ¿Ustedes ya cancelaron sus reuniones de fin de año y sus reuniones familiares?
+[Permalink](https://twitter.com/fernandeznorona/status/1473410361386749956) | 36 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 07:33:01
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 13:48:29
 *****
-@BibiMonteroDR ¿Freidora de aire?
-[Permalink](https://twitter.com/fernandeznorona/status/1473315579339624449) | 5 Me Gusta | 0 Retweets
+Puej ji y te dices médico. Eres un simple promotor de histeria.
+[Permalink](https://twitter.com/fernandeznorona/status/1473410067462508547) | 44 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-12-2021 a las 13:35:47
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 13:45:56
 *****
-@magaribay2010 @MBarbosaMX Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1473044484724342792) | 0 Me Gusta | 0 Retweets
+Botijón, siempre defiendes lo indefendible. Pero te sobrestimas, ni a zopilote llegas, mucho menos a águila. Eres puro pájaro nalgón @CartonCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1473409426711363586) | 123 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-12-2021 a las 13:35:23
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2021 a las 13:42:41
 *****
-@DANTEMONTANO Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1473044383008186373) | 3 Me Gusta | 0 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1473408609195544577) | 72 Me Gusta | 10 Retweets

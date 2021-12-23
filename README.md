@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 09:37:07
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 15:19:42
 *****
-Aquí tienen el remedio contra #omicron.
-[Permalink](https://twitter.com/fernandeznorona/status/1473709197904814095) | 28 Me Gusta | 2 Retweets
+La bella Morelia.
+[Permalink](https://twitter.com/fernandeznorona/status/1473795412293267456) | 29 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 09:32:45
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 15:16:44
 *****
-También me encontré con mi compañero el alcalde de Morelia, Alfonso Martínez. Le pediré que me mande una foto, pues yo no tomé.
-[Permalink](https://twitter.com/fernandeznorona/status/1473708098296721422) | 20 Me Gusta | 2 Retweets
+Palacio Clavijero.
+[Permalink](https://twitter.com/fernandeznorona/status/1473794666621378563) | 16 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 09:29:42
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 15:11:56
 *****
-Esta máscara es genial pero no está a la venta.
-[Permalink](https://twitter.com/fernandeznorona/status/1473707332781723661) | 24 Me Gusta | 0 Retweets
+A ver si entienden los derechosos.
+[Permalink](https://twitter.com/fernandeznorona/status/1473793457663754240) | 40 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 09:28:23
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 12:02:20
 *****
-¿A quién se parece?
-[Permalink](https://twitter.com/fernandeznorona/status/1473706999682633732) | 18 Me Gusta | 0 Retweets
+Siempre ha sido igual @sergioaguayo.
+[Permalink](https://twitter.com/fernandeznorona/status/1473745742816813056) | 37 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 08:28:21
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 11:55:28
 *****
-Uh, toda mi solidaridad. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1473691892835659778) | 20 Me Gusta | 1 Retweets
+Fe de erratas: cuestioné.
+[Permalink](https://twitter.com/fernandeznorona/status/1473744012771307521) | 33 Me Gusta | 8 Retweets

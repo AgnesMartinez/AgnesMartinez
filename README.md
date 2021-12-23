@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 15:19:42
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 20:16:27
 *****
-La bella Morelia.
-[Permalink](https://twitter.com/fernandeznorona/status/1473795412293267456) | 29 Me Gusta | 0 Retweets
+RT @abrahamendieta: ¡Victoria! 
+
+
+La Suprema Corte de Justicia de la Nación ordena al INE realizar la revocación de mandato como ordena la l…
+[Permalink](https://twitter.com/fernandeznorona/status/1473870089636270083) | 0 Me Gusta | 1,744 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 15:16:44
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 20:15:46
+*****
+RT @Sergeluna_S: Acabamos de recibir notificación de la @SCJN: nos da la razón, concedieron la suspensión que solicitamos en contra del acu…
+[Permalink](https://twitter.com/fernandeznorona/status/1473869919041298436) | 0 Me Gusta | 830 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 20:15:22
+*****
+RT @NachoMierV: Se hizo el camino legal y la @SCJN ordena al @INEMexico cumplir con los tiempos establecidos en la Ley Federal de Revocació…
+[Permalink](https://twitter.com/fernandeznorona/status/1473869819250364417) | 0 Me Gusta | 146 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 20:15:08
+*****
+RT @jgnaredo: La SCJN echó abajo la suspensión de la revocación de mandato que impusieron @lorenzocordovav y sus secuaces en el INE.
+
+
+La re…
+[Permalink](https://twitter.com/fernandeznorona/status/1473869760400142339) | 0 Me Gusta | 743 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 20:10:25
 *****
 Palacio Clavijero.
-[Permalink](https://twitter.com/fernandeznorona/status/1473794666621378563) | 16 Me Gusta | 1 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 15:11:56
-*****
-A ver si entienden los derechosos.
-[Permalink](https://twitter.com/fernandeznorona/status/1473793457663754240) | 40 Me Gusta | 8 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 12:02:20
-*****
-Siempre ha sido igual @sergioaguayo.
-[Permalink](https://twitter.com/fernandeznorona/status/1473745742816813056) | 37 Me Gusta | 8 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2021 a las 11:55:28
-*****
-Fe de erratas: cuestioné.
-[Permalink](https://twitter.com/fernandeznorona/status/1473744012771307521) | 33 Me Gusta | 8 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1473868574255202306) | 58 Me Gusta | 4 Retweets

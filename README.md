@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-12-2021 a las 12:33:37
+**Fernández Noroña** (**@fernandeznorona**) • 23-12-2021 a las 20:58:53
 *****
-Ahí vamos saliendo de Morelia rumbo al D.F.
-[Permalink](https://twitter.com/fernandeznorona/status/1474116003986554883) | 53 Me Gusta | 4 Retweets
+Demasiadas imprecisiones en un solo comentario. @salomonj ganó la encuesta en Oaxaca y, exigirle al @INEMexico cumpla con su compromiso constitucional no es acoso. Fuerte polémica hay ciertamente por el encarcelamiento de Del Río Virgen.
+[Permalink](https://twitter.com/fernandeznorona/status/1474243158678589441) | 26 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-12-2021 a las 11:29:11
+**Fernández Noroña** (**@fernandeznorona**) • 23-12-2021 a las 20:56:31
 *****
-Paso a hacer una compra de pánico al Instituto del Artesano Michoacano y saldré rumbo al D.F. desde Morelia.
-[Permalink](https://twitter.com/fernandeznorona/status/1474099785745448968) | 77 Me Gusta | 6 Retweets
+@ChaveronNorma @RicardoMonrealA Senadores.
+[Permalink](https://twitter.com/fernandeznorona/status/1474242559811727387) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-12-2021 a las 10:38:34
+**Fernández Noroña** (**@fernandeznorona**) • 23-12-2021 a las 20:51:20
 *****
-“… a su lado ruge la tempestad de la envidia que, impotente para producir el bien, es por desgracia harto poderosa para sembrar la muerte con su hálito de destrucción.” Eduardo Ruiz.
-[Permalink](https://twitter.com/fernandeznorona/status/1474087050081193994) | 33 Me Gusta | 7 Retweets
+RT @jorgemoralesoax: La luna sobre el río Misisipi.
+Nueva Orleans, Louisiana
+[Permalink](https://twitter.com/fernandeznorona/status/1474241259485212684) | 0 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-12-2021 a las 10:37:05
+**Fernández Noroña** (**@fernandeznorona**) • 23-12-2021 a las 20:51:09
 *****
-“El hombre que por su ciencia se consagra a servir a la humanidad, aunque extraño a los horrores de la guerra, suele ser víctima de las pasiones políticas, solo porque proclama sus ideas a la sombra de una bandera bienhechora…”. Eduardo Ruiz
-[Permalink](https://twitter.com/fernandeznorona/status/1474086674296619017) | 29 Me Gusta | 4 Retweets
+Es penoso que critiques a @Sergeluna_S y no lo cites para que pueda contestarte y, más penoso es que defiendas a una pandilla de rufianes y extorsionadores. @INEMexico, @lorenzocordovav, @CiroMurayamaINE.
+[Permalink](https://twitter.com/fernandeznorona/status/1474241212303486999) | 70 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-12-2021 a las 08:40:43
+**Fernández Noroña** (**@fernandeznorona**) • 23-12-2021 a las 20:41:55
 *****
-Siguen recibiendo, ahora de privados. Claro, no en la misma cantidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1474057390576263168) | 36 Me Gusta | 5 Retweets
+Ya estamos en Pueblo quieto, aunque mañana regresaré al D.F.
+[Permalink](https://twitter.com/fernandeznorona/status/1474238886062743553) | 78 Me Gusta | 2 Retweets

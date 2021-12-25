@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 18:00:02
+*****
+Voy desde pueblo quieto rumbo al D.F.
+[Permalink](https://twitter.com/fernandeznorona/status/1474560535521898496) | 48 Me Gusta | 1 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 17:28:10
+*****
+Casi 25,000 en Facebook. Ahí el testimonio para que no salgan a intrigar algunos.
+[Permalink](https://twitter.com/fernandeznorona/status/1474552516033626113) | 51 Me Gusta | 8 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 17:27:07
+*****
+24,982 en Facebook y, casi 23000 en YouTube. Pero mi teléfono me hizo una trastada y no sacó la fotografía en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1474552251754684416) | 60 Me Gusta | 7 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 15:44:11
 *****
 Toda mi solidaridad con @JimenezEspriu por el fallecimiento de su esposa, Elisa Margarita Gutiérrez. Mis condolencias a familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1474526347334762498) | 32 Me Gusta | 5 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1474526347334762498) | 81 Me Gusta | 17 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 15:34:29
 *****
 No necesito ni oírlo, sólo con ver su lenguaje corporal está claro que necesita terapia urgentemente.
-[Permalink](https://twitter.com/fernandeznorona/status/1474523905905803264) | 19 Me Gusta | 1 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 15:33:00
-*****
-No hay ningún planteamiento sobre la desaparición de poderes. Por otra parte, si tú estuvieras preso acusado de asesinato, no serías tan ecuánime y lo menos que esperarías, es que quienes creen en tu inocencia, te respalden.
-[Permalink](https://twitter.com/fernandeznorona/status/1474523534923862020) | 10 Me Gusta | 2 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 15:06:41
-*****
-El tema huele mal. Percibo que es más complejo de lo que quieren reconocer y ese maniqueísmo de buenos y malos sin matices, no ayuda en nada al movimiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1474516911165685764) | 17 Me Gusta | 5 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 14:52:46
-*****
-Así o mas irresponsables en su “información”.
-[Permalink](https://twitter.com/fernandeznorona/status/1474513411023196164) | 36 Me Gusta | 8 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1474523905905803264) | 47 Me Gusta | 7 Retweets

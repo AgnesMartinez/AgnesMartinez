@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 18:41:12
+**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 07:05:57
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1474933285235081216) | 27 Me Gusta | 3 Retweets
+Uh, esa foto es de una de las protestas de todos los días primero contra la usurpación de Calderón durante su gobierno de facto. ¿Verdad #tomandanteborolas alias @FelipeCalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1475120704668504070) | 68 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 18:40:47
+**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 07:02:01
 *****
-RT @DAVlDRomero: Es en Holanda, donde tres policías con garrotes y dos perros agreden a un paseante "extremadamente peligroso", mientras ta…
-[Permalink](https://twitter.com/fernandeznorona/status/1474933179630997506) | 0 Me Gusta | 974 Retweets
+RT @americanchairo: Hoy me percato de la verdadera division en nuestro movimiento. Quiero proponerles a todos que promovamos la unidad. Evi…
+[Permalink](https://twitter.com/fernandeznorona/status/1475119718163963904) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 18:40:07
+**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 07:01:12
 *****
-Ahí te hablan #tomandanteborolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1474933010675941379) | 27 Me Gusta | 8 Retweets
+Por cierto, pon el comentario completo, en su contexto.
+[Permalink](https://twitter.com/fernandeznorona/status/1475119510285959171) | 26 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 18:38:48
+**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 06:59:40
 *****
-@again_xavier Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1474932678537486336) | 4 Me Gusta | 0 Retweets
+Hay lambiscones, no hay duda de ello. ¿Eres de ellos? Yo soy su apoyo absoluto, compañero leal, pero nunca lambiscón o queda bien. “ Lo que usted diga señor presidente”, eso nunca.
+[Permalink](https://twitter.com/fernandeznorona/status/1475119125701689347) | 37 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 18:10:24
+**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 06:55:55
 *****
-Ahí te hablan #tomandanteborolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1474925534882713602) | 71 Me Gusta | 33 Retweets
+Codo a codo, literal.
+[Permalink](https://twitter.com/fernandeznorona/status/1475118180951638020) | 67 Me Gusta | 10 Retweets

@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 23:19:19
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 11:32:42
 *****
-RT @Julianatilano: En el centro de Morelia está la Guardia Nacional regalando comida y bebida caliente a personas en situación de calle y a…
-[Permalink](https://twitter.com/fernandeznorona/status/1474640888383090693) | 0 Me Gusta | 296 Retweets
+Puej ji, pero eso no quita lo desagradable que es esa tarea de lodo de quienes se dicen compañeros.
+[Permalink](https://twitter.com/fernandeznorona/status/1474825450249756680) | 49 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 23:12:04
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 11:28:29
 *****
-@yarid_2 Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1474639060169801728) | 0 Me Gusta | 0 Retweets
+RT @Marilu86053: @Monix139 @fernandeznorona Jejeje, listo bonita. 😎
+\#YoVoyConNoroña 😊
+[Permalink](https://twitter.com/fernandeznorona/status/1474824388532916226) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 23:07:32
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 10:25:52
 *****
-No lo hay. @DanteDelgado es un senador, es opositor y es su postura. ¿Eso qué tiene que ver con @RicardoMonrealA y la fracción mayoritaria del @senadomexicano de @PartidoMorenaMx? Se parecen a la derecha en lo sesgados e intrigantes.
-[Permalink](https://twitter.com/fernandeznorona/status/1474637920044781570) | 54 Me Gusta | 13 Retweets
+Mejor me voy a desayunar.
+[Permalink](https://twitter.com/fernandeznorona/status/1474808630264442893) | 82 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 18:00:02
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 10:25:34
 *****
-Voy desde pueblo quieto rumbo al D.F.
-[Permalink](https://twitter.com/fernandeznorona/status/1474560535521898496) | 69 Me Gusta | 2 Retweets
+¡Qué tal en nivel de intriga! Andan desesperados Se les olvida el pequeño detalle que décadas de lucha me definen así como mi lealtad al movimiento. Ahora hasta que le diga compañero presidente al compañero presidente les arde. Buen ambiente navideño de quienes se dicen creyentes
+[Permalink](https://twitter.com/fernandeznorona/status/1474808552279711750) | 71 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2021 a las 17:28:10
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 10:19:03
 *****
-Casi 25,000 en Facebook. Ahí el testimonio para que no salgan a intrigar algunos.
-[Permalink](https://twitter.com/fernandeznorona/status/1474552516033626113) | 74 Me Gusta | 15 Retweets
+@Marilu86053 Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1474806914693439492) | 2 Me Gusta | 0 Retweets

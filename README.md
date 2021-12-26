@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 11:32:42
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 18:41:12
 *****
-Puej ji, pero eso no quita lo desagradable que es esa tarea de lodo de quienes se dicen compañeros.
-[Permalink](https://twitter.com/fernandeznorona/status/1474825450249756680) | 49 Me Gusta | 12 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1474933285235081216) | 19 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 11:28:29
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 18:40:47
 *****
-RT @Marilu86053: @Monix139 @fernandeznorona Jejeje, listo bonita. 😎
-\#YoVoyConNoroña 😊
-[Permalink](https://twitter.com/fernandeznorona/status/1474824388532916226) | 0 Me Gusta | 12 Retweets
+RT @DAVlDRomero: Es en Holanda, donde tres policías con garrotes y dos perros agreden a un paseante "extremadamente peligroso", mientras ta…
+[Permalink](https://twitter.com/fernandeznorona/status/1474933179630997506) | 0 Me Gusta | 855 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 10:25:52
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 18:40:07
 *****
-Mejor me voy a desayunar.
-[Permalink](https://twitter.com/fernandeznorona/status/1474808630264442893) | 82 Me Gusta | 2 Retweets
+Ahí te hablan #tomandanteborolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1474933010675941379) | 23 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 10:25:34
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 18:38:48
 *****
-¡Qué tal en nivel de intriga! Andan desesperados Se les olvida el pequeño detalle que décadas de lucha me definen así como mi lealtad al movimiento. Ahora hasta que le diga compañero presidente al compañero presidente les arde. Buen ambiente navideño de quienes se dicen creyentes
-[Permalink](https://twitter.com/fernandeznorona/status/1474808552279711750) | 71 Me Gusta | 14 Retweets
+@again_xavier Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1474932678537486336) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 10:19:03
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2021 a las 18:10:24
 *****
-@Marilu86053 Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1474806914693439492) | 2 Me Gusta | 0 Retweets
+Ahí te hablan #tomandanteborolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1474925534882713602) | 59 Me Gusta | 24 Retweets

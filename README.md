@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 15:06:58
+**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 20:35:38
 *****
-Es sin duda uno de los mejores libros que haya leído en la vida. Es de lectura obligadísims para cualquiera que quiera mejorar un poco este mundo. Ni que decir que un racista o un clasista debería leerlo. ¡Larga vida a George Orwell!
-[Permalink](https://twitter.com/fernandeznorona/status/1475241757180895235) | 63 Me Gusta | 12 Retweets
+Hay quienes creen que me va a la vida por ser candidato. Están perdidos. Me va la vida intentando ser congruente.
+[Permalink](https://twitter.com/fernandeznorona/status/1475324469614981122) | 209 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 14:55:45
+**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 20:16:02
 *****
-“Apartado por completo de las mujeres, el vagabundo se siente relegado al rango de los tullido y los locos. Ninguna humillación podría ser más dañina para su dignidad”. George Orwell.
-[Permalink](https://twitter.com/fernandeznorona/status/1475238937182580736) | 32 Me Gusta | 3 Retweets
+RT @monerohernandez: El viernes 24 de diciembre cumplió 87 años el gran filósofo e historiador Enrique Dussel. Un hombre brillante: https:/…
+[Permalink](https://twitter.com/fernandeznorona/status/1475319537608364033) | 0 Me Gusta | 145 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 14:54:31
+**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 20:13:58
 *****
-“Lo malo de la pobreza no es tanto que haga sufrir al hombre, sino que lo corrompe física y espiritualmente. Y no hay duda que la privación sexual contribuye a ese proceso de corrupción”.  George Orwell hablando sobre la mendicidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1475238625344372736) | 24 Me Gusta | 1 Retweets
+Espléndida la serie de cinco videos de m charla que sacaron @LJyDMX sobre el tema @RicardoMonrealA y Veracruz. Muchas gracias por su trabajo.
+[Permalink](https://twitter.com/fernandeznorona/status/1475319017145524226) | 53 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 14:18:47
+**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 19:57:51
 *****
-“Quien recibe alguna caridad odia casi siempre a su benefactor; es una característica inamovible de la naturaleza humana,…”. George Orwell.
-[Permalink](https://twitter.com/fernandeznorona/status/1475229631578001408) | 29 Me Gusta | 4 Retweets
+Está @Ascension528Hz haciendo todo por lograr que viva y pueda volar libre.
+[Permalink](https://twitter.com/fernandeznorona/status/1475314960586743818) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 14:12:17
+**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 18:55:31
 *****
-“… porque quienes verdaderamente merecen nuestra compasión son los que han estado abajo desde siempre y se enfrentan a la pobreza desanimados y sin recursos”.  George Orwell.
-[Permalink](https://twitter.com/fernandeznorona/status/1475227996575391744) | 42 Me Gusta | 5 Retweets
+No me ofendiste. Eso pasa en intercambios intensos. Te reconozco y te valoro desde siempre. Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1475299273860427779) | 50 Me Gusta | 5 Retweets

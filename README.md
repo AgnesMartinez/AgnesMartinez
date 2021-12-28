@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-12-2021 a las 09:56:52
+**Fernández Noroña** (**@fernandeznorona**) • 27-12-2021 a las 15:38:40
 *****
-Lo terminé ayer en la noche. Bastante bueno. Me pareció una alegoría de lo que le sucedió a Alemania en la Segunda Guerra Mundial.
-[Permalink](https://twitter.com/fernandeznorona/status/1475526106757402625) | 17 Me Gusta | 2 Retweets
+RT @GobiernoMX: Los precios de la gasolina no han aumentado porque hicimos el compromiso de no incrementar su costo.
+
+
+ No te dejes engañar…
+[Permalink](https://twitter.com/fernandeznorona/status/1475612123539677186) | 0 Me Gusta | 230 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 20:35:38
+**Fernández Noroña** (**@fernandeznorona**) • 27-12-2021 a las 15:38:24
 *****
-Hay quienes creen que me va a la vida por ser candidato. Están perdidos. Me va la vida intentando ser congruente.
-[Permalink](https://twitter.com/fernandeznorona/status/1475324469614981122) | 533 Me Gusta | 61 Retweets
+Yo no estoy contra @CuitlahuacGJ. Es un compañero valioso el gobernador de Veracruz.
+[Permalink](https://twitter.com/fernandeznorona/status/1475612055159848961) | 21 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 20:16:02
+**Fernández Noroña** (**@fernandeznorona**) • 27-12-2021 a las 15:37:45
 *****
-RT @monerohernandez: El viernes 24 de diciembre cumplió 87 años el gran filósofo e historiador Enrique Dussel. Un hombre brillante: https:/…
-[Permalink](https://twitter.com/fernandeznorona/status/1475319537608364033) | 0 Me Gusta | 316 Retweets
+Naa, reproduce mi respuesta a mi compañero y amigo @flaviososavilla. Les ganaremos Oaxaca, no tengo la menor duda.
+[Permalink](https://twitter.com/fernandeznorona/status/1475611894824292358) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 20:13:58
+**Fernández Noroña** (**@fernandeznorona**) • 27-12-2021 a las 15:36:12
 *****
-Espléndida la serie de cinco videos de m charla que sacaron @LJyDMX sobre el tema @RicardoMonrealA y Veracruz. Muchas gracias por su trabajo.
-[Permalink](https://twitter.com/fernandeznorona/status/1475319017145524226) | 88 Me Gusta | 32 Retweets
+¿Es divertido, contundente o solo quieres parecer simpático?
+[Permalink](https://twitter.com/fernandeznorona/status/1475611504212955137) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-12-2021 a las 19:57:51
+**Fernández Noroña** (**@fernandeznorona**) • 27-12-2021 a las 15:35:08
 *****
-Está @Ascension528Hz haciendo todo por lograr que viva y pueda volar libre.
-[Permalink](https://twitter.com/fernandeznorona/status/1475314960586743818) | 29 Me Gusta | 3 Retweets
+Por otra parte, puedes decirme en orden alfabético o como te vengan a la mente, las similitudes que tengo con @RicardoMonrealA. No me ofendes, pero tengo interés de conocer tu brillante análisis.
+[Permalink](https://twitter.com/fernandeznorona/status/1475611236071088133) | 10 Me Gusta | 0 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 20:00:21
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 10:00:29
 *****
-Es insustancial el precio de la vajilla presidencial. No se compró para ese desayuno. Ahí estaba cuando llegó el compañero presidente y ahí seguirá cuando se vaya.
-[Permalink](https://twitter.com/fernandeznorona/status/1476040366272880640) | 121 Me Gusta | 30 Retweets
+No importa cuando lo publiques. A quien su rabia lo obnubila es a otro. Deberían mostrarte un espejo @PedroFerriz
+[Permalink](https://twitter.com/fernandeznorona/status/1476251794003144721) | 12 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 19:41:55
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 09:58:44
 *****
-Me encanta. ¿Tu opinión sobre la brutal agresión a la Dip. Margarita García por integrantes de la policía capitalina?
-[Permalink](https://twitter.com/fernandeznorona/status/1476035727905345538) | 28 Me Gusta | 8 Retweets
+Quienes están reprobados amplia y públicamente son ustedes, facciosos que utilizan al @INEMexico para combatir a nuestro gobierno. Será el Poder Judicial el que determine si incurrieron en responsabilidades penales con su sabotaje a la consulta. @CiroMurayamaINE.
+[Permalink](https://twitter.com/fernandeznorona/status/1476251354188419073) | 10 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 19:37:16
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 09:54:48
 *****
-Entiendo que si lo publicaste en esta fecha es porque es mentira. Pero eso es común en ti, la mentira los 365 días del año, @Mzavalagc.
-[Permalink](https://twitter.com/fernandeznorona/status/1476034556515930121) | 70 Me Gusta | 18 Retweets
+Los derechosos andan promoviendo la desobediencia civil con un discurso mío, de la época en que desgobernaba @EPN. ¿Quiero ver que lo hagan y corran el riesgo de ir a la cárcel por no pagar impuestos?
+[Permalink](https://twitter.com/fernandeznorona/status/1476250362197819412) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 19:36:10
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 09:53:15
 *****
-El que miente eres tú. Prueba tu aserto.
-[Permalink](https://twitter.com/fernandeznorona/status/1476034279733821441) | 26 Me Gusta | 6 Retweets
+Intrigante, ¿por qué no pones la fecha de esa  intervención? El presidente era @EPN. Por otra parte, tu desprecio hacia quienes sufren en situación de calle, te pinta de cuerpo completo.
+[Permalink](https://twitter.com/fernandeznorona/status/1476249973608140801) | 21 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 19:34:55
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 09:01:46
 *****
-Pensé: eso se parece a mi casa, ¡es mi casa! Los demandaré, jejeje. Porque además ya los acomode mejor, en el mismo sitio. Bueno, así mejor, mejor, no es tan exacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1476033965655920640) | 46 Me Gusta | 7 Retweets
+En casa.
+[Permalink](https://twitter.com/fernandeznorona/status/1476237014785789962) | 43 Me Gusta | 2 Retweets

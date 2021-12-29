@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 11:12:07
+**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 20:00:21
 *****
-Igual, que tengamos un año espléndido, lleno de salud, de retos y de logros producto de nuestro esfuerzo. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1475907433260208129) | 32 Me Gusta | 1 Retweets
+Es insustancial el precio de la vajilla presidencial. No se compró para ese desayuno. Ahí estaba cuando llegó el compañero presidente y ahí seguirá cuando se vaya.
+[Permalink](https://twitter.com/fernandeznorona/status/1476040366272880640) | 99 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 11:11:15
+**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 19:41:55
 *****
-Zzzzzzzzz.
-[Permalink](https://twitter.com/fernandeznorona/status/1475907215261241344) | 19 Me Gusta | 1 Retweets
+Me encanta. ¿Tu opinión sobre la brutal agresión a la Dip. Margarita García por integrantes de la policía capitalina?
+[Permalink](https://twitter.com/fernandeznorona/status/1476035727905345538) | 23 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 11:10:09
+**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 19:37:16
 *****
-Me da gusto que hayas amanecido bien de salud, aunque sigas intrigando.
-[Permalink](https://twitter.com/fernandeznorona/status/1475906939166986245) | 29 Me Gusta | 3 Retweets
+Entiendo que si lo publicaste en esta fecha es porque es mentira. Pero eso es común en ti, la mentira los 365 días del año, @Mzavalagc.
+[Permalink](https://twitter.com/fernandeznorona/status/1476034556515930121) | 58 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 11:09:10
+**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 19:36:10
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1475906687978508289) | 38 Me Gusta | 3 Retweets
+El que miente eres tú. Prueba tu aserto.
+[Permalink](https://twitter.com/fernandeznorona/status/1476034279733821441) | 22 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 11:05:41
+**Fernández Noroña** (**@fernandeznorona**) • 28-12-2021 a las 19:34:55
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1475905812576944130) | 18 Me Gusta | 1 Retweets
+Pensé: eso se parece a mi casa, ¡es mi casa! Los demandaré, jejeje. Porque además ya los acomode mejor, en el mismo sitio. Bueno, así mejor, mejor, no es tan exacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1476033965655920640) | 33 Me Gusta | 2 Retweets

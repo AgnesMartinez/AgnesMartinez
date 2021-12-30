@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 10:00:29
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 14:06:21
 *****
-No importa cuando lo publiques. A quien su rabia lo obnubila es a otro. Deberían mostrarte un espejo @PedroFerriz
-[Permalink](https://twitter.com/fernandeznorona/status/1476251794003144721) | 12 Me Gusta | 3 Retweets
+Grandes, medianos, chicos y de todo tipo. Pero yo no cocinaré nunca, así que lo asumo como un mal necesario.
+[Permalink](https://twitter.com/fernandeznorona/status/1476313665968263170) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 09:58:44
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 14:05:01
 *****
-Quienes están reprobados amplia y públicamente son ustedes, facciosos que utilizan al @INEMexico para combatir a nuestro gobierno. Será el Poder Judicial el que determine si incurrieron en responsabilidades penales con su sabotaje a la consulta. @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1476251354188419073) | 10 Me Gusta | 3 Retweets
+¡Eso chingao!
+[Permalink](https://twitter.com/fernandeznorona/status/1476313333385109508) | 31 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 09:54:48
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 14:04:07
 *****
-Los derechosos andan promoviendo la desobediencia civil con un discurso mío, de la época en que desgobernaba @EPN. ¿Quiero ver que lo hagan y corran el riesgo de ir a la cárcel por no pagar impuestos?
-[Permalink](https://twitter.com/fernandeznorona/status/1476250362197819412) | 20 Me Gusta | 2 Retweets
+Tu desvergüenza es inconmensurable. Boicoteas las consultas, combates a un gobierno democráticamente elegido; atacas a la coalición respaldada por la mayoría del pueblo y usas el erario como tu caja chica. Deleznable tu actuar @lorenzocordovav. #traidoralademocracia.
+[Permalink](https://twitter.com/fernandeznorona/status/1476313104745222154) | 135 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 09:53:15
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 14:01:06
 *****
-Intrigante, ¿por qué no pones la fecha de esa  intervención? El presidente era @EPN. Por otra parte, tu desprecio hacia quienes sufren en situación de calle, te pinta de cuerpo completo.
-[Permalink](https://twitter.com/fernandeznorona/status/1476249973608140801) | 21 Me Gusta | 3 Retweets
+RT @JesusRCuevas: Votar en el Congreso en contra de la #ReformaEléctrica será equivalente a votar a favor de que continúe el saqueo de nues…
+[Permalink](https://twitter.com/fernandeznorona/status/1476312345752350724) | 0 Me Gusta | 211 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 09:01:46
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 13:58:29
 *****
-En casa.
-[Permalink](https://twitter.com/fernandeznorona/status/1476237014785789962) | 43 Me Gusta | 2 Retweets
+O a divertirse con la música y el ambiente “opresivo” de Cuba.
+[Permalink](https://twitter.com/fernandeznorona/status/1476311689154936836) | 17 Me Gusta | 1 Retweets

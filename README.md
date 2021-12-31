@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 20:15:55
+**Fernández Noroña** (**@fernandeznorona**) • 30-12-2021 a las 15:49:54
 *****
-Esa es una discusión un poco fuerte.
-[Permalink](https://twitter.com/fernandeznorona/status/1476406671517835265) | 30 Me Gusta | 3 Retweets
+RT @hmbrhrmg: Este fue el oficial que me agredió físicamente y verbalmente. 
+@MunicipioAgs @SSPMAgs
+[Permalink](https://twitter.com/fernandeznorona/status/1476702114227404801) | 0 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 20:14:37
+**Fernández Noroña** (**@fernandeznorona**) • 30-12-2021 a las 15:49:49
 *****
-Muy bien. Hasta pronto.
-[Permalink](https://twitter.com/fernandeznorona/status/1476406346375438343) | 18 Me Gusta | 3 Retweets
+RT @hmbrhrmg: ⚠️ Acabo de sufrir abuso de poder, por parte de la policía municipal del PANISTA @LeoMontanezC. Los oficiales de @SSPMAgs pri…
+[Permalink](https://twitter.com/fernandeznorona/status/1476702093750767617) | 0 Me Gusta | 64 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 20:12:52
+**Fernández Noroña** (**@fernandeznorona**) • 30-12-2021 a las 15:39:07
 *****
-Xacto. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1476405902173523973) | 21 Me Gusta | 2 Retweets
+“… nos creíamos grandes, porque no media nuestras tallas el ministro tesorero, sino el verdugo…”. Guillermo Prieto sobre los liberales que ciertamente eran unos gigantes. Estamos hablando del año de 1858.
+[Permalink](https://twitter.com/fernandeznorona/status/1476699402140110850) | 13 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 20:10:28
+**Fernández Noroña** (**@fernandeznorona**) • 30-12-2021 a las 15:18:01
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1476405299913400324) | 41 Me Gusta | 9 Retweets
+RT @ManuelGarciaES: Acostúmbrense
+No es letal
+No hay autopsia no hay ciencia
+Abunda la manipulación
+[Permalink](https://twitter.com/fernandeznorona/status/1476694088527355910) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2021 a las 20:09:14
+**Fernández Noroña** (**@fernandeznorona**) • 30-12-2021 a las 15:16:29
 *****
-No sufra, usted coma con placer y sin culpa alguna, que comer es uno de los grandes placeres de la vida.
-[Permalink](https://twitter.com/fernandeznorona/status/1476404990549934081) | 30 Me Gusta | 7 Retweets
+¡Do babes! Pensé que era un meme.
+[Permalink](https://twitter.com/fernandeznorona/status/1476693706430427149) | 24 Me Gusta | 2 Retweets

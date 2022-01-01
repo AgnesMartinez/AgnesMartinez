@@ -1,33 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 14:38:55
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 21:13:55
 *****
-Veo una fortísima campaña de golpeteo a @salomonj. La paridad de género se cumple a cabalidad, hay tres candidaturas de mujeres y tres de hombres. En ningún lado se establece que para que haya paridad, en Oaxaca debe ir mujer.
-[Permalink](https://twitter.com/fernandeznorona/status/1477046639940493313) | 39 Me Gusta | 8 Retweets
+Ya vino Tlaloc, nuestro tlacuache. Está echándose su cena de Año Nuevo.
+[Permalink](https://twitter.com/fernandeznorona/status/1477146044664369159) | 106 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 14:33:29
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 20:50:19
 *****
-RT @nssoaxaca: #NssxMinuto
-Nancy; seis años nuevos sin ti. 
-@VocesDLAusencia
-@Fridaguerrera
-@Zona_Roja_Oax
-@lajornadaonline
-@Reforma
-@ElFin…
-[Permalink](https://twitter.com/fernandeznorona/status/1477045270957465601) | 0 Me Gusta | 12 Retweets
+Una proeza.
+[Permalink](https://twitter.com/fernandeznorona/status/1477140102988107779) | 38 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 14:30:23
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 20:50:05
 *****
-¡Y no le basta, quiere más!
-[Permalink](https://twitter.com/fernandeznorona/status/1477044491311800324) | 61 Me Gusta | 17 Retweets
+Abrazote. Quizás sólo es que te has exigido mucho este año y encima, te aburres algo en ese “tour”.
+[Permalink](https://twitter.com/fernandeznorona/status/1477140047430311939) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 14:29:53
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 19:45:02
 *****
-RT @KyleSkynet: Jajajajajajaja
-[Permalink](https://twitter.com/fernandeznorona/status/1477044366111817728) | 0 Me Gusta | 12 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1477123673949720576) | 22 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 14:29:04
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 19:36:08
 *****
-No se retirará, hay que retirarlo.
-[Permalink](https://twitter.com/fernandeznorona/status/1477044160150614016) | 39 Me Gusta | 8 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1477121436229722112) | 33 Me Gusta | 1 Retweets

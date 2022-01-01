@@ -1,27 +1,33 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2021 a las 20:40:53
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 14:38:55
 *****
-RT @radiomarginal: Maratón Noroña - Fuerza Y Honor
-[Permalink](https://twitter.com/fernandeznorona/status/1476775342391975938) | 0 Me Gusta | 30 Retweets
+Veo una fortísima campaña de golpeteo a @salomonj. La paridad de género se cumple a cabalidad, hay tres candidaturas de mujeres y tres de hombres. En ningún lado se establece que para que haya paridad, en Oaxaca debe ir mujer.
+[Permalink](https://twitter.com/fernandeznorona/status/1477046639940493313) | 39 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2021 a las 17:23:15
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 14:33:29
 *****
-22,684 en Facebook y, 14,293 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1476725608625414148) | 62 Me Gusta | 6 Retweets
+RT @nssoaxaca: #NssxMinuto
+Nancy; seis años nuevos sin ti. 
+@VocesDLAusencia
+@Fridaguerrera
+@Zona_Roja_Oax
+@lajornadaonline
+@Reforma
+@ElFin…
+[Permalink](https://twitter.com/fernandeznorona/status/1477045270957465601) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2021 a las 15:49:54
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 14:30:23
 *****
-RT @hmbrhrmg: Este fue el oficial que me agredió físicamente y verbalmente. 
-@MunicipioAgs @SSPMAgs
-[Permalink](https://twitter.com/fernandeznorona/status/1476702114227404801) | 0 Me Gusta | 117 Retweets
+¡Y no le basta, quiere más!
+[Permalink](https://twitter.com/fernandeznorona/status/1477044491311800324) | 61 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2021 a las 15:49:49
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 14:29:53
 *****
-RT @hmbrhrmg: ⚠️ Acabo de sufrir abuso de poder, por parte de la policía municipal del PANISTA @LeoMontanezC. Los oficiales de @SSPMAgs pri…
-[Permalink](https://twitter.com/fernandeznorona/status/1476702093750767617) | 0 Me Gusta | 313 Retweets
+RT @KyleSkynet: Jajajajajajaja
+[Permalink](https://twitter.com/fernandeznorona/status/1477044366111817728) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2021 a las 15:39:07
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 14:29:04
 *****
-“… nos creíamos grandes, porque no media nuestras tallas el ministro tesorero, sino el verdugo…”. Guillermo Prieto sobre los liberales que ciertamente eran unos gigantes. Estamos hablando del año de 1858.
-[Permalink](https://twitter.com/fernandeznorona/status/1476699402140110850) | 40 Me Gusta | 9 Retweets
+No se retirará, hay que retirarlo.
+[Permalink](https://twitter.com/fernandeznorona/status/1477044160150614016) | 39 Me Gusta | 8 Retweets

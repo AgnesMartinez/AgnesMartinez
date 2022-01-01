@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 22:51:12
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 09:10:26
 *****
-
-
-[Permalink](https://twitter.com/fernandeznorona/status/1477170526539943940) | 462 Me Gusta | 31 Retweets
+“París y Londres sin blanca”, George Orwell. “Las inseparables” Simona de Beauvoir; “Naufragios del Corazón” de Benoîte Groult y, “Un tiempo en el purgatorio” de Dominick Dunne.
+[Permalink](https://twitter.com/fernandeznorona/status/1477326358950858754) | 30 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 21:13:55
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 09:02:30
 *****
-Ya vino Tlaloc, nuestro tlacuache. Está echándose su cena de Año Nuevo.
-[Permalink](https://twitter.com/fernandeznorona/status/1477146044664369159) | 206 Me Gusta | 15 Retweets
+RT @Matador08640286: 😎
+[Permalink](https://twitter.com/fernandeznorona/status/1477324363972153346) | 0 Me Gusta | 337 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 20:50:19
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 08:52:44
 *****
-Una proeza.
-[Permalink](https://twitter.com/fernandeznorona/status/1477140102988107779) | 54 Me Gusta | 3 Retweets
+Buen consejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1477321908332937222) | 11 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 20:50:05
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 08:51:44
 *****
-Abrazote. Quizás sólo es que te has exigido mucho este año y encima, te aburres algo en ese “tour”.
-[Permalink](https://twitter.com/fernandeznorona/status/1477140047430311939) | 15 Me Gusta | 0 Retweets
+@gus_balboa Haiga.
+[Permalink](https://twitter.com/fernandeznorona/status/1477321653826818055) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2021 a las 19:45:02
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 08:51:15
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1477123673949720576) | 30 Me Gusta | 0 Retweets
+@micuentamedica @EvaMont30455776 Arriba.
+[Permalink](https://twitter.com/fernandeznorona/status/1477321532477222913) | 2 Me Gusta | 0 Retweets

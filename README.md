@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 09:10:26
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 15:49:12
 *****
-“París y Londres sin blanca”, George Orwell. “Las inseparables” Simona de Beauvoir; “Naufragios del Corazón” de Benoîte Groult y, “Un tiempo en el purgatorio” de Dominick Dunne.
-[Permalink](https://twitter.com/fernandeznorona/status/1477326358950858754) | 30 Me Gusta | 0 Retweets
+De acuerdo. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1477426712778620928) | 13 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 09:02:30
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 15:48:01
 *****
-RT @Matador08640286: 😎
-[Permalink](https://twitter.com/fernandeznorona/status/1477324363972153346) | 0 Me Gusta | 337 Retweets
+Pero no tienes redaños. NUNCA te arriesgarías a ir a la cárcel por no pagar impuestos. Esfúmate.
+[Permalink](https://twitter.com/fernandeznorona/status/1477426417835163648) | 19 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 08:52:44
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 15:40:04
 *****
-Buen consejo.
-[Permalink](https://twitter.com/fernandeznorona/status/1477321908332937222) | 11 Me Gusta | 0 Retweets
+La humanidad se salva.
+[Permalink](https://twitter.com/fernandeznorona/status/1477424413775740930) | 34 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 08:51:44
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 15:10:41
 *****
-@gus_balboa Haiga.
-[Permalink](https://twitter.com/fernandeznorona/status/1477321653826818055) | 4 Me Gusta | 0 Retweets
+RT @Nubia_SCG: Hombres como AMLO lo que menos ocupan, son estatuas.
+
+
+Dejemos esas prácticas para quienes gustan de la lambisconería, el pre…
+[Permalink](https://twitter.com/fernandeznorona/status/1477417021247832077) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 08:51:15
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 15:10:31
 *****
-@micuentamedica @EvaMont30455776 Arriba.
-[Permalink](https://twitter.com/fernandeznorona/status/1477321532477222913) | 2 Me Gusta | 0 Retweets
+RT @gus_balboa: Son tan idiotas que en vez de apoyar la revocación de mandato, apoyan la revocación de estatuas.
+[Permalink](https://twitter.com/fernandeznorona/status/1477416980613378050) | 0 Me Gusta | 14 Retweets

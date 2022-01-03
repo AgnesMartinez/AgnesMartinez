@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 20:25:50
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 14:45:21
 *****
-RT @GustavoVela71: Hay personas que alimentan a los perritos de calle
-[Permalink](https://twitter.com/fernandeznorona/status/1477496329307840514) | 0 Me Gusta | 675 Retweets
+Cabeza hueca @VicenteFoxQue, si están pidiendo dinero es creíble que eres tú.
+[Permalink](https://twitter.com/fernandeznorona/status/1477773032408109057) | 82 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 20:24:08
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 14:42:40
 *****
-RT @Javier_Hidalgo: "No estoy aqui para ser campeon, sino para demostrar que con 105 años se puede andar en bicicleta" ☺🚵‍♀💖🇫🇷🏃‍♀ Robert Ma…
-[Permalink](https://twitter.com/fernandeznorona/status/1477495903112122372) | 0 Me Gusta | 45 Retweets
+RT @tadei:
+[Permalink](https://twitter.com/fernandeznorona/status/1477772358920376324) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 20:00:54
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 14:11:47
 *****
-RT @lozaime: Con mucho gusto!!!!
-[Permalink](https://twitter.com/fernandeznorona/status/1477490054545223685) | 0 Me Gusta | 39 Retweets
+RT @Mceciliadlera:
+[Permalink](https://twitter.com/fernandeznorona/status/1477764584794640387) | 0 Me Gusta | 723 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 19:58:55
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 14:08:40
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1477489555821445128) | 43 Me Gusta | 4 Retweets
+Cada día envileces más. Cada día tu no-pensamiento es más absurdo y aberrante. Pensar que se te veía con respeto en el @PRDMexico; supongo que sigues afiliado a éste, los representas bien @rpascoep.
+[Permalink](https://twitter.com/fernandeznorona/status/1477763802007580677) | 54 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2022 a las 19:57:11
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 14:06:13
 *****
-RT @MarthaCajigas: ¡Feliz Año Nuevo!
-[Permalink](https://twitter.com/fernandeznorona/status/1477489121698406405) | 0 Me Gusta | 47 Retweets
+Podrás hacerlo. A menos que sigas haciéndolo caso a la propaganda que ha propagado el terror desde el primer momento y seguirá realizándola. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1477763187005177859) | 23 Me Gusta | 4 Retweets

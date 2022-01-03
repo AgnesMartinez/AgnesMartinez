@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 14:45:21
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 19:16:14
 *****
-Cabeza hueca @VicenteFoxQue, si están pidiendo dinero es creíble que eres tú.
-[Permalink](https://twitter.com/fernandeznorona/status/1477773032408109057) | 82 Me Gusta | 24 Retweets
+RT @marioriestra: ¡Qué gusto da ver incluida en esta nota de @El_Universal_Mx a nuestra querida @CasaDeLaLectura!
+
+
+Aunque yo diría que, más…
+[Permalink](https://twitter.com/fernandeznorona/status/1477841201919365121) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 14:42:40
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 19:11:35
 *****
-RT @tadei:
-[Permalink](https://twitter.com/fernandeznorona/status/1477772358920376324) | 0 Me Gusta | 12 Retweets
+RT @Andres50877148: Si si fue por racismo.
+[Permalink](https://twitter.com/fernandeznorona/status/1477840032975228929) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 14:11:47
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 19:11:25
 *****
-RT @Mceciliadlera:
-[Permalink](https://twitter.com/fernandeznorona/status/1477764584794640387) | 0 Me Gusta | 723 Retweets
+RT @Vegasaez_:
+[Permalink](https://twitter.com/fernandeznorona/status/1477839990184947712) | 0 Me Gusta | 176 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 14:08:40
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 19:11:00
 *****
-Cada día envileces más. Cada día tu no-pensamiento es más absurdo y aberrante. Pensar que se te veía con respeto en el @PRDMexico; supongo que sigues afiliado a éste, los representas bien @rpascoep.
-[Permalink](https://twitter.com/fernandeznorona/status/1477763802007580677) | 54 Me Gusta | 19 Retweets
+RT @cousunam: ¡Los tlacuaches no son una plaga! ¡Todo lo contrario! Respétalos y cuídalos. 👇
+Infografía: @SEMARNAT_mx
+[Permalink](https://twitter.com/fernandeznorona/status/1477839887814516737) | 0 Me Gusta | 432 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 14:06:13
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 19:08:04
 *****
-Podrás hacerlo. A menos que sigas haciéndolo caso a la propaganda que ha propagado el terror desde el primer momento y seguirá realizándola. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1477763187005177859) | 23 Me Gusta | 4 Retweets
+RT @pattygmiranda: Más de $2000 costará reemplacar tu automóvil, camión o motocicleta en #Querétaro, lo bueno es que @AccionNacional vela p…
+[Permalink](https://twitter.com/fernandeznorona/status/1477839147406700544) | 0 Me Gusta | 589 Retweets

@@ -1,30 +1,33 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 19:16:14
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 14:14:34
 *****
-RT @marioriestra: ¡Qué gusto da ver incluida en esta nota de @El_Universal_Mx a nuestra querida @CasaDeLaLectura!
+RT @TobiasLatour: El @INEMexico solicita 500 millones de pesos para la revocación en el extranjero y no habrá
+[Permalink](https://twitter.com/fernandeznorona/status/1478127675021705221) | 0 Me Gusta | 55 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 14:14:05
+*****
+RT @Navegaciones: La esencia del berrinche:
+El @INEMexico dispone de mil 500 millones de pesos para instalar 156 mil 807 casillas para la c…
+[Permalink](https://twitter.com/fernandeznorona/status/1478127552703221769) | 0 Me Gusta | 992 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 14:13:49
+*****
+RT @Nubia_SCG: Oigan, el gobernador es Samuel.
 
 
-Aunque yo diría que, más…
-[Permalink](https://twitter.com/fernandeznorona/status/1477841201919365121) | 0 Me Gusta | 13 Retweets
+¿Cuál es el punto al atacar a Mariana de forma tan burda?
+
+
+Duda real.
+[Permalink](https://twitter.com/fernandeznorona/status/1478127485992714240) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 19:11:35
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 14:12:58
 *****
-RT @Andres50877148: Si si fue por racismo.
-[Permalink](https://twitter.com/fernandeznorona/status/1477840032975228929) | 0 Me Gusta | 5 Retweets
+@AliteyU Provechito.
+[Permalink](https://twitter.com/fernandeznorona/status/1478127273060585474) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 19:11:25
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 14:11:42
 *****
-RT @Vegasaez_:
-[Permalink](https://twitter.com/fernandeznorona/status/1477839990184947712) | 0 Me Gusta | 223 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 19:11:00
-*****
-RT @cousunam: ¡Los tlacuaches no son una plaga! ¡Todo lo contrario! Respétalos y cuídalos. 👇
-Infografía: @SEMARNAT_mx
-[Permalink](https://twitter.com/fernandeznorona/status/1477839887814516737) | 0 Me Gusta | 529 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2022 a las 19:08:04
-*****
-RT @pattygmiranda: Más de $2000 costará reemplacar tu automóvil, camión o motocicleta en #Querétaro, lo bueno es que @AccionNacional vela p…
-[Permalink](https://twitter.com/fernandeznorona/status/1477839147406700544) | 0 Me Gusta | 789 Retweets
+Pronta recuperación a @SusanaHarp. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1478126952166928385) | 20 Me Gusta | 0 Retweets

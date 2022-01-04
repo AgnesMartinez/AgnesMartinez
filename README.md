@@ -1,33 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 14:14:34
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 20:31:46
 *****
-RT @TobiasLatour: El @INEMexico solicita 500 millones de pesos para la revocación en el extranjero y no habrá
-[Permalink](https://twitter.com/fernandeznorona/status/1478127675021705221) | 0 Me Gusta | 55 Retweets
+RT @InfoElectrica: Con los 438,300 millones de pesos que se entregan a empresas eléctricas extranjeras al año, por culpa de la Reforma Ener…
+[Permalink](https://twitter.com/fernandeznorona/status/1478222600937562117) | 0 Me Gusta | 103 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 14:14:05
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 20:28:33
 *****
-RT @Navegaciones: La esencia del berrinche:
-El @INEMexico dispone de mil 500 millones de pesos para instalar 156 mil 807 casillas para la c…
-[Permalink](https://twitter.com/fernandeznorona/status/1478127552703221769) | 0 Me Gusta | 992 Retweets
+@KiraCarrillo5 @TobiasLatour @Rosario_Robles_ @EPN Empezaremos.
+[Permalink](https://twitter.com/fernandeznorona/status/1478221789654306816) | 1 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 14:13:49
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 20:27:02
 *****
-RT @Nubia_SCG: Oigan, el gobernador es Samuel.
-
-
-¿Cuál es el punto al atacar a Mariana de forma tan burda?
-
-
-Duda real.
-[Permalink](https://twitter.com/fernandeznorona/status/1478127485992714240) | 0 Me Gusta | 12 Retweets
+RT @la_de_rh: Banda, esto es serio e importante
+Nos ayudan con un RT? Plis?
+[Permalink](https://twitter.com/fernandeznorona/status/1478221406844473346) | 0 Me Gusta | 2,735 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 14:12:58
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 20:12:29
 *****
-@AliteyU Provechito.
-[Permalink](https://twitter.com/fernandeznorona/status/1478127273060585474) | 1 Me Gusta | 0 Retweets
+Las de Cholula son espectaculares.
+[Permalink](https://twitter.com/fernandeznorona/status/1478217746089398275) | 19 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 14:11:42
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 20:10:49
 *****
-Pronta recuperación a @SusanaHarp. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1478126952166928385) | 20 Me Gusta | 0 Retweets
+RT @Paulogarciag: En las últimas horas y a plena luz del día, se talaron criminalmente ¡30 ÁRBOLES! en el parque de la Conchita. 
+Fuimos a…
+[Permalink](https://twitter.com/fernandeznorona/status/1478217328303263749) | 0 Me Gusta | 156 Retweets

@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 20:31:46
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 09:30:48
 *****
-RT @InfoElectrica: Con los 438,300 millones de pesos que se entregan a empresas eléctricas extranjeras al año, por culpa de la Reforma Ener…
-[Permalink](https://twitter.com/fernandeznorona/status/1478222600937562117) | 0 Me Gusta | 143 Retweets
+@Julianatilano Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1478418648792510464) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 20:28:33
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 09:29:11
 *****
-@KiraCarrillo5 @TobiasLatour @Rosario_Robles_ @EPN Empezaremos.
-[Permalink](https://twitter.com/fernandeznorona/status/1478221789654306816) | 1 Me Gusta | 1 Retweets
+Leviatán es buenísimo. De Paul Auster.
+[Permalink](https://twitter.com/fernandeznorona/status/1478418243387858944) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 20:27:02
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 09:27:42
 *****
-RT @la_de_rh: Banda, esto es serio e importante
-Nos ayudan con un RT? Plis?
-[Permalink](https://twitter.com/fernandeznorona/status/1478221406844473346) | 0 Me Gusta | 3,966 Retweets
+RT @Monix139: ¿Ya salieron los tuits de disculpa o aceptación del error de #sectarios que participaron en la campaña de odio ("chayotero, v…
+[Permalink](https://twitter.com/fernandeznorona/status/1478417871294410762) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 20:12:29
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 09:25:35
 *****
-Las de Cholula son espectaculares.
-[Permalink](https://twitter.com/fernandeznorona/status/1478217746089398275) | 21 Me Gusta | 1 Retweets
+RT @alvaro_delgado: Ojo: El presidente ⁦@lopezobrador_⁩ cierra el año con 67% de aprobación, según ⁦@ElFinanciero_Mx⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1478417335811809280) | 0 Me Gusta | 238 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-01-2022 a las 20:10:49
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 09:25:28
 *****
-RT @Paulogarciag: En las últimas horas y a plena luz del día, se talaron criminalmente ¡30 ÁRBOLES! en el parque de la Conchita. 
-Fuimos a…
-[Permalink](https://twitter.com/fernandeznorona/status/1478217328303263749) | 0 Me Gusta | 197 Retweets
+RT @EvaMont30455776: ¡ Reflexión !
+[Permalink](https://twitter.com/fernandeznorona/status/1478417309224120323) | 0 Me Gusta | 14 Retweets

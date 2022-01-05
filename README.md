@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 14:30:50
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 20:54:35
 *****
-Ya estoy en Cholula. De aquí transmitiré a las seis de la tarde.
-[Permalink](https://twitter.com/fernandeznorona/status/1478494155663884290) | 64 Me Gusta | 12 Retweets
+RT @tadei: síganse cuidando
+dándole en la torre al medio ambiente
+si señor
+[Permalink](https://twitter.com/fernandeznorona/status/1478590729974960128) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 09:30:48
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 20:50:58
 *****
-@Julianatilano Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1478418648792510464) | 4 Me Gusta | 0 Retweets
+Con razón es tan rabioso contra el movimiento el botijón de @CartonCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1478589820226187267) | 52 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 09:29:11
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 20:50:08
 *****
-Leviatán es buenísimo. De Paul Auster.
-[Permalink](https://twitter.com/fernandeznorona/status/1478418243387858944) | 36 Me Gusta | 2 Retweets
+RT @Claudiashein: Hoy por la tarde realicé la primera supervisión del 2022 en el trolebús elevado. Una obra que permitirá mejorar la movili…
+[Permalink](https://twitter.com/fernandeznorona/status/1478589610443874304) | 0 Me Gusta | 263 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 09:27:42
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 20:49:30
 *****
-RT @Monix139: ¿Ya salieron los tuits de disculpa o aceptación del error de #sectarios que participaron en la campaña de odio ("chayotero, v…
-[Permalink](https://twitter.com/fernandeznorona/status/1478417871294410762) | 0 Me Gusta | 24 Retweets
+RT @m_ebrard: Saliendo a Santiago de Chile para saludar a Gabriel Boric a quien México ve con toda simpatía y desea éxito en su próxima ges…
+[Permalink](https://twitter.com/fernandeznorona/status/1478589450741497858) | 0 Me Gusta | 741 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 09:25:35
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 20:46:36
 *****
-RT @alvaro_delgado: Ojo: El presidente ⁦@lopezobrador_⁩ cierra el año con 67% de aprobación, según ⁦@ElFinanciero_Mx⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1478417335811809280) | 0 Me Gusta | 428 Retweets
+Corrijo, si se mantiene una librería de viejo sobre la avenida Álvaro Obregón.
+[Permalink](https://twitter.com/fernandeznorona/status/1478588721704443906) | 15 Me Gusta | 0 Retweets

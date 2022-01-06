@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 12:22:56
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 21:28:56
 *****
-RT @Peter_Cantropo: @A3Noticias
-[Permalink](https://twitter.com/fernandeznorona/status/1478824358013542404) | 0 Me Gusta | 173 Retweets
+De eso hablo cuando cité “The rabbit’s fence” en el caso de Australia. Habrá un mañana, en que tendrán que disculparse con Djokovic.
+[Permalink](https://twitter.com/fernandeznorona/status/1478961763953561600) | 17 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 12:22:47
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 21:21:32
 *****
-RT @FBuenAbad:
-[Permalink](https://twitter.com/fernandeznorona/status/1478824316808671235) | 0 Me Gusta | 35 Retweets
+Hermano querido, te deseo pronta recuperación, al igual que a Patricia. Abrazote para ambos.
+[Permalink](https://twitter.com/fernandeznorona/status/1478959901724577793) | 19 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 12:22:05
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 21:20:14
 *****
-RT @DirectoAnalisis: Macron revela que pases sanitarios y demás restricciones no son para evitar riesgos, son solo estrategias de presión p…
-[Permalink](https://twitter.com/fernandeznorona/status/1478824143982370816) | 0 Me Gusta | 35 Retweets
+Uh.
+[Permalink](https://twitter.com/fernandeznorona/status/1478959571309928448) | 5 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 12:21:45
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 21:17:59
 *****
-RT @julioastillero: 🚢 #EnVivo en #AstilleroInforma 
-
-
-Total apoyo a la convocatoria de AMLO para que regresen los estudiantes. Importante qu…
-[Permalink](https://twitter.com/fernandeznorona/status/1478824059999866891) | 0 Me Gusta | 10 Retweets
+Claro, supuse que vives en el DF.
+[Permalink](https://twitter.com/fernandeznorona/status/1478959005561147392) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 12:10:58
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 21:17:09
 *****
-“Nalgueó”. Esperemos que nunca te “nalgueen” y veríamos si opinas lo mismo si vivieras esa brutalidad @JoseCardenas1.
-[Permalink](https://twitter.com/fernandeznorona/status/1478821345572048901) | 30 Me Gusta | 5 Retweets
+Manda mensaje a @UCS_GCDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1478958796114440195) | 7 Me Gusta | 0 Retweets

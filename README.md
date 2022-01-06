@@ -1,28 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 09:23:48
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 12:22:56
 *****
-RT @melishcs: Ya existen más variantes de covid que ex novios formales en mi vida amorosa.
-[Permalink](https://twitter.com/fernandeznorona/status/1478779277185327114) | 0 Me Gusta | 866 Retweets
+RT @Peter_Cantropo: @A3Noticias
+[Permalink](https://twitter.com/fernandeznorona/status/1478824358013542404) | 0 Me Gusta | 173 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 08:49:01
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 12:22:47
 *****
-Es un imbécil @EmmanuelMacron.
-[Permalink](https://twitter.com/fernandeznorona/status/1478770524679553030) | 38 Me Gusta | 3 Retweets
+RT @FBuenAbad:
+[Permalink](https://twitter.com/fernandeznorona/status/1478824316808671235) | 0 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 20:54:35
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 12:22:05
 *****
-RT @tadei: síganse cuidando
-dándole en la torre al medio ambiente
-si señor
-[Permalink](https://twitter.com/fernandeznorona/status/1478590729974960128) | 0 Me Gusta | 17 Retweets
+RT @DirectoAnalisis: Macron revela que pases sanitarios y demás restricciones no son para evitar riesgos, son solo estrategias de presión p…
+[Permalink](https://twitter.com/fernandeznorona/status/1478824143982370816) | 0 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 20:50:58
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 12:21:45
 *****
-Con razón es tan rabioso contra el movimiento el botijón de @CartonCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1478589820226187267) | 92 Me Gusta | 26 Retweets
+RT @julioastillero: 🚢 #EnVivo en #AstilleroInforma 
+
+
+Total apoyo a la convocatoria de AMLO para que regresen los estudiantes. Importante qu…
+[Permalink](https://twitter.com/fernandeznorona/status/1478824059999866891) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2022 a las 20:50:08
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 12:10:58
 *****
-RT @Claudiashein: Hoy por la tarde realicé la primera supervisión del 2022 en el trolebús elevado. Una obra que permitirá mejorar la movili…
-[Permalink](https://twitter.com/fernandeznorona/status/1478589610443874304) | 0 Me Gusta | 478 Retweets
+“Nalgueó”. Esperemos que nunca te “nalgueen” y veríamos si opinas lo mismo si vivieras esa brutalidad @JoseCardenas1.
+[Permalink](https://twitter.com/fernandeznorona/status/1478821345572048901) | 30 Me Gusta | 5 Retweets

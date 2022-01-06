@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 21:28:56
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 09:46:57
 *****
-De eso hablo cuando cité “The rabbit’s fence” en el caso de Australia. Habrá un mañana, en que tendrán que disculparse con Djokovic.
-[Permalink](https://twitter.com/fernandeznorona/status/1478961763953561600) | 30 Me Gusta | 10 Retweets
+Amenaza de saquear mi departamento por un par de vecinos de Leandro Valle 14 @UCS_GCDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1479147491312517125) | 26 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 21:21:32
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 09:45:23
 *****
-Hermano querido, te deseo pronta recuperación, al igual que a Patricia. Abrazote para ambos.
-[Permalink](https://twitter.com/fernandeznorona/status/1478959901724577793) | 27 Me Gusta | 4 Retweets
+Vale lo mismo, bebé.
+[Permalink](https://twitter.com/fernandeznorona/status/1479147093969223681) | 16 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 21:20:14
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 09:45:00
 *****
-Uh.
-[Permalink](https://twitter.com/fernandeznorona/status/1478959571309928448) | 6 Me Gusta | 0 Retweets
+Sip.
+[Permalink](https://twitter.com/fernandeznorona/status/1479147000062959629) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 21:17:59
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 09:16:06
 *****
-Claro, supuse que vives en el DF.
-[Permalink](https://twitter.com/fernandeznorona/status/1478959005561147392) | 11 Me Gusta | 0 Retweets
+El hijo de la vecina del número 6 de Leandro Valle 14, acaba de amenazarme de que saquearán mi departamento. Tiene amigos en Tepito, dice. Tan bruto, que estaba un policía que vio las agresiones de él y su novia, una joven que se pelea hasta con ella misma.
+[Permalink](https://twitter.com/fernandeznorona/status/1479139727014084624) | 91 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2022 a las 21:17:09
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 09:12:13
 *****
-Manda mensaje a @UCS_GCDMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1478958796114440195) | 8 Me Gusta | 0 Retweets
+Vivo en una vecindad. Un incidente tonto y desagradable acabo de vivir.
+[Permalink](https://twitter.com/fernandeznorona/status/1479138750244528128) | 39 Me Gusta | 1 Retweets

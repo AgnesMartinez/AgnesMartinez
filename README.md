@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 09:46:57
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 14:26:00
 *****
-Amenaza de saquear mi departamento por un par de vecinos de Leandro Valle 14 @UCS_GCDMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1479147491312517125) | 26 Me Gusta | 12 Retweets
+RT @rosendomarind: Queridos amigos y amigas el próximo martes 11 de enero a las 15:30 hrs tendremos la visita de  @fernandeznorona en Izcal…
+[Permalink](https://twitter.com/fernandeznorona/status/1479217716787621904) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 09:45:23
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 14:14:36
 *****
-Vale lo mismo, bebé.
-[Permalink](https://twitter.com/fernandeznorona/status/1479147093969223681) | 16 Me Gusta | 2 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1479214846453456899) | 30 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 09:45:00
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 12:01:28
 *****
-Sip.
-[Permalink](https://twitter.com/fernandeznorona/status/1479147000062959629) | 9 Me Gusta | 0 Retweets
+Muchas gracias.
+[Permalink](https://twitter.com/fernandeznorona/status/1479181342072000520) | 19 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 09:16:06
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 12:00:46
 *****
-El hijo de la vecina del número 6 de Leandro Valle 14, acaba de amenazarme de que saquearán mi departamento. Tiene amigos en Tepito, dice. Tan bruto, que estaba un policía que vio las agresiones de él y su novia, una joven que se pelea hasta con ella misma.
-[Permalink](https://twitter.com/fernandeznorona/status/1479139727014084624) | 91 Me Gusta | 22 Retweets
+Veo este anuncio y me enojo en serio. Son unos irresponsables, los niños menores de seis años tienen en proceso de maduración los pulmones y no deben usar cubrebocas. @bbva
+[Permalink](https://twitter.com/fernandeznorona/status/1479181165064073218) | 51 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 09:12:13
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2022 a las 11:09:24
 *****
-Vivo en una vecindad. Un incidente tonto y desagradable acabo de vivir.
-[Permalink](https://twitter.com/fernandeznorona/status/1479138750244528128) | 39 Me Gusta | 1 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1479168239502569472) | 19 Me Gusta | 0 Retweets

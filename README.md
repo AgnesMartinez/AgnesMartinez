@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 19:08:23
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 09:56:41
 *****
-RT @Arqvictord: Resulta que lo menos escandaloso en el @INEEmx es el salario de sus consejeros @lorenzocordovav @CiroMurayamaINE y demás in…
-[Permalink](https://twitter.com/fernandeznorona/status/1479651166908817410) | 0 Me Gusta | 11 Retweets
+Mañana se realiza elección extraordinaria en el estado de Barinas, Venezuela. Le deseo mucho éxito y que corone su campaña con el triunfo mi camarada @jaarreaza.
+[Permalink](https://twitter.com/fernandeznorona/status/1479874716907323402) | 18 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 19:08:12
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 09:55:30
 *****
-En el @INEMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1479651120616144899) | 27 Me Gusta | 12 Retweets
+RT @Navegaciones: Miren, @lorenzocordova, @CiroMurayamaINE y Edmundo Jacobo: otro dinerito que se puede usar para impulsar la democracia pa…
+[Permalink](https://twitter.com/fernandeznorona/status/1479874418511912967) | 0 Me Gusta | 61 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 19:06:22
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 09:54:55
 *****
-RT @Revolucion3_0: No quitará el dedo del renglón: AMLO insistirá a Estados Unidos explicación por apoyo a Claudio X. González  
-https://t.…
-[Permalink](https://twitter.com/fernandeznorona/status/1479650659469303813) | 0 Me Gusta | 69 Retweets
+Por eso soy feliz en Tepoztlán, por las montañas. Bueno, la gente también es de muy buena vibra. Soy feliz en este lugar.
+[Permalink](https://twitter.com/fernandeznorona/status/1479874272617238529) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 19:06:06
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 09:53:11
 *****
-RT @Luna_Tagg: #ElGiganteDeSanLázaro y nuestro mejor representante en el Congreso. #Noroña2024
-[Permalink](https://twitter.com/fernandeznorona/status/1479650591769047043) | 0 Me Gusta | 17 Retweets
+Abrazote.  La echamos mucho de menos. Todavía tengo chile para la salsa macha que nos hizo tu madre.
+[Permalink](https://twitter.com/fernandeznorona/status/1479873832467021829) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 19:00:48
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 09:49:56
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1479649257263140865) | 29 Me Gusta | 2 Retweets
+RT @HNoticiasMX: La PROFEPA y la Guardia Nacional incautaron un cachorro de "tigre" de 2 meses de edad. Venía dentro de una caja de madera.…
+[Permalink](https://twitter.com/fernandeznorona/status/1479873015857008640) | 0 Me Gusta | 5 Retweets

@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 15:50:39
+**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 19:08:23
 *****
-Voy llegando a Pueblo quieto. Paciencia, la video charla empezará con un pequeño retraso.
-[Permalink](https://twitter.com/fernandeznorona/status/1479601404851466240) | 42 Me Gusta | 5 Retweets
+RT @Arqvictord: Resulta que lo menos escandaloso en el @INEEmx es el salario de sus consejeros @lorenzocordovav @CiroMurayamaINE y demás in…
+[Permalink](https://twitter.com/fernandeznorona/status/1479651166908817410) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 13:35:31
+**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 19:08:12
 *****
-RT @AndreaChavezTre: 🟥 ANTI EFEMÉRIDE
-
-
-Un día como hoy, hace 10 años, Felipe Calderón inauguró la Estela de Luz, mejor conocida como “suavi…
-[Permalink](https://twitter.com/fernandeznorona/status/1479567400492220421) | 0 Me Gusta | 2,113 Retweets
+En el @INEMexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1479651120616144899) | 20 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 13:33:19
+**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 19:06:22
 *****
-Muy reconocido. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1479566843304108032) | 32 Me Gusta | 3 Retweets
+RT @Revolucion3_0: No quitará el dedo del renglón: AMLO insistirá a Estados Unidos explicación por apoyo a Claudio X. González  
+https://t.…
+[Permalink](https://twitter.com/fernandeznorona/status/1479650659469303813) | 0 Me Gusta | 46 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 12:38:09
+**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 19:06:06
 *****
-Como fue una sesión Express la de la Permanente, aproveché para ir al Paticurista. Es un chingón Roberto Avilés, me dejó como nuevo para mi caminata de mañana en la montaña.
-[Permalink](https://twitter.com/fernandeznorona/status/1479552963660156930) | 29 Me Gusta | 0 Retweets
+RT @Luna_Tagg: #ElGiganteDeSanLázaro y nuestro mejor representante en el Congreso. #Noroña2024
+[Permalink](https://twitter.com/fernandeznorona/status/1479650591769047043) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 12:35:01
+**Fernández Noroña** (**@fernandeznorona**) • 07-01-2022 a las 19:00:48
 *****
-Obvio, si. Qué ágiles empezaron el año con sus consejos. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1479552171217666056) | 15 Me Gusta | 0 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1479649257263140865) | 22 Me Gusta | 2 Retweets

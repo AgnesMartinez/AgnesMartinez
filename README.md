@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 09:56:41
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 14:04:29
 *****
-Mañana se realiza elección extraordinaria en el estado de Barinas, Venezuela. Le deseo mucho éxito y que corone su campaña con el triunfo mi camarada @jaarreaza.
-[Permalink](https://twitter.com/fernandeznorona/status/1479874716907323402) | 18 Me Gusta | 2 Retweets
+Espléndida noticia.
+[Permalink](https://twitter.com/fernandeznorona/status/1479937077806612480) | 30 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 09:55:30
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 14:03:17
 *****
-RT @Navegaciones: Miren, @lorenzocordova, @CiroMurayamaINE y Edmundo Jacobo: otro dinerito que se puede usar para impulsar la democracia pa…
-[Permalink](https://twitter.com/fernandeznorona/status/1479874418511912967) | 0 Me Gusta | 61 Retweets
+RT @m_ebrard: Ya alcanzamos más de 200 millones de dosis de vacunas :
+[Permalink](https://twitter.com/fernandeznorona/status/1479936775099400192) | 0 Me Gusta | 314 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 09:54:55
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 14:03:13
 *****
-Por eso soy feliz en Tepoztlán, por las montañas. Bueno, la gente también es de muy buena vibra. Soy feliz en este lugar.
-[Permalink](https://twitter.com/fernandeznorona/status/1479874272617238529) | 9 Me Gusta | 0 Retweets
+Destinatario equivocado. Tu mensaje va dirigido a Cabeza de Huevo @fgcabezadevaca. Un hampón tan peligroso como @GenaroGarciaL. Pero tú proteges a tus compañeros de partido. Abur @MarkoCortes #narkocortes.
+[Permalink](https://twitter.com/fernandeznorona/status/1479936758024478722) | 53 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 09:53:11
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 14:00:41
 *****
-Abrazote.  La echamos mucho de menos. Todavía tengo chile para la salsa macha que nos hizo tu madre.
-[Permalink](https://twitter.com/fernandeznorona/status/1479873832467021829) | 9 Me Gusta | 0 Retweets
+RT @FBuenAbad: GUERREROS SEMIÓTICA. Es una celebración de humanismo revolucionario. Nadie podrá silenciarlo. DIFÚNDELO PARA DESINTEGRAR PRE…
+[Permalink](https://twitter.com/fernandeznorona/status/1479936118657327112) | 0 Me Gusta | 110 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 09:49:56
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 13:59:39
 *****
-RT @HNoticiasMX: La PROFEPA y la Guardia Nacional incautaron un cachorro de "tigre" de 2 meses de edad. Venía dentro de una caja de madera.…
-[Permalink](https://twitter.com/fernandeznorona/status/1479873015857008640) | 0 Me Gusta | 5 Retweets
+Hay uno viejo, pero todavía funciona. ¿Te sirve, @LillyTellez?
+[Permalink](https://twitter.com/fernandeznorona/status/1479935860774686720) | 87 Me Gusta | 11 Retweets

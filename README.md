@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 14:04:29
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 22:02:13
 *****
-Espléndida noticia.
-[Permalink](https://twitter.com/fernandeznorona/status/1479937077806612480) | 30 Me Gusta | 6 Retweets
+RT @hershaskywalker: Me parte el alma tener que publicar esto, pero si lo comparten sería de gran ayuda..
+
+
+Mi abuelita se encuentra desapar…
+[Permalink](https://twitter.com/fernandeznorona/status/1480057300530483200) | 0 Me Gusta | 12,249 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 14:03:17
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 21:58:12
 *****
-RT @m_ebrard: Ya alcanzamos más de 200 millones de dosis de vacunas :
-[Permalink](https://twitter.com/fernandeznorona/status/1479936775099400192) | 0 Me Gusta | 314 Retweets
+RT @Marilu86053: ¡Me muerooo! 😍
+💕🐘🐘🐘🐘🐘🐘🐘🐘🐘💕
+[Permalink](https://twitter.com/fernandeznorona/status/1480056289996820482) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 14:03:13
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 21:55:21
 *****
-Destinatario equivocado. Tu mensaje va dirigido a Cabeza de Huevo @fgcabezadevaca. Un hampón tan peligroso como @GenaroGarciaL. Pero tú proteges a tus compañeros de partido. Abur @MarkoCortes #narkocortes.
-[Permalink](https://twitter.com/fernandeznorona/status/1479936758024478722) | 53 Me Gusta | 23 Retweets
+Lo he informado puntualmente.
+[Permalink](https://twitter.com/fernandeznorona/status/1480055573571936260) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 14:00:41
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 21:50:48
 *****
-RT @FBuenAbad: GUERREROS SEMIÓTICA. Es una celebración de humanismo revolucionario. Nadie podrá silenciarlo. DIFÚNDELO PARA DESINTEGRAR PRE…
-[Permalink](https://twitter.com/fernandeznorona/status/1479936118657327112) | 0 Me Gusta | 110 Retweets
+Mientras tanto en México, los gobiernos de Baja California y Tlaxcala exigiendo certificado de vacunación hasta para comprar un chicle. ¡Y son del movimiento! ¿Qué les pasa?
+[Permalink](https://twitter.com/fernandeznorona/status/1480054427864207363) | 11 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 13:59:39
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2022 a las 21:49:42
 *****
-Hay uno viejo, pero todavía funciona. ¿Te sirve, @LillyTellez?
-[Permalink](https://twitter.com/fernandeznorona/status/1479935860774686720) | 87 Me Gusta | 11 Retweets
+RT @rubengluengas: París tras los humillantes señalamientos de Macron contra los no vacunados.
+[Permalink](https://twitter.com/fernandeznorona/status/1480054153397297156) | 0 Me Gusta | 96 Retweets

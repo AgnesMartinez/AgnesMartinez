@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 20:54:20
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 09:31:44
 *****
-RT @JonLord3: ¿Por qué no explicar que el ayuno fortalece el sistema inmunitario en solo 3 días?
-¿Por qué no hablar sobre los beneficios de…
-[Permalink](https://twitter.com/fernandeznorona/status/1480402605809537029) | 0 Me Gusta | 1,772 Retweets
+Un chingón mi compañero presidente @lopezobrador_, suscribo cada una de sus palabras.
+[Permalink](https://twitter.com/fernandeznorona/status/1480593210388922377) | 81 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 20:53:25
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 09:25:47
 *****
-Pronta recuperación. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1480402373436706818) | 28 Me Gusta | 5 Retweets
+RT @gatitocebollo: Chiii
+[Permalink](https://twitter.com/fernandeznorona/status/1480591714259722248) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 20:49:37
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 09:23:18
 *****
-Es de libreto. Poner patas pa arriba a la economía de un país para generar descontento en la gente y destituir al gobierno surgido del corazón del pueblo.
-[Permalink](https://twitter.com/fernandeznorona/status/1480401417684799488) | 32 Me Gusta | 5 Retweets
+Eso quisieran, pandilla de carroñeros.
+[Permalink](https://twitter.com/fernandeznorona/status/1480591091485270017) | 26 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 20:48:28
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 09:22:08
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1480401129020272645) | 40 Me Gusta | 5 Retweets
+No es un asunto de “paciencia”. Es el colmo de la estulticia culpar a los no vacunados de sus limitados resultados.
+[Permalink](https://twitter.com/fernandeznorona/status/1480590794344083460) | 17 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 20:47:38
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 09:15:15
 *****
-Ni uno.
-[Permalink](https://twitter.com/fernandeznorona/status/1480400918298480642) | 14 Me Gusta | 2 Retweets
+¿Se las gana a ti y a tu mareado el #tomandanteborolas alias @FelipeCalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1480589063157653513) | 37 Me Gusta | 11 Retweets

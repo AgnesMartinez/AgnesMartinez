@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 14:09:51
+**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 20:54:20
 *****
-En Jilotepec.
-[Permalink](https://twitter.com/fernandeznorona/status/1480300815185289216) | 55 Me Gusta | 6 Retweets
+RT @JonLord3: ¿Por qué no explicar que el ayuno fortalece el sistema inmunitario en solo 3 días?
+¿Por qué no hablar sobre los beneficios de…
+[Permalink](https://twitter.com/fernandeznorona/status/1480402605809537029) | 0 Me Gusta | 1,515 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 13:45:46
+**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 20:53:25
 *****
-Con la precisión de qué no fue presidente, usurpó la presidencia. ¿Verdad #tomandanteborolas alias @FelipeCalderon?
-[Permalink](https://twitter.com/fernandeznorona/status/1480294752700485632) | 74 Me Gusta | 22 Retweets
+Pronta recuperación. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1480402373436706818) | 23 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 13:42:50
+**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 20:49:37
 *****
-Ya en Jilotepec.
-[Permalink](https://twitter.com/fernandeznorona/status/1480294015257956358) | 22 Me Gusta | 1 Retweets
+Es de libreto. Poner patas pa arriba a la economía de un país para generar descontento en la gente y destituir al gobierno surgido del corazón del pueblo.
+[Permalink](https://twitter.com/fernandeznorona/status/1480401417684799488) | 22 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 10:05:49
+**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 20:48:28
 *****
-Éxito en la jornada de hoy camarada @jaarreaza.
-[Permalink](https://twitter.com/fernandeznorona/status/1480239401661837314) | 45 Me Gusta | 10 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1480401129020272645) | 30 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 09:55:30
+**Fernández Noroña** (**@fernandeznorona**) • 09-01-2022 a las 20:47:38
 *****
-RT @CanalCongreso: 📌¿Quieres saberlo?🤔💡¡Únete al debate sobre la #ReformaEléctrica, la JUCOPO de @Mx_Diputados invita! 👇🏼
-
-
-@rubenmoreiravdz…
-[Permalink](https://twitter.com/fernandeznorona/status/1480236803483385862) | 0 Me Gusta | 31 Retweets
+Ni uno.
+[Permalink](https://twitter.com/fernandeznorona/status/1480400918298480642) | 13 Me Gusta | 1 Retweets

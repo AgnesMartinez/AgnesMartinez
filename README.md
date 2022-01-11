@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 18:38:40
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 09:25:39
 *****
-Lo dicho, eres la persona indicada para encabezar la lucha contra el coví, pero en el ámbito mundial. La humanidad clama por un epidemiólogo de tu talla @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1480730853001072641) | 114 Me Gusta | 21 Retweets
+RT @evoespueblo: Nuestra solidaridad con el hermano @lopezobrador_ que se encuentra en proceso de recuperación después de confirmar un exam…
+[Permalink](https://twitter.com/fernandeznorona/status/1480954068529000448) | 0 Me Gusta | 515 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 18:34:06
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 09:18:28
 *****
-Y esta encuesta fue levantada antes de la entrevista de @RicardoMonrealA al @Reforma.
-[Permalink](https://twitter.com/fernandeznorona/status/1480729705095614472) | 51 Me Gusta | 10 Retweets
+RT @El_Chamuco: Nombre y apellido.
+
+
+Cartón de @monerohernandez en @lajornadaonline.
+[Permalink](https://twitter.com/fernandeznorona/status/1480952263153790978) | 0 Me Gusta | 130 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 18:33:21
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 09:16:56
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1480729514246352898) | 69 Me Gusta | 10 Retweets
+RT @mlucascir: Ni cuando apareció el virus ni cuando no había vacunas, morimos todos fulminados. Muchísimos enfermos se salvaron, pero hay…
+[Permalink](https://twitter.com/fernandeznorona/status/1480951876791283714) | 0 Me Gusta | 72 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 18:08:49
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 09:16:13
 *****
-Muchas felicidades por tu cumpleaños. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1480723340193157123) | 29 Me Gusta | 0 Retweets
+RT @johuro03: @elhijodelrayo Tengo una duda, el virus es tan agresivo? O la masificación de la histeria a su máxima exposición está dando r…
+[Permalink](https://twitter.com/fernandeznorona/status/1480951694796148740) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 18:07:08
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 09:07:43
 *****
-Les faltó su líder el señor XJr. @ClaudioXGG.
-[Permalink](https://twitter.com/fernandeznorona/status/1480722918099361793) | 77 Me Gusta | 9 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1480949554191155204) | 15 Me Gusta | 2 Retweets

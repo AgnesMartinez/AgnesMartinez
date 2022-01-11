@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 14:25:55
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 18:38:40
 *****
-@Amohzo @proceso @colosioriojas Vasallo.
-[Permalink](https://twitter.com/fernandeznorona/status/1480667247622324226) | 1 Me Gusta | 0 Retweets
+Lo dicho, eres la persona indicada para encabezar la lucha contra el coví, pero en el ámbito mundial. La humanidad clama por un epidemiólogo de tu talla @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1480730853001072641) | 101 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 14:25:20
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 18:34:06
 *****
-Caray, ya se tardó el compañero presidente @lopezobrador_ en designar al Dr. @SergioSarmiento al frente de la emergencia sanitaria. ¡Cuántas vidas no se habrían salvado!
-[Permalink](https://twitter.com/fernandeznorona/status/1480667097302978563) | 261 Me Gusta | 40 Retweets
+Y esta encuesta fue levantada antes de la entrevista de @RicardoMonrealA al @Reforma.
+[Permalink](https://twitter.com/fernandeznorona/status/1480729705095614472) | 46 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 14:22:48
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 18:33:21
 *****
-Ya vamos rumbo a Pueblo quieto para la transmisión de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1480666460502433793) | 36 Me Gusta | 1 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1480729514246352898) | 62 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 13:52:01
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 18:08:49
 *****
-Además buenas críticas por sus excesos presupuestales, el @INEMexico terriblemente burocrática en el sentido peyorativo de la palabra.
-[Permalink](https://twitter.com/fernandeznorona/status/1480658712473870345) | 33 Me Gusta | 6 Retweets
+Muchas felicidades por tu cumpleaños. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1480723340193157123) | 28 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 13:51:04
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2022 a las 18:07:08
 *****
-RT @abrazaperros: No les parece una estupidez que te pidan acta de nacimiento para cambio de domicilio en el INE, cuando llevas la credenci…
-[Permalink](https://twitter.com/fernandeznorona/status/1480658476418273287) | 0 Me Gusta | 23 Retweets
+Les faltó su líder el señor XJr. @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1480722918099361793) | 72 Me Gusta | 9 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 20:42:31
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 09:15:32
 *****
-@AliteyU @jon_aleman7 En esa foto se parecen mucho. Felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1481124407464665092) | 3 Me Gusta | 0 Retweets
+Consejos para la salud: aléjense de las personas positivas.
+[Permalink](https://twitter.com/fernandeznorona/status/1481313909877489672) | 46 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 20:28:13
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 08:31:55
 *****
-Me sumo a la solidaridad con Ximena por el fallecimiento de su hermano. Un abrazo grande, al igual para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1481120810937065478) | 25 Me Gusta | 5 Retweets
+Por otra parte, si lo hubiese puesto yo y no el auto corrector, habría puesto “Mencho” y no mencho.
+[Permalink](https://twitter.com/fernandeznorona/status/1481302936097636357) | 6 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 20:26:35
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 08:28:56
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1481120399228391425) | 17 Me Gusta | 2 Retweets
+Muy grave. Brutalidad e ignorancia de la mano.
+[Permalink](https://twitter.com/fernandeznorona/status/1481302182012010503) | 35 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 20:21:42
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 08:28:38
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1481119169957478409) | 33 Me Gusta | 7 Retweets
+RT @HNoticiasMX: Una mujer pasó frente a una pareja #LGBTQ y las agredió con un escupitajo y un trompón, les dijo que eran un mal ejemplo p…
+[Permalink](https://twitter.com/fernandeznorona/status/1481302109639385089) | 0 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 20:21:13
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 08:28:10
 *****
-Lamentable el fallecimiento de Tomás Mojarro, un imprescindible. Mi solidaridad para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1481119048041734154) | 99 Me Gusta | 21 Retweets
+Se ganaría.
+[Permalink](https://twitter.com/fernandeznorona/status/1481301989954920449) | 8 Me Gusta | 3 Retweets

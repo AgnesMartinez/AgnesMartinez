@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 13:00:53
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 20:42:31
 *****
-Hay un borrego en el kilómetro 48 de la carretera Cuernavaca México. A un lado del carril de alta velocidad sobre la barra de contención. @CAPUFE @GN_MEXICO_.
-[Permalink](https://twitter.com/fernandeznorona/status/1481008234123116546) | 81 Me Gusta | 10 Retweets
+@AliteyU @jon_aleman7 En esa foto se parecen mucho. Felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1481124407464665092) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 10:45:18
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 20:28:13
 *****
-No deja de ser muy contrastante el resultado en los sondeos, regularmente favorables a mi persona y, las encuestas publicadas, donde ahora ya por lo menos me ubican en el tercer lugar.
-[Permalink](https://twitter.com/fernandeznorona/status/1480974114567475200) | 42 Me Gusta | 10 Retweets
+Me sumo a la solidaridad con Ximena por el fallecimiento de su hermano. Un abrazo grande, al igual para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1481120810937065478) | 21 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 10:42:48
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 20:26:35
 *****
-En los problemas de la manipulación ¿eres parte de la conciencia crítica o eres una masa manipulable?
-[Permalink](https://twitter.com/fernandeznorona/status/1480973482531901447) | 23 Me Gusta | 6 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1481120399228391425) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 10:41:36
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 20:21:42
 *****
-TODOS los que se han enfermado usaban cubrebocas. La excepción confirma la regla.
-[Permalink](https://twitter.com/fernandeznorona/status/1480973182425309185) | 22 Me Gusta | 7 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1481119169957478409) | 30 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 10:41:03
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 20:21:13
 *****
-No. No ayuda. Da una falsa sensación de protección. Se los ha dicho con claridad @HLGatell peto han preferido el uso de un placebo que da la impresión que algo haces frente a la angustia de la enfermedad.
-[Permalink](https://twitter.com/fernandeznorona/status/1480973043988107271) | 19 Me Gusta | 4 Retweets
+Lamentable el fallecimiento de Tomás Mojarro, un imprescindible. Mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1481119048041734154) | 75 Me Gusta | 19 Retweets

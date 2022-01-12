@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 09:25:39
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 13:00:53
 *****
-RT @evoespueblo: Nuestra solidaridad con el hermano @lopezobrador_ que se encuentra en proceso de recuperación después de confirmar un exam…
-[Permalink](https://twitter.com/fernandeznorona/status/1480954068529000448) | 0 Me Gusta | 515 Retweets
+Hay un borrego en el kilómetro 48 de la carretera Cuernavaca México. A un lado del carril de alta velocidad sobre la barra de contención. @CAPUFE @GN_MEXICO_.
+[Permalink](https://twitter.com/fernandeznorona/status/1481008234123116546) | 81 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 09:18:28
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 10:45:18
 *****
-RT @El_Chamuco: Nombre y apellido.
-
-
-Cartón de @monerohernandez en @lajornadaonline.
-[Permalink](https://twitter.com/fernandeznorona/status/1480952263153790978) | 0 Me Gusta | 130 Retweets
+No deja de ser muy contrastante el resultado en los sondeos, regularmente favorables a mi persona y, las encuestas publicadas, donde ahora ya por lo menos me ubican en el tercer lugar.
+[Permalink](https://twitter.com/fernandeznorona/status/1480974114567475200) | 42 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 09:16:56
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 10:42:48
 *****
-RT @mlucascir: Ni cuando apareció el virus ni cuando no había vacunas, morimos todos fulminados. Muchísimos enfermos se salvaron, pero hay…
-[Permalink](https://twitter.com/fernandeznorona/status/1480951876791283714) | 0 Me Gusta | 72 Retweets
+En los problemas de la manipulación ¿eres parte de la conciencia crítica o eres una masa manipulable?
+[Permalink](https://twitter.com/fernandeznorona/status/1480973482531901447) | 23 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 09:16:13
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 10:41:36
 *****
-RT @johuro03: @elhijodelrayo Tengo una duda, el virus es tan agresivo? O la masificación de la histeria a su máxima exposición está dando r…
-[Permalink](https://twitter.com/fernandeznorona/status/1480951694796148740) | 0 Me Gusta | 4 Retweets
+TODOS los que se han enfermado usaban cubrebocas. La excepción confirma la regla.
+[Permalink](https://twitter.com/fernandeznorona/status/1480973182425309185) | 22 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 09:07:43
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2022 a las 10:41:03
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1480949554191155204) | 15 Me Gusta | 2 Retweets
+No. No ayuda. Da una falsa sensación de protección. Se los ha dicho con claridad @HLGatell peto han preferido el uso de un placebo que da la impresión que algo haces frente a la angustia de la enfermedad.
+[Permalink](https://twitter.com/fernandeznorona/status/1480973043988107271) | 19 Me Gusta | 4 Retweets

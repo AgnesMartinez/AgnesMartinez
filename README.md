@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 09:15:32
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 14:25:55
 *****
-Consejos para la salud: aléjense de las personas positivas.
-[Permalink](https://twitter.com/fernandeznorona/status/1481313909877489672) | 46 Me Gusta | 12 Retweets
+Probada por la @SoyUnison. Ustedes en cambio, no prueban nada, sólo repiten como loritos lo que dicen los medios.
+[Permalink](https://twitter.com/fernandeznorona/status/1481392021537538055) | 27 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 08:31:55
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 14:18:00
 *****
-Por otra parte, si lo hubiese puesto yo y no el auto corrector, habría puesto “Mencho” y no mencho.
-[Permalink](https://twitter.com/fernandeznorona/status/1481302936097636357) | 6 Me Gusta | 1 Retweets
+Tráiler descompuesto en el kilómetro 60 de la carretera México Cuernavaca. Doble remolque. Saliendo de una curva, muy peligroso. @CAPUFE @GN_MEXICO_
+[Permalink](https://twitter.com/fernandeznorona/status/1481390029108916227) | 29 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 08:28:56
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 14:15:36
 *****
-Muy grave. Brutalidad e ignorancia de la mano.
-[Permalink](https://twitter.com/fernandeznorona/status/1481302182012010503) | 35 Me Gusta | 9 Retweets
+Un tráiler se descompuso entre el kilómetro 60 y 61 de la carretera México Cuernavaca. Saliendo de una curva, muy peligroso.
+[Permalink](https://twitter.com/fernandeznorona/status/1481389426353881091) | 35 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 08:28:38
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 13:44:18
 *****
-RT @HNoticiasMX: Una mujer pasó frente a una pareja #LGBTQ y las agredió con un escupitajo y un trompón, les dijo que eran un mal ejemplo p…
-[Permalink](https://twitter.com/fernandeznorona/status/1481302109639385089) | 0 Me Gusta | 21 Retweets
+Ya vamos rumbo a Pueblo quieto. Tengo mucha hambre pero comeré hasta llegar a Tepoztlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1481381550075912193) | 34 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 08:28:10
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 13:20:10
 *****
-Se ganaría.
-[Permalink](https://twitter.com/fernandeznorona/status/1481301989954920449) | 8 Me Gusta | 3 Retweets
+Intrigante es lo que eres @PedroFerriz.
+[Permalink](https://twitter.com/fernandeznorona/status/1481375473896677382) | 57 Me Gusta | 4 Retweets

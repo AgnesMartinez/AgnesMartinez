@@ -1,34 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 09:15:24
+*****
+Miren a Pascal, juro que yo no le puse así. Pasquín ⁦@beltrandelrio⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1481676263857311753) | 72 Me Gusta | 9 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 07:03:37
+*****
+Fernando Vilchis, alcalde de Ecatepec, se esfuerza por ser nominado el cretino del año.
+[Permalink](https://twitter.com/fernandeznorona/status/1481643102058127375) | 106 Me Gusta | 23 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 04:40:12
+*****
+Amanecer en Tepoztlán
+[Permalink](https://twitter.com/fernandeznorona/status/1481607008314957828) | 62 Me Gusta | 6 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 19:06:36
 *****
 RT @epigmenioibarra: Hoy, en este país y más allá de lo ideológico, basta con ser decente para ser revolucionario, para ser radical, y es q…
-[Permalink](https://twitter.com/fernandeznorona/status/1481462659035893762) | 0 Me Gusta | 1,391 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1481462659035893762) | 0 Me Gusta | 1,674 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 19:05:57
 *****
 Naa, es un vulgar tergiversador. Lo que digo es que engañan al decir que se protegen cuando es una medida auxiliar que, tiene el enorme riesgo de dar una falsa sensación de seguridad al decir que protege.
-[Permalink](https://twitter.com/fernandeznorona/status/1481462494346547206) | 42 Me Gusta | 9 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 19:02:48
-*****
-Gracias.
-[Permalink](https://twitter.com/fernandeznorona/status/1481461699937026052) | 28 Me Gusta | 5 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 18:51:03
-*****
-Me ponen en el quinto lugar, empatado con Claudia y no me miden en las preferencias rumbo a la presidencia. Ahí la llevan.
-[Permalink](https://twitter.com/fernandeznorona/status/1481458745750298625) | 28 Me Gusta | 5 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 18:44:17
-*****
-RT @AldoCampuzanoR: Los políticos mejor posicionados del país:
-
-
-@lopezobrador_ 
-@m_ebrard 
-@BeatrizGMuller 
-@HLGatell 
-@Claudiashein 
-@fern…
-[Permalink](https://twitter.com/fernandeznorona/status/1481457039628980228) | 0 Me Gusta | 10 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1481462494346547206) | 48 Me Gusta | 11 Retweets

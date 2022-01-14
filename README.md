@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 09:15:24
+**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 15:51:26
 *****
-Miren a Pascal, juro que yo no le puse así. Pasquín ⁦@beltrandelrio⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1481676263857311753) | 72 Me Gusta | 9 Retweets
+Me dirán que es en Estados Unidos, pero son simples imitadores éstos pésimos gobernantes que cité.
+[Permalink](https://twitter.com/fernandeznorona/status/1481775930750091264) | 18 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 07:03:37
+**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 15:50:57
 *****
-Fernando Vilchis, alcalde de Ecatepec, se esfuerza por ser nominado el cretino del año.
-[Permalink](https://twitter.com/fernandeznorona/status/1481643102058127375) | 106 Me Gusta | 23 Retweets
+Que alguien le avise al pelmazo del alcalde Vilchis en Ecatepec; a @EnriqueAlfaroR y a uno que otro compañero gobernador.
+[Permalink](https://twitter.com/fernandeznorona/status/1481775810369314817) | 24 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 04:40:12
+**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 15:49:37
 *****
-Amanecer en Tepoztlán
-[Permalink](https://twitter.com/fernandeznorona/status/1481607008314957828) | 62 Me Gusta | 6 Retweets
+Xacto. Están enloquecidos y se creen un poder por encima de los poderes.
+[Permalink](https://twitter.com/fernandeznorona/status/1481775472643956736) | 21 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 19:06:36
+**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 15:49:11
 *****
-RT @epigmenioibarra: Hoy, en este país y más allá de lo ideológico, basta con ser decente para ser revolucionario, para ser radical, y es q…
-[Permalink](https://twitter.com/fernandeznorona/status/1481462659035893762) | 0 Me Gusta | 1,674 Retweets
+RT @lopezobrador_: Nos vamos recuperando del nuevo contagio de #COVID19 y seguimos con actividades por el bien de México y su pueblo.
+
+
+http…
+[Permalink](https://twitter.com/fernandeznorona/status/1481775363357249538) | 0 Me Gusta | 2,321 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2022 a las 19:05:57
+**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 15:49:07
 *****
-Naa, es un vulgar tergiversador. Lo que digo es que engañan al decir que se protegen cuando es una medida auxiliar que, tiene el enorme riesgo de dar una falsa sensación de seguridad al decir que protege.
-[Permalink](https://twitter.com/fernandeznorona/status/1481462494346547206) | 48 Me Gusta | 11 Retweets
+Ahí te hablan @PedroFerriz. ¿Te disculparás?
+[Permalink](https://twitter.com/fernandeznorona/status/1481775347590782977) | 38 Me Gusta | 7 Retweets

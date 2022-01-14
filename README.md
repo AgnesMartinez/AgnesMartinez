@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 20:27:09
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 09:57:13
 *****
-Lo terminé. Bastante bueno, A mi me gusta mucho Hrabal, aunque al final no termino de convencerme.
-[Permalink](https://twitter.com/fernandeznorona/status/1481845316462813184) | 34 Me Gusta | 0 Retweets
+RT @LJyDMX: 🤨🤨🤨🤔
+[Permalink](https://twitter.com/fernandeznorona/status/1482049176217264128) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 19:08:44
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 09:56:58
 *****
-¡Y lo presumes, cretino! Por otra parte, entiendes perfectamente que se refieren a los trabajadores de base, pero te haces el desentendido @CiroMurayamaINE #pagatusservicios.
-[Permalink](https://twitter.com/fernandeznorona/status/1481825582266650624) | 109 Me Gusta | 30 Retweets
+Ya estamos en la terminal uno del @AICM_mx. En la sala @AmericanExpress, por si estaban con el pendiente.
+[Permalink](https://twitter.com/fernandeznorona/status/1482049111717203973) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 18:20:57
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 09:53:47
 *****
-RT @MemeYamelCA: Si llevan 5 años sin dar equipos de telefonía celular a los puestos directivos en el INE, ¿por qué los siguen presupuestan…
-[Permalink](https://twitter.com/fernandeznorona/status/1481813559147380742) | 0 Me Gusta | 1,132 Retweets
+Cuando quieras visitar Dos Bocas te invitamos diputada, para que dejes de intrigar, @Mzavalagc. Hay que reconocer que la barda que construyó tu marido de la refinería bicentenario, nunca se ha inundado.
+[Permalink](https://twitter.com/fernandeznorona/status/1482048314166194177) | 54 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 18:18:21
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 09:52:01
 *****
-RT @Monicao2712: Y todavía tienen alguna duda de que si gobernara el PAN estarían vendiendo las vacunas! 
-Si los hdspm están haciendo negoc…
-[Permalink](https://twitter.com/fernandeznorona/status/1481812901488910338) | 0 Me Gusta | 126 Retweets
+Nooooo, afortunado Alí.
+[Permalink](https://twitter.com/fernandeznorona/status/1482047868190011393) | 10 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-01-2022 a las 18:17:13
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 09:46:11
 *****
-Ahí les hablan a una pandilla de cretinos.
-[Permalink](https://twitter.com/fernandeznorona/status/1481812616133685248) | 32 Me Gusta | 6 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1482046399466328066) | 11 Me Gusta | 0 Retweets

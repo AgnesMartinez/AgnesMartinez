@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 09:57:13
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 13:50:15
 *****
-RT @LJyDMX: 🤨🤨🤨🤔
-[Permalink](https://twitter.com/fernandeznorona/status/1482049176217264128) | 0 Me Gusta | 15 Retweets
+Ya aterrizamos en Chetumal.
+[Permalink](https://twitter.com/fernandeznorona/status/1482107823093911557) | 73 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 09:56:58
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 12:12:34
 *****
-Ya estamos en la terminal uno del @AICM_mx. En la sala @AmericanExpress, por si estaban con el pendiente.
-[Permalink](https://twitter.com/fernandeznorona/status/1482049111717203973) | 20 Me Gusta | 2 Retweets
+INÉDITO Lo que Televisa Censuró de Fernández Noroña
+[Permalink](https://twitter.com/fernandeznorona/status/1482083238755635208) | 69 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 09:53:47
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 12:04:05
 *****
-Cuando quieras visitar Dos Bocas te invitamos diputada, para que dejes de intrigar, @Mzavalagc. Hay que reconocer que la barda que construyó tu marido de la refinería bicentenario, nunca se ha inundado.
-[Permalink](https://twitter.com/fernandeznorona/status/1482048314166194177) | 54 Me Gusta | 23 Retweets
+RT @Julianatilano: A Ciro le faltó decir: 
+
+
+—Al diablo la democracia participativa.
+[Permalink](https://twitter.com/fernandeznorona/status/1482081105733951491) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 09:52:01
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 12:03:48
 *****
-Nooooo, afortunado Alí.
-[Permalink](https://twitter.com/fernandeznorona/status/1482047868190011393) | 10 Me Gusta | 0 Retweets
+Aquí les hablan a los cretinos que quieren imponer la vacuna. @UNAM_MX, derechosos, @EnriqueAlfaroR y hasta algún gobernante del movimiento. Del pelmazo del alcalde de Ecatepec ni hablamos.
+[Permalink](https://twitter.com/fernandeznorona/status/1482081032585236484) | 45 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 09:46:11
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 11:58:54
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1482046399466328066) | 11 Me Gusta | 0 Retweets
+Ahí les hablan @Mzavalagc y @MarkoCortes.
+[Permalink](https://twitter.com/fernandeznorona/status/1482079799543746560) | 28 Me Gusta | 3 Retweets

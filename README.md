@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 13:50:15
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 20:43:22
 *****
-Ya aterrizamos en Chetumal.
-[Permalink](https://twitter.com/fernandeznorona/status/1482107823093911557) | 73 Me Gusta | 1 Retweets
+“No mires el precio, si te gusta no mires el precio. Eso hacemos todos en la vida. Nos vemos el precio de las cosas.” Filiberto García.
+[Permalink](https://twitter.com/fernandeznorona/status/1482211786942304256) | 29 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 12:12:34
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 20:40:10
 *****
-INÉDITO Lo que Televisa Censuró de Fernández Noroña
-[Permalink](https://twitter.com/fernandeznorona/status/1482083238755635208) | 69 Me Gusta | 30 Retweets
+“Porque ahora, con la revolución hecha gobierno, hasta los de huarache me taconean”. Filiberto García, el personaje de “El complot mongol”, de Rafael Bernal. Genial, aún no la termino pero es genial.
+[Permalink](https://twitter.com/fernandeznorona/status/1482210980121788417) | 33 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 12:04:05
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 19:06:05
 *****
-RT @Julianatilano: A Ciro le faltó decir: 
-
-
-—Al diablo la democracia participativa.
-[Permalink](https://twitter.com/fernandeznorona/status/1482081105733951491) | 0 Me Gusta | 18 Retweets
+Es un cretino @CarlosJoaquin. Mandó cortar 85 árboles añejos del malecón de Chetumal, para modernizar el malecón. Criminal su acción.
+[Permalink](https://twitter.com/fernandeznorona/status/1482187305309855745) | 172 Me Gusta | 47 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 12:03:48
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 18:12:29
 *****
-Aquí les hablan a los cretinos que quieren imponer la vacuna. @UNAM_MX, derechosos, @EnriqueAlfaroR y hasta algún gobernante del movimiento. Del pelmazo del alcalde de Ecatepec ni hablamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1482081032585236484) | 45 Me Gusta | 20 Retweets
+Pronta recuperación a @colosioriojas.
+[Permalink](https://twitter.com/fernandeznorona/status/1482173815010570240) | 23 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 11:58:54
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2022 a las 18:11:26
 *****
-Ahí les hablan @Mzavalagc y @MarkoCortes.
-[Permalink](https://twitter.com/fernandeznorona/status/1482079799543746560) | 28 Me Gusta | 3 Retweets
+Y lleva un cubrebocas marca llorarás.
+[Permalink](https://twitter.com/fernandeznorona/status/1482173549553070080) | 35 Me Gusta | 3 Retweets

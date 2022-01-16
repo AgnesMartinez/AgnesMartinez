@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 12:55:29
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 18:20:17
 *****
-Tú te ves joven.
-[Permalink](https://twitter.com/fernandeznorona/status/1482456428757540874) | 48 Me Gusta | 4 Retweets
+Hace cinco años, un día como hoy, anunciando mi pretensión de ser candidato a la presidencia de manera independiente desde la izquierda. En la última foto se alcanza ver mi hermanita María Fernanda Campa Uranga en el presídium.
+[Permalink](https://twitter.com/fernandeznorona/status/1482538166825492484) | 99 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 12:50:48
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 18:15:16
 *****
-Así es compañero y amigo @pedrokanche.
-[Permalink](https://twitter.com/fernandeznorona/status/1482455248023261191) | 27 Me Gusta | 7 Retweets
+@Ilianalimon Sé. Y el tabaco.
+[Permalink](https://twitter.com/fernandeznorona/status/1482536903274598400) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 11:39:26
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 18:14:17
 *****
-Abrazote estimado compañero de lucha, @DrJLPech.
-[Permalink](https://twitter.com/fernandeznorona/status/1482437287950565376) | 38 Me Gusta | 7 Retweets
+RT @LOVREGA: Me molesta que un presentador de noticias extranjero estigmatice a Tepito y nadie diga nada con tal de festejar que haya corri…
+[Permalink](https://twitter.com/fernandeznorona/status/1482536653600272384) | 0 Me Gusta | 87 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 08:54:09
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 18:13:12
 *****
-Lo acabo de terminar. Es más que una joya, un libro verdaderamente excepcional. No sé porque no es súper conocido. Gran escritor, brillante. El final es terrible, no lloré porque me aguanté. No es mérito, simplemente soy de la vieja escuela.
-[Permalink](https://twitter.com/fernandeznorona/status/1482395694585503751) | 90 Me Gusta | 10 Retweets
+RT @LJyDMX: 28 de Agosto de 2006
+Tras el fraude electoral, el diputado @fernandeznorona como vocero de la Coalición "Por el bien de todos",…
+[Permalink](https://twitter.com/fernandeznorona/status/1482536381884899329) | 0 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 07:24:31
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 18:10:42
 *****
-Me encontré en “El Café del Puerto a @DrJLPech, en Chetumal.
-[Permalink](https://twitter.com/fernandeznorona/status/1482373135349559300) | 85 Me Gusta | 6 Retweets
+RT @rubengluengas: Me dicen que gente que vio mi participación con @julioastillero  el pasado miércoles comentan que “nunca nadie dijo que…
+[Permalink](https://twitter.com/fernandeznorona/status/1482535753225801729) | 0 Me Gusta | 315 Retweets

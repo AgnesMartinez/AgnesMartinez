@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 16:10:52
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 20:09:18
 *****
-Voy a transmitir desde el aeropuerto de Cancún, voy con un poco de retraso, paciencia. Calculo que hacia las 6:30 de la tarde estaré transmitiendo.
-[Permalink](https://twitter.com/fernandeznorona/status/1482867983265546245) | 35 Me Gusta | 5 Retweets
+RT @LaJornada: #MonerosLaJornada Peras al INE, cartón de @monerohernandez
+[Permalink](https://twitter.com/fernandeznorona/status/1482927986600992775) | 0 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 10:45:00
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 20:08:31
 *****
-Ya estamos en Cancún.
-[Permalink](https://twitter.com/fernandeznorona/status/1482785976078544906) | 69 Me Gusta | 7 Retweets
+De sus ingresos, no de sus ganancias.
+[Permalink](https://twitter.com/fernandeznorona/status/1482927791913984002) | 31 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 08:09:35
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 20:04:04
 *****
-Con mi amigo ⁦@pedrokanche⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1482746866689355777) | 69 Me Gusta | 8 Retweets
+RT @HLGatell: Al 15 de enero en el país se ha vacunado contra #COVID19 a 82 millones 898 mil 265 personas, que representan el 88 por ciento…
+[Permalink](https://twitter.com/fernandeznorona/status/1482926670373920779) | 0 Me Gusta | 426 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 07:13:12
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 20:01:40
 *****
-Paramos a desayunar en Carrillo Puerto. Aprovecharé para saludar a mi amigo @pedrokanche.
-[Permalink](https://twitter.com/fernandeznorona/status/1482732676591333380) | 48 Me Gusta | 0 Retweets
+RT @mlucascir: Ya no pueden contabilizar fallecidos y ahora contabilizan contagios como si fuera lo mismo. 
+
+
+Todo para seguir generando pán…
+[Permalink](https://twitter.com/fernandeznorona/status/1482926066373206017) | 0 Me Gusta | 152 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2022 a las 18:20:17
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 20:01:27
 *****
-Hace cinco años, un día como hoy, anunciando mi pretensión de ser candidato a la presidencia de manera independiente desde la izquierda. En la última foto se alcanza ver mi hermanita María Fernanda Campa Uranga en el presídium.
-[Permalink](https://twitter.com/fernandeznorona/status/1482538166825492484) | 152 Me Gusta | 25 Retweets
+RT @ErendiraTecpatl: Se les está diciendo que la morra es pura pose y campaña política, pero le siguen aplaudiendo todo. 🙃🙃🙃🙃
+[Permalink](https://twitter.com/fernandeznorona/status/1482926012891635715) | 0 Me Gusta | 11 Retweets

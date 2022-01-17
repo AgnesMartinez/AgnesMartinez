@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 20:09:18
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 23:39:39
 *****
-RT @LaJornada: #MonerosLaJornada Peras al INE, cartón de @monerohernandez
-[Permalink](https://twitter.com/fernandeznorona/status/1482927986600992775) | 0 Me Gusta | 36 Retweets
+Lo terminé. Bellísimo libro sobre el gigante llamado Melchor Ocampo.
+[Permalink](https://twitter.com/fernandeznorona/status/1482980926342709248) | 35 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 20:08:31
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 22:46:24
 *****
-De sus ingresos, no de sus ganancias.
-[Permalink](https://twitter.com/fernandeznorona/status/1482927791913984002) | 31 Me Gusta | 5 Retweets
+A las ocho hay una entrevista con @G__Quadri. A las 9 con @LillyTellez y a las 10 un show del #TomandanteBorolas alias @FelipeCalderon. Pero es la programación de Paniaguado TV.
+[Permalink](https://twitter.com/fernandeznorona/status/1482967523947597824) | 44 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 20:04:04
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 22:42:41
 *****
-RT @HLGatell: Al 15 de enero en el país se ha vacunado contra #COVID19 a 82 millones 898 mil 265 personas, que representan el 88 por ciento…
-[Permalink](https://twitter.com/fernandeznorona/status/1482926670373920779) | 0 Me Gusta | 426 Retweets
+\#borolaschallenge.
+[Permalink](https://twitter.com/fernandeznorona/status/1482966589175734274) | 31 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 20:01:40
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 22:41:49
 *****
-RT @mlucascir: Ya no pueden contabilizar fallecidos y ahora contabilizan contagios como si fuera lo mismo. 
-
-
-Todo para seguir generando pán…
-[Permalink](https://twitter.com/fernandeznorona/status/1482926066373206017) | 0 Me Gusta | 152 Retweets
+RT @gus_balboa: Casa DIF esta para proteger a niños a los que la sociedad les falló. No para que sean rentados como decoración a un polític…
+[Permalink](https://twitter.com/fernandeznorona/status/1482966369280868352) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 20:01:27
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 22:39:09
 *****
-RT @ErendiraTecpatl: Se les está diciendo que la morra es pura pose y campaña política, pero le siguen aplaudiendo todo. 🙃🙃🙃🙃
-[Permalink](https://twitter.com/fernandeznorona/status/1482926012891635715) | 0 Me Gusta | 11 Retweets
+RT @m_ebrard: Con el anuncio del próximo cambio de propietarios de Citi- Banamex estaré atento, a la integridad y destino de la Fundación C…
+[Permalink](https://twitter.com/fernandeznorona/status/1482965697844203520) | 0 Me Gusta | 3,212 Retweets

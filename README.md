@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 20:01:18
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 08:19:10
 *****
-Terminamos un día intenso.
-[Permalink](https://twitter.com/fernandeznorona/status/1483288364430286848) | 93 Me Gusta | 9 Retweets
+¡Al chipotle yo creo que @lorenzocordovav y @CiroMurayamaINE ya se sentaron a reflexionar!
+[Permalink](https://twitter.com/fernandeznorona/status/1483474054778654726) | 61 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 17:57:30
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 08:18:01
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1483257208536276993) | 47 Me Gusta | 8 Retweets
+RT @Navegaciones: Sí, en el camino muchos se han distanciado de @lopezobrador_, pero lo impresionante es la cantidad de gente que ha termin…
+[Permalink](https://twitter.com/fernandeznorona/status/1483473763656208384) | 0 Me Gusta | 538 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 15:43:22
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 08:17:35
 *****
-Los “técnicos” de la derecha son empleados de las transnacionales de la energía. Estoy oyendo a Carlos de María y no tienen el mínimo de rigor intelectual y repiten las mentiras que la derecha expresa sin ningún rubor.
-[Permalink](https://twitter.com/fernandeznorona/status/1483223450529546241) | 401 Me Gusta | 146 Retweets
+RT @Julianatilano: Qué imagen.
+[Permalink](https://twitter.com/fernandeznorona/status/1483473654386208768) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 14:29:57
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 08:16:52
 *****
-RT @rubengluengas: Francia “rectificó”  y no permitirá que Djokovic participe en Roland Garros - El Nuevo Orden Mundial lo quiere aplastar.…
-[Permalink](https://twitter.com/fernandeznorona/status/1483204975182467076) | 0 Me Gusta | 210 Retweets
+RT @KyleSkynet: La carroña, tiempos de buitres.
+El que opina es el mismo cretino que trabaja con LODO.
+[Permalink](https://twitter.com/fernandeznorona/status/1483473475570393090) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 14:29:47
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 08:16:27
 *****
-RT @NachoMierV: Agradezco el valioso trabajo que llevaron a cabo en este primer día de los foros de parlamento abierto a @CanalCongreso @SP…
-[Permalink](https://twitter.com/fernandeznorona/status/1483204932081786883) | 0 Me Gusta | 22 Retweets
+RT @LJyDMX: Buenos días y felices lecturas 🔆📚
+[Permalink](https://twitter.com/fernandeznorona/status/1483473371283218439) | 0 Me Gusta | 15 Retweets

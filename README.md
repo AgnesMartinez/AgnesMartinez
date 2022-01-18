@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 06:47:01
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 15:43:22
 *****
-Ya rumbo a la @Mx_Diputados. A la inauguración del parlamento abierto que será a las nueve de la mañana.
-[Permalink](https://twitter.com/fernandeznorona/status/1483088472890122243) | 75 Me Gusta | 7 Retweets
+Los “técnicos” de la derecha son empleados de las transnacionales de la energía. Estoy oyendo a Carlos de María y no tienen el mínimo de rigor intelectual y repiten las mentiras que la derecha expresa sin ningún rubor.
+[Permalink](https://twitter.com/fernandeznorona/status/1483223450529546241) | 92 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 23:39:39
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 14:29:57
 *****
-Lo terminé. Bellísimo libro sobre el gigante llamado Melchor Ocampo.
-[Permalink](https://twitter.com/fernandeznorona/status/1482980926342709248) | 66 Me Gusta | 6 Retweets
+RT @rubengluengas: Francia “rectificó”  y no permitirá que Djokovic participe en Roland Garros - El Nuevo Orden Mundial lo quiere aplastar.…
+[Permalink](https://twitter.com/fernandeznorona/status/1483204975182467076) | 0 Me Gusta | 146 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 22:46:24
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 14:29:47
 *****
-A las ocho hay una entrevista con @G__Quadri. A las 9 con @LillyTellez y a las 10 un show del #TomandanteBorolas alias @FelipeCalderon. Pero es la programación de Paniaguado TV.
-[Permalink](https://twitter.com/fernandeznorona/status/1482967523947597824) | 71 Me Gusta | 10 Retweets
+RT @NachoMierV: Agradezco el valioso trabajo que llevaron a cabo en este primer día de los foros de parlamento abierto a @CanalCongreso @SP…
+[Permalink](https://twitter.com/fernandeznorona/status/1483204932081786883) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 22:42:41
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 14:29:02
 *****
-\#borolaschallenge.
-[Permalink](https://twitter.com/fernandeznorona/status/1482966589175734274) | 48 Me Gusta | 7 Retweets
+RT @PdPagina: #Cartohistoria Cuando Francisco y Gustavo Madero fueron asesinados, la funeraria Gayosso se negó inicialmente a trabajar para…
+[Permalink](https://twitter.com/fernandeznorona/status/1483204746680938501) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2022 a las 22:41:49
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2022 a las 14:28:47
 *****
-RT @gus_balboa: Casa DIF esta para proteger a niños a los que la sociedad les falló. No para que sean rentados como decoración a un polític…
-[Permalink](https://twitter.com/fernandeznorona/status/1482966369280868352) | 0 Me Gusta | 48 Retweets
+El espíritu de Hitler ronda Europa nuevamente.
+[Permalink](https://twitter.com/fernandeznorona/status/1483204682789142530) | 25 Me Gusta | 5 Retweets

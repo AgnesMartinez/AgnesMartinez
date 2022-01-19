@@ -1,27 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 08:19:10
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 14:33:31
 *****
-¡Al chipotle yo creo que @lorenzocordovav y @CiroMurayamaINE ya se sentaron a reflexionar!
-[Permalink](https://twitter.com/fernandeznorona/status/1483474054778654726) | 61 Me Gusta | 8 Retweets
+Monaguillo platícanos cuánto les costó la patética campaña de “al chipotle”. @CiroMurayamaINE.
+[Permalink](https://twitter.com/fernandeznorona/status/1483568262403211265) | 113 Me Gusta | 38 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 08:18:01
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 13:44:47
 *****
-RT @Navegaciones: Sí, en el camino muchos se han distanciado de @lopezobrador_, pero lo impresionante es la cantidad de gente que ha termin…
-[Permalink](https://twitter.com/fernandeznorona/status/1483473763656208384) | 0 Me Gusta | 538 Retweets
+RT @Navegaciones: Centenares de personas recluidas están en las mismas condiciones.
+Cientos de miles de personas en libertad están en las m…
+[Permalink](https://twitter.com/fernandeznorona/status/1483555998262611972) | 0 Me Gusta | 120 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 08:17:35
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 12:57:27
 *****
-RT @Julianatilano: Qué imagen.
-[Permalink](https://twitter.com/fernandeznorona/status/1483473654386208768) | 0 Me Gusta | 12 Retweets
+Robarse una senaduría.
+[Permalink](https://twitter.com/fernandeznorona/status/1483544083683586048) | 76 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 08:16:52
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 12:54:46
 *****
-RT @KyleSkynet: La carroña, tiempos de buitres.
-El que opina es el mismo cretino que trabaja con LODO.
-[Permalink](https://twitter.com/fernandeznorona/status/1483473475570393090) | 0 Me Gusta | 7 Retweets
+¿Ahora qué dicen?
+[Permalink](https://twitter.com/fernandeznorona/status/1483543409004630019) | 22 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 08:16:27
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 12:04:06
 *****
-RT @LJyDMX: Buenos días y felices lecturas 🔆📚
-[Permalink](https://twitter.com/fernandeznorona/status/1483473371283218439) | 0 Me Gusta | 15 Retweets
+RT @DiputadosPTLXV: 💻 #VíaZoom | En la reunión de la Segunda Comisión, el dip. @fernandeznorona hizo un llamado a ser respetuosos de los pr…
+[Permalink](https://twitter.com/fernandeznorona/status/1483530657246625793) | 0 Me Gusta | 13 Retweets

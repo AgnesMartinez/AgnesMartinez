@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 14:33:31
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 19:15:46
 *****
-Monaguillo platícanos cuánto les costó la patética campaña de “al chipotle”. @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1483568262403211265) | 113 Me Gusta | 38 Retweets
+RT @HoyPalestina: Urgente: GRAVE: Gran cantidad de fuerzas de ocupación israelíes irrumpen en la casa de la familia Salhiya en el barrio de…
+[Permalink](https://twitter.com/fernandeznorona/status/1483639290424877058) | 0 Me Gusta | 201 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 13:44:47
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 19:12:14
 *****
-RT @Navegaciones: Centenares de personas recluidas están en las mismas condiciones.
-Cientos de miles de personas en libertad están en las m…
-[Permalink](https://twitter.com/fernandeznorona/status/1483555998262611972) | 0 Me Gusta | 120 Retweets
+Pues yo tengo 62 y sigo batallando para levantarme temprano.
+[Permalink](https://twitter.com/fernandeznorona/status/1483638401115033600) | 31 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 12:57:27
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 19:10:04
 *****
-Robarse una senaduría.
-[Permalink](https://twitter.com/fernandeznorona/status/1483544083683586048) | 76 Me Gusta | 9 Retweets
+RT @Ceciliaaaoooo: Michi consejo
+[Permalink](https://twitter.com/fernandeznorona/status/1483637855373119497) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 12:54:46
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 19:09:42
 *****
-¿Ahora qué dicen?
-[Permalink](https://twitter.com/fernandeznorona/status/1483543409004630019) | 22 Me Gusta | 5 Retweets
+Mira @Ascension528Hz.
+[Permalink](https://twitter.com/fernandeznorona/status/1483637766844043266) | 21 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 12:04:06
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2022 a las 19:05:06
 *****
-RT @DiputadosPTLXV: 💻 #VíaZoom | En la reunión de la Segunda Comisión, el dip. @fernandeznorona hizo un llamado a ser respetuosos de los pr…
-[Permalink](https://twitter.com/fernandeznorona/status/1483530657246625793) | 0 Me Gusta | 13 Retweets
+Jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1483636608171749380) | 35 Me Gusta | 4 Retweets

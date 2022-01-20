@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 13:21:42
+**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 21:17:39
 *****
-¿Cómo? ¿ChicChillon y los chilloncitos?
-[Permalink](https://twitter.com/fernandeznorona/status/1483912574303453190) | 20 Me Gusta | 4 Retweets
+RT @SenSergioPerez: Hoy, tuve la oportunidad de compartir ideas y puntos de vista del trabajo de la LXV Legislatura con @fernandeznorona du…
+[Permalink](https://twitter.com/fernandeznorona/status/1484032352535957504) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 13:20:38
+**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 21:17:24
 *****
-Emmanuel.
-[Permalink](https://twitter.com/fernandeznorona/status/1483912307000463365) | 13 Me Gusta | 5 Retweets
+Un dizque especialista invitado por la derecha.
+[Permalink](https://twitter.com/fernandeznorona/status/1484032288547655681) | 14 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 13:19:41
+**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 20:47:54
 *****
-En realidad es a las cuatro de la tarde.
-[Permalink](https://twitter.com/fernandeznorona/status/1483912068709376003) | 31 Me Gusta | 14 Retweets
+15,058 en Facebook y, 10,184 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1484024865401233410) | 44 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 13:19:00
+**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 19:21:13
 *****
-RT @rosendomarind: ¡No lo olviden! Mañana 20 de enero  a partir de las 15:30 hrs en el Parque Central de Calpulalpan, Tlaxcala. Gerardo @fe…
-[Permalink](https://twitter.com/fernandeznorona/status/1483911897963499522) | 0 Me Gusta | 15 Retweets
+Apenas saliendo del parlamento abierto. Pero voy pitando a la casa para hacer la video charla.
+[Permalink](https://twitter.com/fernandeznorona/status/1484003051459416069) | 82 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 12:20:58
+**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 19:11:23
 *****
-Naa , @ChicChillon y los chilloncitos son muy unitarios.
-[Permalink](https://twitter.com/fernandeznorona/status/1483897291102633991) | 19 Me Gusta | 0 Retweets
+A las 9:30 de la noche será la video charla de hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1484000577210171395) | 48 Me Gusta | 6 Retweets

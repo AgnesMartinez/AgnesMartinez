@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 21:17:39
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 10:01:05
 *****
-RT @SenSergioPerez: Hoy, tuve la oportunidad de compartir ideas y puntos de vista del trabajo de la LXV Legislatura con @fernandeznorona du…
-[Permalink](https://twitter.com/fernandeznorona/status/1484032352535957504) | 0 Me Gusta | 15 Retweets
+RT @CFEmx: #ParlamentoAbierto | La Reforma Energética de 2013 fue un sistema  perfectamente perverso, en lo único que fallaron fue en no ha…
+[Permalink](https://twitter.com/fernandeznorona/status/1484224478020358148) | 0 Me Gusta | 269 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 21:17:24
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 09:57:47
 *****
-Un dizque especialista invitado por la derecha.
-[Permalink](https://twitter.com/fernandeznorona/status/1484032288547655681) | 17 Me Gusta | 2 Retweets
+RT @Nubia_SCG: Llegaron los chicos de Harvard que hablaban inglés, lo malo fue cuando empezaron a pensar en inglés, a tomar dictados en ing…
+[Permalink](https://twitter.com/fernandeznorona/status/1484223646319140867) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 20:47:54
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 09:56:50
 *****
-15,058 en Facebook y, 10,184 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1484024865401233410) | 56 Me Gusta | 6 Retweets
+RT @fisgonmonero: Hace unos días, algunos analistas especulaban que @lorenzocordovav podría ser el candidato presidencial de la oposición p…
+[Permalink](https://twitter.com/fernandeznorona/status/1484223406266634244) | 0 Me Gusta | 949 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 19:21:13
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 09:56:24
 *****
-Apenas saliendo del parlamento abierto. Pero voy pitando a la casa para hacer la video charla.
-[Permalink](https://twitter.com/fernandeznorona/status/1484003051459416069) | 96 Me Gusta | 13 Retweets
+RT @rocioss: Mario Vargas Llosa dice que se le debe hacer un monumento a Ernesto Zedillo “ héroe latinoamericano”
+[Permalink](https://twitter.com/fernandeznorona/status/1484223299186008066) | 0 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2022 a las 19:11:23
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 09:55:51
 *****
-A las 9:30 de la noche será la video charla de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1484000577210171395) | 54 Me Gusta | 6 Retweets
+Xacto. Francamente @monerohernandez es genial. Y aunque yo no soy santo de su devoción, a mi me gusta su trabajo.
+[Permalink](https://twitter.com/fernandeznorona/status/1484223157930237954) | 10 Me Gusta | 2 Retweets

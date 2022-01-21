@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 10:01:05
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 15:29:50
 *****
-RT @CFEmx: #ParlamentoAbierto | La Reforma Energética de 2013 fue un sistema  perfectamente perverso, en lo único que fallaron fue en no ha…
-[Permalink](https://twitter.com/fernandeznorona/status/1484224478020358148) | 0 Me Gusta | 269 Retweets
+Feliz cumpleaños a @OctavioRomero_O. Que mejor regalo que la formalización de la compra de la refinería de “Deer Park”.
+[Permalink](https://twitter.com/fernandeznorona/status/1484307209576075272) | 53 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 09:57:47
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 15:27:15
 *****
-RT @Nubia_SCG: Llegaron los chicos de Harvard que hablaban inglés, lo malo fue cuando empezaron a pensar en inglés, a tomar dictados en ing…
-[Permalink](https://twitter.com/fernandeznorona/status/1484223646319140867) | 0 Me Gusta | 25 Retweets
+Una vez más la derecha se equivoca, dicen que soy negativo y salí positivo.
+[Permalink](https://twitter.com/fernandeznorona/status/1484306561124028419) | 118 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 09:56:50
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 15:16:19
 *****
-RT @fisgonmonero: Hace unos días, algunos analistas especulaban que @lorenzocordovav podría ser el candidato presidencial de la oposición p…
-[Permalink](https://twitter.com/fernandeznorona/status/1484223406266634244) | 0 Me Gusta | 949 Retweets
+Pronta recuperación.
+[Permalink](https://twitter.com/fernandeznorona/status/1484303809841008643) | 26 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 09:56:24
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 15:15:58
 *****
-RT @rocioss: Mario Vargas Llosa dice que se le debe hacer un monumento a Ernesto Zedillo “ héroe latinoamericano”
-[Permalink](https://twitter.com/fernandeznorona/status/1484223299186008066) | 0 Me Gusta | 32 Retweets
+RT @julioastillero: Estamos luchando para mantener #AstilleroInforma , a pesar de desmonetizaciones, no notificaciones y otros temas. Invit…
+[Permalink](https://twitter.com/fernandeznorona/status/1484303721131483137) | 0 Me Gusta | 155 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 09:55:51
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 15:12:03
 *****
-Xacto. Francamente @monerohernandez es genial. Y aunque yo no soy santo de su devoción, a mi me gusta su trabajo.
-[Permalink](https://twitter.com/fernandeznorona/status/1484223157930237954) | 10 Me Gusta | 2 Retweets
+@Omar_Guante Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1484302734438318083) | 2 Me Gusta | 0 Retweets

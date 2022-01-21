@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 15:29:50
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 18:03:16
 *****
-Feliz cumpleaños a @OctavioRomero_O. Que mejor regalo que la formalización de la compra de la refinería de “Deer Park”.
-[Permalink](https://twitter.com/fernandeznorona/status/1484307209576075272) | 53 Me Gusta | 11 Retweets
+Compacto la crítica a la censura, que es particularmente grave en Twitter. No comparto que las palabras y los hechos no tengan el mismo peso . Uno debe hacerse responsable de ambos.
+[Permalink](https://twitter.com/fernandeznorona/status/1484345823701860357) | 56 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 15:27:15
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 17:59:07
 *****
-Una vez más la derecha se equivoca, dicen que soy negativo y salí positivo.
-[Permalink](https://twitter.com/fernandeznorona/status/1484306561124028419) | 118 Me Gusta | 11 Retweets
+RT @PodemosPueblo: Hicieron los PRIANistas, un sistema cuasiperfecto, para entregar la industria energética y la soberanía a las transnacio…
+[Permalink](https://twitter.com/fernandeznorona/status/1484344776304381957) | 0 Me Gusta | 118 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 15:16:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 17:56:36
 *****
-Pronta recuperación.
-[Permalink](https://twitter.com/fernandeznorona/status/1484303809841008643) | 26 Me Gusta | 3 Retweets
+En Filipinas.
+[Permalink](https://twitter.com/fernandeznorona/status/1484344146089308163) | 15 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 15:15:58
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 17:56:23
 *****
-RT @julioastillero: Estamos luchando para mantener #AstilleroInforma , a pesar de desmonetizaciones, no notificaciones y otros temas. Invit…
-[Permalink](https://twitter.com/fernandeznorona/status/1484303721131483137) | 0 Me Gusta | 155 Retweets
+Tengo uno de reserva, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1484344088082063362) | 18 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 15:12:03
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 17:56:01
 *****
-@Omar_Guante Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1484302734438318083) | 2 Me Gusta | 0 Retweets
+@mauriciotoledog Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1484343999297056769) | 1 Me Gusta | 0 Retweets

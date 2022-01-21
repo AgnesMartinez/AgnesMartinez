@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 18:03:16
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 10:09:41
 *****
-Compacto la crítica a la censura, que es particularmente grave en Twitter. No comparto que las palabras y los hechos no tengan el mismo peso . Uno debe hacerse responsable de ambos.
-[Permalink](https://twitter.com/fernandeznorona/status/1484345823701860357) | 66 Me Gusta | 12 Retweets
+RT @adela_bicha: Deben realizarse sanciones contra estas personas que amenazan todos los días.
+[Permalink](https://twitter.com/fernandeznorona/status/1484589030859812869) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 17:59:07
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 10:07:01
 *****
-RT @PodemosPueblo: Hicieron los PRIANistas, un sistema cuasiperfecto, para entregar la industria energética y la soberanía a las transnacio…
-[Permalink](https://twitter.com/fernandeznorona/status/1484344776304381957) | 0 Me Gusta | 128 Retweets
+Ecatepec a la vanguardia con @FerVilchisMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1484588356306710540) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 17:56:36
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 10:02:34
 *****
-En Filipinas.
-[Permalink](https://twitter.com/fernandeznorona/status/1484344146089308163) | 16 Me Gusta | 0 Retweets
+Así es. Pero Ecatepec sigue firme ¿Verdad @FerVilchisMx?
+[Permalink](https://twitter.com/fernandeznorona/status/1484587237299924995) | 6 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 17:56:23
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 10:01:14
 *****
-Tengo uno de reserva, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1484344088082063362) | 20 Me Gusta | 1 Retweets
+Ahí la llevan.
+[Permalink](https://twitter.com/fernandeznorona/status/1484586903341088768) | 2 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2022 a las 17:56:01
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 10:00:03
 *****
-@mauriciotoledog Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1484343999297056769) | 1 Me Gusta | 0 Retweets
+@Andy_Balii Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1484586605033762828) | 0 Me Gusta | 0 Retweets

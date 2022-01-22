@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 15:39:48
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 20:08:39
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1484672103970398209) | 13 Me Gusta | 1 Retweets
+Erario. Todo erario es público. Abrazote .
+[Permalink](https://twitter.com/fernandeznorona/status/1484739762565099521) | 44 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 14:49:23
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 19:55:57
 *****
-Un ex rector de la @UNAM_MX de empleado de las trasnacionales de la energía eléctrica. Luego dicen que a la UNAM no se ha derechizado.
-[Permalink](https://twitter.com/fernandeznorona/status/1484659417383645198) | 70 Me Gusta | 31 Retweets
+RT @NachoMierV: Gran noticia que los rigurosos estudios de rutina a los que se sometió nuestro Presidente @lopezobrador_ confirmen su excel…
+[Permalink](https://twitter.com/fernandeznorona/status/1484736569089175553) | 0 Me Gusta | 58 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 14:44:35
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 19:54:37
 *****
-Pues obvio, @SEGOB_mx es la responsable de la política exterior y @SRE_mx de la política interior. Eso todo mundo lo sabe.
-[Permalink](https://twitter.com/fernandeznorona/status/1484658211718410240) | 14 Me Gusta | 3 Retweets
+Pues no te confiaría ni un callo, dizque médico.
+[Permalink](https://twitter.com/fernandeznorona/status/1484736231758090243) | 68 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 14:43:40
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 19:52:32
 *****
-RT @Javier_Hidalgo: Por única ocasión pague multa de mi bolsa. Mañana choferes del Instituto del @DeporteCDMX inician curso en BiciEscuela…
-[Permalink](https://twitter.com/fernandeznorona/status/1484657979433566212) | 0 Me Gusta | 16 Retweets
+RT @PoligrafoMx: Los integrantes del Tribunal decidieron dejar en libertad a Fernando, el sujeto que le puedo asegurar volverá a asesinar a…
+[Permalink](https://twitter.com/fernandeznorona/status/1484735708443164681) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 14:43:08
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 19:51:59
 *****
-A mi hijo, en la anterior vez le dio con mucha fuerza y se le cae el cabello.
-[Permalink](https://twitter.com/fernandeznorona/status/1484657845215891465) | 17 Me Gusta | 1 Retweets
+RT @_jcarreola: Tiene razón Bartlett, hicieron un plan perfecto para desmantelar PEMEX y CFE.
+Pero no ganaron la elección.
+Por eso hoy Deer…
+[Permalink](https://twitter.com/fernandeznorona/status/1484735569511030785) | 0 Me Gusta | 27 Retweets

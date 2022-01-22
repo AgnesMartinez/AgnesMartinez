@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 10:09:41
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 15:39:48
 *****
-RT @adela_bicha: Deben realizarse sanciones contra estas personas que amenazan todos los días.
-[Permalink](https://twitter.com/fernandeznorona/status/1484589030859812869) | 0 Me Gusta | 3 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1484672103970398209) | 13 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 10:07:01
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 14:49:23
 *****
-Ecatepec a la vanguardia con @FerVilchisMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1484588356306710540) | 3 Me Gusta | 1 Retweets
+Un ex rector de la @UNAM_MX de empleado de las trasnacionales de la energía eléctrica. Luego dicen que a la UNAM no se ha derechizado.
+[Permalink](https://twitter.com/fernandeznorona/status/1484659417383645198) | 70 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 10:02:34
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 14:44:35
 *****
-Así es. Pero Ecatepec sigue firme ¿Verdad @FerVilchisMx?
-[Permalink](https://twitter.com/fernandeznorona/status/1484587237299924995) | 6 Me Gusta | 3 Retweets
+Pues obvio, @SEGOB_mx es la responsable de la política exterior y @SRE_mx de la política interior. Eso todo mundo lo sabe.
+[Permalink](https://twitter.com/fernandeznorona/status/1484658211718410240) | 14 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 10:01:14
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 14:43:40
 *****
-Ahí la llevan.
-[Permalink](https://twitter.com/fernandeznorona/status/1484586903341088768) | 2 Me Gusta | 1 Retweets
+RT @Javier_Hidalgo: Por única ocasión pague multa de mi bolsa. Mañana choferes del Instituto del @DeporteCDMX inician curso en BiciEscuela…
+[Permalink](https://twitter.com/fernandeznorona/status/1484657979433566212) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 10:00:03
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2022 a las 14:43:08
 *****
-@Andy_Balii Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1484586605033762828) | 0 Me Gusta | 0 Retweets
+A mi hijo, en la anterior vez le dio con mucha fuerza y se le cae el cabello.
+[Permalink](https://twitter.com/fernandeznorona/status/1484657845215891465) | 17 Me Gusta | 1 Retweets

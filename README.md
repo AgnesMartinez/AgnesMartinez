@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2022 a las 20:38:09
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 09:30:14
 *****
-@jgnaredo Imbécil
-[Permalink](https://twitter.com/fernandeznorona/status/1485109575175049219) | 66 Me Gusta | 7 Retweets
+RT @chioreya: También les falta tener criterio, informarse fidedignamente y dejar de adoctrinarse por los medios chayoteros, odiadores de M…
+[Permalink](https://twitter.com/fernandeznorona/status/1485303878744780801) | 0 Me Gusta | 101 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2022 a las 19:08:56
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 08:35:46
 *****
-RT @rubengluengas: Contra la #DictaduraCovidiana  hoy en Paris Francia 👁⬇️👁
-[Permalink](https://twitter.com/fernandeznorona/status/1485087123820597249) | 0 Me Gusta | 79 Retweets
+Deberían dar el Premio Nobel de medicina a @FerVilchisMx y al @AytoCuautitlan que acreditan que no es necesaria vacuna alguna, que con un trapito que te pongas en la boca evitas el contagio.
+[Permalink](https://twitter.com/fernandeznorona/status/1485290170740092934) | 27 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2022 a las 19:08:41
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 08:35:03
 *****
-RT @rubengluengas: Contra la #DictaduraCovidiana hoy en Washington D.C.
-[Permalink](https://twitter.com/fernandeznorona/status/1485087060159467521) | 0 Me Gusta | 116 Retweets
+Xacto, ahí les hablan @FerVilchisMx y @AytoCuautitlan.
+[Permalink](https://twitter.com/fernandeznorona/status/1485289989554462730) | 36 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2022 a las 19:07:06
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 08:34:30
 *****
-@AliteyU @lopezdoriga Y sí, no te puedo dar RT porque no te dejas.
-[Permalink](https://twitter.com/fernandeznorona/status/1485086661658611714) | 19 Me Gusta | 6 Retweets
+¿Y? Multiplíquenlas por el número que quieran. Parece que por fin vamos al proceso de inmunidad de rebaño.
+[Permalink](https://twitter.com/fernandeznorona/status/1485289849368285187) | 17 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2022 a las 19:06:45
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 08:33:18
 *****
-¡Qué lucidez! Jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1485086572714229760) | 106 Me Gusta | 33 Retweets
+El bello Álamos. Allá anda el vago de nuestro amigo @_VicenteSerrano.
+[Permalink](https://twitter.com/fernandeznorona/status/1485289547332263937) | 19 Me Gusta | 1 Retweets

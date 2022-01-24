@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 18:40:05
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 08:53:16
 *****
-Confusión mental tienes tú desde que te retiraron el chayote, @rivapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1485442252470165507) | 137 Me Gusta | 37 Retweets
+Ahí les hablan @FerVilchisMx y @AytoCuautitlan.
+[Permalink](https://twitter.com/fernandeznorona/status/1485656962322812935) | 37 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 18:35:31
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 08:50:08
 *****
-Y si les da flojera leer todo el artículo a @FerVilchisMx y @AytoCuautitlan aunque sea lean ésto.
-[Permalink](https://twitter.com/fernandeznorona/status/1485441100714237954) | 46 Me Gusta | 14 Retweets
+Durísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1485656175056150531) | 40 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 18:34:26
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 08:39:35
 *****
-A ver si los cretinos de @FerVilchisMx y @AytoCuautitlan leen ésto.
-[Permalink](https://twitter.com/fernandeznorona/status/1485440829120565261) | 27 Me Gusta | 6 Retweets
+¿En que momento “ataca” el compañero presidente @lopezobrador_ a @lopezdoriga1 en la “mañanera” de hoy, @SergioSarmiento?
+[Permalink](https://twitter.com/fernandeznorona/status/1485653518497329163) | 57 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 17:48:05
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 08:30:22
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1485429164224221185) | 129 Me Gusta | 29 Retweets
+Ahí les hablan, ignorantes que atacaban a los no vacunados.
+[Permalink](https://twitter.com/fernandeznorona/status/1485651200355848192) | 24 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 17:39:50
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 07:52:29
 *****
-RT @fabriziomejia: No es el COVID lo que impide que la UNAM regrese a clases presenciales. Son los 3 problemas que no quieren afrontar: aco…
-[Permalink](https://twitter.com/fernandeznorona/status/1485427088936947712) | 0 Me Gusta | 1,988 Retweets
+¿Encabezará la protesta Elver Galarga?
+[Permalink](https://twitter.com/fernandeznorona/status/1485641663892578311) | 42 Me Gusta | 6 Retweets

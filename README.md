@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 15:55:47
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 18:40:05
 *****
-Ahí estoy convaleciente.
-[Permalink](https://twitter.com/fernandeznorona/status/1485400905507872774) | 76 Me Gusta | 3 Retweets
+Confusión mental tienes tú desde que te retiraron el chayote, @rivapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1485442252470165507) | 125 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 15:54:27
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 18:35:31
 *****
-Miren al cabrón del tigre.
-[Permalink](https://twitter.com/fernandeznorona/status/1485400566218035200) | 33 Me Gusta | 1 Retweets
+Y si les da flojera leer todo el artículo a @FerVilchisMx y @AytoCuautitlan aunque sea lean ésto.
+[Permalink](https://twitter.com/fernandeznorona/status/1485441100714237954) | 44 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 15:47:42
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 18:34:26
 *****
-Terminé. No había leído a Elmer Mendoza, es bastante bueno. Aunque a mí me echó a perder Rafael Bernal con “El complot mongol”, que es simplemente genial.
-[Permalink](https://twitter.com/fernandeznorona/status/1485398867763937281) | 21 Me Gusta | 1 Retweets
+A ver si los cretinos de @FerVilchisMx y @AytoCuautitlan leen ésto.
+[Permalink](https://twitter.com/fernandeznorona/status/1485440829120565261) | 27 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 13:55:51
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 17:48:05
 *****
-@vifex Lo dicho, la primera piedra se puso en 1902. Es una de las joyas del porfiriato.
-[Permalink](https://twitter.com/fernandeznorona/status/1485370721002000384) | 4 Me Gusta | 1 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1485429164224221185) | 116 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 13:54:37
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 17:39:50
 *****
-@vifex No creo, debió hacerse al inicio del siglo XX.
-[Permalink](https://twitter.com/fernandeznorona/status/1485370412368289806) | 2 Me Gusta | 1 Retweets
+RT @fabriziomejia: No es el COVID lo que impide que la UNAM regrese a clases presenciales. Son los 3 problemas que no quieren afrontar: aco…
+[Permalink](https://twitter.com/fernandeznorona/status/1485427088936947712) | 0 Me Gusta | 1,818 Retweets

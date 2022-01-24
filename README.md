@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 09:30:14
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 15:55:47
 *****
-RT @chioreya: También les falta tener criterio, informarse fidedignamente y dejar de adoctrinarse por los medios chayoteros, odiadores de M…
-[Permalink](https://twitter.com/fernandeznorona/status/1485303878744780801) | 0 Me Gusta | 101 Retweets
+Ahí estoy convaleciente.
+[Permalink](https://twitter.com/fernandeznorona/status/1485400905507872774) | 76 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 08:35:46
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 15:54:27
 *****
-Deberían dar el Premio Nobel de medicina a @FerVilchisMx y al @AytoCuautitlan que acreditan que no es necesaria vacuna alguna, que con un trapito que te pongas en la boca evitas el contagio.
-[Permalink](https://twitter.com/fernandeznorona/status/1485290170740092934) | 27 Me Gusta | 4 Retweets
+Miren al cabrón del tigre.
+[Permalink](https://twitter.com/fernandeznorona/status/1485400566218035200) | 33 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 08:35:03
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 15:47:42
 *****
-Xacto, ahí les hablan @FerVilchisMx y @AytoCuautitlan.
-[Permalink](https://twitter.com/fernandeznorona/status/1485289989554462730) | 36 Me Gusta | 5 Retweets
+Terminé. No había leído a Elmer Mendoza, es bastante bueno. Aunque a mí me echó a perder Rafael Bernal con “El complot mongol”, que es simplemente genial.
+[Permalink](https://twitter.com/fernandeznorona/status/1485398867763937281) | 21 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 08:34:30
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 13:55:51
 *****
-¿Y? Multiplíquenlas por el número que quieran. Parece que por fin vamos al proceso de inmunidad de rebaño.
-[Permalink](https://twitter.com/fernandeznorona/status/1485289849368285187) | 17 Me Gusta | 3 Retweets
+@vifex Lo dicho, la primera piedra se puso en 1902. Es una de las joyas del porfiriato.
+[Permalink](https://twitter.com/fernandeznorona/status/1485370721002000384) | 4 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 08:33:18
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2022 a las 13:54:37
 *****
-El bello Álamos. Allá anda el vago de nuestro amigo @_VicenteSerrano.
-[Permalink](https://twitter.com/fernandeznorona/status/1485289547332263937) | 19 Me Gusta | 1 Retweets
+@vifex No creo, debió hacerse al inicio del siglo XX.
+[Permalink](https://twitter.com/fernandeznorona/status/1485370412368289806) | 2 Me Gusta | 1 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 15:55:50
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 19:53:18
 *****
-Fue un atropello inaceptable y más viniendo desde un compañero de la 4T.
-[Permalink](https://twitter.com/fernandeznorona/status/1485763303154622470) | 13 Me Gusta | 4 Retweets
+RT @IfigeniaMtz: Saludos mundo Twitter de regreso a mis actividades legislativas en el @senadomexicano después de haberle ganado la batalla…
+[Permalink](https://twitter.com/fernandeznorona/status/1485823062910115843) | 0 Me Gusta | 317 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 15:54:58
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 19:52:03
 *****
-Si. Eso no lo hace el asesino. Justo conociendo ese hecho, otros intereses podrían haberlo asesinado, sabiendo que Bonilla aparecería como el principal responsable.
-[Permalink](https://twitter.com/fernandeznorona/status/1485763084228698112) | 14 Me Gusta | 3 Retweets
+RT @ordurebizarree:
+[Permalink](https://twitter.com/fernandeznorona/status/1485822751181058053) | 0 Me Gusta | 443 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 15:48:40
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 19:37:32
 *****
-RT @LJyDMX: ¡Así de claro!
-[Permalink](https://twitter.com/fernandeznorona/status/1485761499671023619) | 0 Me Gusta | 18 Retweets
+¿Hay algún periodista mexicano que se haya pronunciado por darle protección al periodista estadounidense que fue insultado y amenazado -diría yo-, por @POTUS?
+[Permalink](https://twitter.com/fernandeznorona/status/1485819095815802884) | 169 Me Gusta | 42 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 15:47:53
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 19:06:07
 *****
-No. Es francamente improbable que @Jaime_BonillaV sea el responsable de tan cobarde y lamentable asesinato.
-[Permalink](https://twitter.com/fernandeznorona/status/1485761305118138371) | 13 Me Gusta | 2 Retweets
+RT @ivonnemelgar: No es por intrigar, pero le fue muy muy bien al canciller @m_ebrard en la plenaria de #Morena #PT y #PVEM en @Mx_Diputado…
+[Permalink](https://twitter.com/fernandeznorona/status/1485811190542618624) | 0 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 15:46:18
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 19:05:39
 *****
-La posibilidad de que te contagiaras era alta. Verás que saldrás del contagio sin mayor dificultad. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1485760903723339782) | 11 Me Gusta | 4 Retweets
+¿Yo? Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1485811072439365637) | 10 Me Gusta | 1 Retweets

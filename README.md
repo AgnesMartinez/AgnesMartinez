@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 08:53:16
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 15:55:50
 *****
-Ahí les hablan @FerVilchisMx y @AytoCuautitlan.
-[Permalink](https://twitter.com/fernandeznorona/status/1485656962322812935) | 37 Me Gusta | 9 Retweets
+Fue un atropello inaceptable y más viniendo desde un compañero de la 4T.
+[Permalink](https://twitter.com/fernandeznorona/status/1485763303154622470) | 13 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 08:50:08
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 15:54:58
 *****
-Durísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1485656175056150531) | 40 Me Gusta | 10 Retweets
+Si. Eso no lo hace el asesino. Justo conociendo ese hecho, otros intereses podrían haberlo asesinado, sabiendo que Bonilla aparecería como el principal responsable.
+[Permalink](https://twitter.com/fernandeznorona/status/1485763084228698112) | 14 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 08:39:35
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 15:48:40
 *****
-¿En que momento “ataca” el compañero presidente @lopezobrador_ a @lopezdoriga1 en la “mañanera” de hoy, @SergioSarmiento?
-[Permalink](https://twitter.com/fernandeznorona/status/1485653518497329163) | 57 Me Gusta | 14 Retweets
+RT @LJyDMX: ¡Así de claro!
+[Permalink](https://twitter.com/fernandeznorona/status/1485761499671023619) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 08:30:22
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 15:47:53
 *****
-Ahí les hablan, ignorantes que atacaban a los no vacunados.
-[Permalink](https://twitter.com/fernandeznorona/status/1485651200355848192) | 24 Me Gusta | 6 Retweets
+No. Es francamente improbable que @Jaime_BonillaV sea el responsable de tan cobarde y lamentable asesinato.
+[Permalink](https://twitter.com/fernandeznorona/status/1485761305118138371) | 13 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 07:52:29
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 15:46:18
 *****
-¿Encabezará la protesta Elver Galarga?
-[Permalink](https://twitter.com/fernandeznorona/status/1485641663892578311) | 42 Me Gusta | 6 Retweets
+La posibilidad de que te contagiaras era alta. Verás que saldrás del contagio sin mayor dificultad. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1485760903723339782) | 11 Me Gusta | 4 Retweets

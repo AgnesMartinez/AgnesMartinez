@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 19:53:18
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 10:05:30
 *****
-RT @IfigeniaMtz: Saludos mundo Twitter de regreso a mis actividades legislativas en el @senadomexicano después de haberle ganado la batalla…
-[Permalink](https://twitter.com/fernandeznorona/status/1485823062910115843) | 0 Me Gusta | 373 Retweets
+RT @EAlderson6: Si un día estuvimos errados sobre la vacuna, nos podremos vacunar sin problema.
+
+
+Si no , es imposible hasta el día de hoy e…
+[Permalink](https://twitter.com/fernandeznorona/status/1486037526032920587) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 19:52:03
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 10:04:59
 *****
-RT @ordurebizarree:
-[Permalink](https://twitter.com/fernandeznorona/status/1485822751181058053) | 0 Me Gusta | 464 Retweets
+Que vean esto en Nuevo León y el cretino de @samuel_garcias.
+[Permalink](https://twitter.com/fernandeznorona/status/1486037399465512972) | 5 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 19:37:32
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 10:04:20
 *****
-¿Hay algún periodista mexicano que se haya pronunciado por darle protección al periodista estadounidense que fue insultado y amenazado -diría yo-, por @POTUS?
-[Permalink](https://twitter.com/fernandeznorona/status/1485819095815802884) | 196 Me Gusta | 48 Retweets
+RT @rubengluengas: Habló la mamá de Ámbar, la nena que murió después de vacunarse
+[Permalink](https://twitter.com/fernandeznorona/status/1486037235250216962) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 19:06:07
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 10:04:05
 *****
-RT @ivonnemelgar: No es por intrigar, pero le fue muy muy bien al canciller @m_ebrard en la plenaria de #Morena #PT y #PVEM en @Mx_Diputado…
-[Permalink](https://twitter.com/fernandeznorona/status/1485811190542618624) | 0 Me Gusta | 22 Retweets
+Hacer historia, que es diferente que pasar a la historia, usado regularmente como que quedaste desfasado.
+[Permalink](https://twitter.com/fernandeznorona/status/1486037171081551875) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2022 a las 19:05:39
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 10:00:14
 *****
-¿Yo? Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1485811072439365637) | 12 Me Gusta | 2 Retweets
+Fuertes que imágenes.
+[Permalink](https://twitter.com/fernandeznorona/status/1486036204118327299) | 9 Me Gusta | 2 Retweets

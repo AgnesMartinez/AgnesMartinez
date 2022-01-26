@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 15:28:04
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 19:38:14
 *****
-Aquí batallando con el cambio de equipo.
-[Permalink](https://twitter.com/fernandeznorona/status/1486118703582400531) | 30 Me Gusta | 2 Retweets
+@Luz213And0 Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1486181660781875202) | 4 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 13:27:36
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 19:37:30
 *****
-Oye desmemoriado #TomandanteBorolas alias @FelipeCalderon, platícanos de cuando usurpabas la presidencia y obligaste a @MVSNoticias a correr a @AristeguiOnline.
-[Permalink](https://twitter.com/fernandeznorona/status/1486088386104500227) | 135 Me Gusta | 57 Retweets
+Ahí les hablan a los que quieren imponer la vacunación.
+[Permalink](https://twitter.com/fernandeznorona/status/1486181474491580417) | 56 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 13:25:47
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 18:02:39
 *****
-RT @rubengluengas: ¿Así, con esta censura, quieren algunos que debatamos con esos médicos chayoteros que le mienten a la gente en otros esp…
-[Permalink](https://twitter.com/fernandeznorona/status/1486087931655827458) | 0 Me Gusta | 38 Retweets
+Pues dice mentiras igual que tú. Están defendiendo a las trasnacionales que producen con gas, pandilla de mangantes. A ti te paga @iberdrola #TomandanteBorolas alias @FelipeCalderon. ¿Al Secretario General de la @ONU_es también?
+[Permalink](https://twitter.com/fernandeznorona/status/1486157605902946307) | 86 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 13:25:32
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 17:58:38
 *****
-RT @rubengluengas: Les comunicamos que el programa de hoy martes ha sido censurado por YouTube. 
-
-
-Lo encuentran en las otras redes y claro,…
-[Permalink](https://twitter.com/fernandeznorona/status/1486087868695068681) | 0 Me Gusta | 49 Retweets
+Con razón tienen esa cara. @MarkoCortes, @Jesus_ZambranoG y @alitomorenoc por lo menos les hubieran dicho que disimularan para la foto. Se les ve la cara de contento y de triunfo, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1486156593809051659) | 52 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 12:27:58
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 17:55:25
 *****
-RT @HLGatell: Las escuelas no son centros de contagio. El porcentaje de casos de #COVID19 en menores de edad no se ha disparado respecto al…
-[Permalink](https://twitter.com/fernandeznorona/status/1486073379006394372) | 0 Me Gusta | 1,181 Retweets
+RT @Patriciomonero: Alfredo Adame para gobernador de Quintana Roo, o de cualquier otro estado. Cumple con el perfil  @MovCiudadanoMX
+[Permalink](https://twitter.com/fernandeznorona/status/1486155787663724547) | 0 Me Gusta | 295 Retweets

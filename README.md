@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 19:38:14
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 09:56:11
 *****
-@Luz213And0 Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1486181660781875202) | 5 Me Gusta | 3 Retweets
+RT @epigmenioibarra: Ante el poder autoritario y corrupto, que-en nombre de una élite rapaz que mandaba sobre él-masacraba y saqueaba,yo me…
+[Permalink](https://twitter.com/fernandeznorona/status/1486397570020749320) | 0 Me Gusta | 407 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 19:37:30
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 09:55:39
 *****
-Ahí les hablan a los que quieren imponer la vacunación.
-[Permalink](https://twitter.com/fernandeznorona/status/1486181474491580417) | 67 Me Gusta | 27 Retweets
+Ya.
+[Permalink](https://twitter.com/fernandeznorona/status/1486397437061341196) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 18:02:39
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 09:49:39
 *****
-Pues dice mentiras igual que tú. Están defendiendo a las trasnacionales que producen con gas, pandilla de mangantes. A ti te paga @iberdrola #TomandanteBorolas alias @FelipeCalderon. ¿Al Secretario General de la @ONU_es también?
-[Permalink](https://twitter.com/fernandeznorona/status/1486157605902946307) | 89 Me Gusta | 26 Retweets
+Yo digo, además de valientes eran revolucionarios esos jóvenes. Puedes compartir o no sus métodos y sacarlos de contexto, pero eso no te hace mejor que ellos. Por otra parte, en el fuego cruzado, nunca se esclareció de dónde procedía la bala que mató al empresario.
+[Permalink](https://twitter.com/fernandeznorona/status/1486395927158046723) | 18 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 17:58:38
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 09:47:13
 *****
-Con razón tienen esa cara. @MarkoCortes, @Jesus_ZambranoG y @alitomorenoc por lo menos les hubieran dicho que disimularan para la foto. Se les ve la cara de contento y de triunfo, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1486156593809051659) | 56 Me Gusta | 18 Retweets
+Estás obligado a ser serio y preciso. @HistoriaPedro_ nunca dijo que fueran buenas personas quienes intentaron secuestrar a Garza Sada. Dijo que eran jóvenes valientes y eso no podrás regateárselos.
+[Permalink](https://twitter.com/fernandeznorona/status/1486395312948326402) | 14 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 17:55:25
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 09:38:10
 *****
-RT @Patriciomonero: Alfredo Adame para gobernador de Quintana Roo, o de cualquier otro estado. Cumple con el perfil  @MovCiudadanoMX
-[Permalink](https://twitter.com/fernandeznorona/status/1486155787663724547) | 0 Me Gusta | 328 Retweets
+Le van a llover mensajes pero no precisamente de apoyo.
+[Permalink](https://twitter.com/fernandeznorona/status/1486393035642523657) | 12 Me Gusta | 4 Retweets

@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 10:05:30
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 15:28:04
 *****
-RT @EAlderson6: Si un día estuvimos errados sobre la vacuna, nos podremos vacunar sin problema.
+Aquí batallando con el cambio de equipo.
+[Permalink](https://twitter.com/fernandeznorona/status/1486118703582400531) | 30 Me Gusta | 2 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 13:27:36
+*****
+Oye desmemoriado #TomandanteBorolas alias @FelipeCalderon, platícanos de cuando usurpabas la presidencia y obligaste a @MVSNoticias a correr a @AristeguiOnline.
+[Permalink](https://twitter.com/fernandeznorona/status/1486088386104500227) | 135 Me Gusta | 57 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 13:25:47
+*****
+RT @rubengluengas: ¿Así, con esta censura, quieren algunos que debatamos con esos médicos chayoteros que le mienten a la gente en otros esp…
+[Permalink](https://twitter.com/fernandeznorona/status/1486087931655827458) | 0 Me Gusta | 38 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 13:25:32
+*****
+RT @rubengluengas: Les comunicamos que el programa de hoy martes ha sido censurado por YouTube. 
 
 
-Si no , es imposible hasta el día de hoy e…
-[Permalink](https://twitter.com/fernandeznorona/status/1486037526032920587) | 0 Me Gusta | 9 Retweets
+Lo encuentran en las otras redes y claro,…
+[Permalink](https://twitter.com/fernandeznorona/status/1486087868695068681) | 0 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 10:04:59
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 12:27:58
 *****
-Que vean esto en Nuevo León y el cretino de @samuel_garcias.
-[Permalink](https://twitter.com/fernandeznorona/status/1486037399465512972) | 5 Me Gusta | 3 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 10:04:20
-*****
-RT @rubengluengas: Habló la mamá de Ámbar, la nena que murió después de vacunarse
-[Permalink](https://twitter.com/fernandeznorona/status/1486037235250216962) | 0 Me Gusta | 7 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 10:04:05
-*****
-Hacer historia, que es diferente que pasar a la historia, usado regularmente como que quedaste desfasado.
-[Permalink](https://twitter.com/fernandeznorona/status/1486037171081551875) | 3 Me Gusta | 1 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2022 a las 10:00:14
-*****
-Fuertes que imágenes.
-[Permalink](https://twitter.com/fernandeznorona/status/1486036204118327299) | 9 Me Gusta | 2 Retweets
+RT @HLGatell: Las escuelas no son centros de contagio. El porcentaje de casos de #COVID19 en menores de edad no se ha disparado respecto al…
+[Permalink](https://twitter.com/fernandeznorona/status/1486073379006394372) | 0 Me Gusta | 1,181 Retweets

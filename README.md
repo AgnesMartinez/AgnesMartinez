@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 15:46:40
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 20:27:48
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1486485773985759235) | 10 Me Gusta | 0 Retweets
+RT @LOVREGA: En corto:
+
+
+Voy con Claudia, a pesar de que la Sekkta no suma, resta.
+
+
+Punto.
+[Permalink](https://twitter.com/fernandeznorona/status/1486556523945934848) | 0 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 15:45:20
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 20:26:07
+*****
+RT @LibreMurcielaga: #AhíVamos 🧛🏽‍♀️🏳️
+[Permalink](https://twitter.com/fernandeznorona/status/1486556098287001602) | 0 Me Gusta | 11 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 20:25:36
+*****
+RT @jairocalixto: Cuántos más, Bosé, cuántos más??? #DéjenseAhí
+[Permalink](https://twitter.com/fernandeznorona/status/1486555967605063684) | 0 Me Gusta | 76 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 20:23:46
 *****
 Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1486485436386078724) | 7 Me Gusta | 0 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1486555507309654020) | 14 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 15:44:39
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 20:20:40
 *****
-RT @alvaro_delgado: El actor Eric del Castillo se queja de que no le den trabajo por no vacunarse contra la COVID
-[Permalink](https://twitter.com/fernandeznorona/status/1486485266445463553) | 0 Me Gusta | 17 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 15:44:13
-*****
-Manda MD para ponernos de acuerdo.
-[Permalink](https://twitter.com/fernandeznorona/status/1486485157842341888) | 12 Me Gusta | 4 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 15:43:46
-*****
-A mí me interesa. En el consejo editorial de @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1486485044176699394) | 17 Me Gusta | 1 Retweets
+46% para privados. De lo contrario pasaría de 100%.
+[Permalink](https://twitter.com/fernandeznorona/status/1486554728741941253) | 27 Me Gusta | 3 Retweets

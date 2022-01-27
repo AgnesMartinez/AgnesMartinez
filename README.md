@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 09:56:11
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 15:46:40
 *****
-RT @epigmenioibarra: Ante el poder autoritario y corrupto, que-en nombre de una élite rapaz que mandaba sobre él-masacraba y saqueaba,yo me…
-[Permalink](https://twitter.com/fernandeznorona/status/1486397570020749320) | 0 Me Gusta | 407 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1486485773985759235) | 10 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 09:55:39
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 15:45:20
 *****
-Ya.
-[Permalink](https://twitter.com/fernandeznorona/status/1486397437061341196) | 4 Me Gusta | 0 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1486485436386078724) | 7 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 09:49:39
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 15:44:39
 *****
-Yo digo, además de valientes eran revolucionarios esos jóvenes. Puedes compartir o no sus métodos y sacarlos de contexto, pero eso no te hace mejor que ellos. Por otra parte, en el fuego cruzado, nunca se esclareció de dónde procedía la bala que mató al empresario.
-[Permalink](https://twitter.com/fernandeznorona/status/1486395927158046723) | 18 Me Gusta | 5 Retweets
+RT @alvaro_delgado: El actor Eric del Castillo se queja de que no le den trabajo por no vacunarse contra la COVID
+[Permalink](https://twitter.com/fernandeznorona/status/1486485266445463553) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 09:47:13
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 15:44:13
 *****
-Estás obligado a ser serio y preciso. @HistoriaPedro_ nunca dijo que fueran buenas personas quienes intentaron secuestrar a Garza Sada. Dijo que eran jóvenes valientes y eso no podrás regateárselos.
-[Permalink](https://twitter.com/fernandeznorona/status/1486395312948326402) | 14 Me Gusta | 5 Retweets
+Manda MD para ponernos de acuerdo.
+[Permalink](https://twitter.com/fernandeznorona/status/1486485157842341888) | 12 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 09:38:10
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 15:43:46
 *****
-Le van a llover mensajes pero no precisamente de apoyo.
-[Permalink](https://twitter.com/fernandeznorona/status/1486393035642523657) | 12 Me Gusta | 4 Retweets
+A mí me interesa. En el consejo editorial de @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1486485044176699394) | 17 Me Gusta | 1 Retweets

@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 20:27:48
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 15:18:58
 *****
-RT @LOVREGA: En corto:
-
-
-Voy con Claudia, a pesar de que la Sekkta no suma, resta.
-
-
-Punto.
-[Permalink](https://twitter.com/fernandeznorona/status/1486556523945934848) | 0 Me Gusta | 60 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1486841188548288519) | 12 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 20:26:07
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 15:03:20
 *****
-RT @LibreMurcielaga: #AhíVamos 🧛🏽‍♀️🏳️
-[Permalink](https://twitter.com/fernandeznorona/status/1486556098287001602) | 0 Me Gusta | 12 Retweets
+Soy feliz.
+[Permalink](https://twitter.com/fernandeznorona/status/1486837254190415874) | 94 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 20:25:36
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 14:56:31
 *****
-RT @jairocalixto: Cuántos más, Bosé, cuántos más??? #DéjenseAhí
-[Permalink](https://twitter.com/fernandeznorona/status/1486555967605063684) | 0 Me Gusta | 157 Retweets
+RT @Navegaciones: Miente Max Kaiser: el @INEMexico no probó nada. Como lo estableció la resolución del @TEPJF_informa, no pudo demostrar un…
+[Permalink](https://twitter.com/fernandeznorona/status/1486835540188086272) | 0 Me Gusta | 663 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 20:23:46
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 14:49:21
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1486555507309654020) | 29 Me Gusta | 8 Retweets
+Miren gaznápiros de @pueblacapital21.
+[Permalink](https://twitter.com/fernandeznorona/status/1486833737274953729) | 16 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2022 a las 20:20:40
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 14:47:01
 *****
-46% para privados. De lo contrario pasaría de 100%.
-[Permalink](https://twitter.com/fernandeznorona/status/1486554728741941253) | 37 Me Gusta | 4 Retweets
+Y se dicen periodistas, por lo menos deberían tener el valor de dar la cara, miserables.
+[Permalink](https://twitter.com/fernandeznorona/status/1486833151137746945) | 35 Me Gusta | 9 Retweets

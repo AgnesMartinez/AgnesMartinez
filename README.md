@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 15:18:58
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 19:33:32
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1486841188548288519) | 12 Me Gusta | 0 Retweets
+No procede ningún amparo contra una reforma constitucional pandilla de ignorantes.
+[Permalink](https://twitter.com/fernandeznorona/status/1486905253253505025) | 103 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 15:03:20
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 19:31:35
 *****
-Soy feliz.
-[Permalink](https://twitter.com/fernandeznorona/status/1486837254190415874) | 94 Me Gusta | 10 Retweets
+¿Te refieres al periodo en que usurpaste la presidencia #TomandanteBorolas alias @FelipeCalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1486904764411658240) | 160 Me Gusta | 40 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 14:56:31
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 19:27:29
 *****
-RT @Navegaciones: Miente Max Kaiser: el @INEMexico no probó nada. Como lo estableció la resolución del @TEPJF_informa, no pudo demostrar un…
-[Permalink](https://twitter.com/fernandeznorona/status/1486835540188086272) | 0 Me Gusta | 663 Retweets
+Imparcial.
+[Permalink](https://twitter.com/fernandeznorona/status/1486903731010654211) | 23 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 14:49:21
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 18:07:24
 *****
-Miren gaznápiros de @pueblacapital21.
-[Permalink](https://twitter.com/fernandeznorona/status/1486833737274953729) | 16 Me Gusta | 6 Retweets
+RT @SupsipS: Urgente, RT RT RT RT
+Por favor ayúdenme a difundir esta ficha. Es amiga de la hija mayor de mi mejor amigo...
+[Permalink](https://twitter.com/fernandeznorona/status/1486883578822549504) | 0 Me Gusta | 81 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 14:47:01
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2022 a las 17:09:25
 *****
-Y se dicen periodistas, por lo menos deberían tener el valor de dar la cara, miserables.
-[Permalink](https://twitter.com/fernandeznorona/status/1486833151137746945) | 35 Me Gusta | 9 Retweets
+9009 en Facebook y, 8428 en YouTube. Hoy traté temas muy importantes y creo que no hacerte en el título de la charla.
+[Permalink](https://twitter.com/fernandeznorona/status/1486868985161437187) | 38 Me Gusta | 6 Retweets

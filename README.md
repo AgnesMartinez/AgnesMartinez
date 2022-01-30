@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 10:10:17
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 15:49:30
 *****
-Ya les platicaré de este importante proyecto que encabeza ⁦@Claudiashein⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1487488281805615106) | 5 Me Gusta | 0 Retweets
+RT @SinLinea_Mx: En lo que terminó la Alianza Federalista 🤣
+\#CirculaEnRedes
+[Permalink](https://twitter.com/fernandeznorona/status/1487573651486609415) | 0 Me Gusta | 566 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 08:21:41
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 15:49:19
 *****
-Caray, #AziNoAnlo. Ni España se salva de la mala administración del compañero presidente @lopezobrador_.
-[Permalink](https://twitter.com/fernandeznorona/status/1487460953784467460) | 48 Me Gusta | 8 Retweets
+RT @fisgonmonero: La derecha mexicana arma una campaña de odio y descrédito contra @HLGatell, el hombre que enfrentó la pandemia, que nos i…
+[Permalink](https://twitter.com/fernandeznorona/status/1487573601427599360) | 0 Me Gusta | 1,539 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 08:17:41
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 15:48:39
 *****
-Ya en el DF.
-[Permalink](https://twitter.com/fernandeznorona/status/1487459944773337090) | 36 Me Gusta | 2 Retweets
+RT @LibreMurcielaga: ¡Los primeros visitantes! 🧛🏽‍♀️👽🖖🏽🌹
+[Permalink](https://twitter.com/fernandeznorona/status/1487573436595679237) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 06:43:06
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 15:48:18
 *****
-Es que ningún epidemiólogo se atrevería a decir las sandeces que sostiene la sacamuelas.
-[Permalink](https://twitter.com/fernandeznorona/status/1487436142907641857) | 83 Me Gusta | 17 Retweets
+Si ya llevan varias caguamas, si es mucho pedir.
+[Permalink](https://twitter.com/fernandeznorona/status/1487573349152788480) | 36 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 06:32:52
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 15:30:12
 *****
-El agua estaba helada, ya me volvió a dar coví, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1487433566594162697) | 75 Me Gusta | 4 Retweets
+Antes de que Loretito mande el drón. 29/1/2022
+[Permalink](https://twitter.com/fernandeznorona/status/1487568792175747076) | 23 Me Gusta | 9 Retweets

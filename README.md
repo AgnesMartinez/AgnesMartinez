@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 21:11:33
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2022 a las 09:45:35
 *****
-¡Fuera el gas farsantes y la IP, está abasteciendo el 55% del mercado nacional con gas!
-[Permalink](https://twitter.com/fernandeznorona/status/1487654695871074304) | 42 Me Gusta | 6 Retweets
+RT @CasaDeLaLectura: El día a día del escritor en Viena, París, Zúrich, Berna o la fascinación que le produjeron Nueva York y Río de Janeir…
+[Permalink](https://twitter.com/fernandeznorona/status/1487844454245572614) | 0 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 20:34:16
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2022 a las 09:44:54
 *****
-RT @HilarioRC_: Así el nivel de intolerancia de @EnriqueAlfaroR. Un gobernante puede tener o no la razón, pero siempre debe estar preparado…
-[Permalink](https://twitter.com/fernandeznorona/status/1487645311539556353) | 0 Me Gusta | 113 Retweets
+RT @ChalecosAmarill: 🎥🛑La fiscalía de #Peru 🇵🇪 pidió el jueves #27Enero a la justicia que prohíba salir del país durante 18 meses a 4 direc…
+[Permalink](https://twitter.com/fernandeznorona/status/1487844283893915655) | 0 Me Gusta | 177 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 20:33:43
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2022 a las 09:42:08
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1487645174805245952) | 72 Me Gusta | 7 Retweets
+RT @ZuritaCarpio: Gracias a la presión de las redes sociales, Carolyn y José Ramón se muden a una casa Geo en Chalco para empezar desde cer…
+[Permalink](https://twitter.com/fernandeznorona/status/1487843587115126784) | 0 Me Gusta | 794 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 17:13:47
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2022 a las 09:41:42
 *****
-11,466 en Facebook y, 9512 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1487594859234041858) | 58 Me Gusta | 4 Retweets
+Congelado.
+[Permalink](https://twitter.com/fernandeznorona/status/1487843479245967364) | 5 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2022 a las 15:49:30
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2022 a las 09:38:05
 *****
-RT @SinLinea_Mx: En lo que terminó la Alianza Federalista 🤣
-\#CirculaEnRedes
-[Permalink](https://twitter.com/fernandeznorona/status/1487573651486609415) | 0 Me Gusta | 734 Retweets
+Feliz cumpleaños a Lupita.
+[Permalink](https://twitter.com/fernandeznorona/status/1487842566833852418) | 5 Me Gusta | 3 Retweets

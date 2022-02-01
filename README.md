@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 08:17:17
+**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 16:01:32
 *****
-RT @ebauman70: @JavierVillamor @InesSainzOf @fernandeznorona @TertuliasLiber1 @SciutoDr @drgbayona @JulioRazona @rubengluengas @pastordc311…
-[Permalink](https://twitter.com/fernandeznorona/status/1488184620462006273) | 0 Me Gusta | 10 Retweets
+RT @CanalCongreso: 📌¿Quiénes pagan más y quiénes pagan menos por el consumo de electricidad? 💡¡Conoce la respuesta en el Foro 11 de la #Ref…
+[Permalink](https://twitter.com/fernandeznorona/status/1488301452070170629) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 08:12:51
+**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 15:11:39
 *****
-Muchas felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1488183504064196619) | 14 Me Gusta | 2 Retweets
+RT @providadeporvid: Ya se pronunció el colegio de mi hijo, PCR cada lunes para asistir presencial, a niños SANOS de 6 años, por favor ¡Par…
+[Permalink](https://twitter.com/fernandeznorona/status/1488288901798244354) | 0 Me Gusta | 527 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 08:09:25
+**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 11:24:39
 *****
-Ya en el DF. Llegando a la plenaria del @PTnacionalMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1488182643078451201) | 30 Me Gusta | 5 Retweets
+Es muy bello libro.
+[Permalink](https://twitter.com/fernandeznorona/status/1488231771548401664) | 27 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 06:07:18
+**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 11:18:44
 *****
-Saliendo de Pueblo quieto rumbo al D.F.
-[Permalink](https://twitter.com/fernandeznorona/status/1488151909923971073) | 41 Me Gusta | 1 Retweets
+La audiencia de @RicardoAnayaC se pospuso al 14 de febrero para que éste pueda disfrutar el día 13 el súper tazón. Coví muy conveniente de un juez.
+[Permalink](https://twitter.com/fernandeznorona/status/1488230283597987843) | 199 Me Gusta | 50 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2022 a las 20:06:15
+**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 11:15:36
 *****
-RT @insolitista: Me quedan pocas horas en tu Patria, querida Presidenta @XiomaraCastroZ. Vine a verte en tu gran día y lamento no haberte v…
-[Permalink](https://twitter.com/fernandeznorona/status/1488000651544125444) | 0 Me Gusta | 22 Retweets
+RT @Patriciomonero: Achichincle democrático
+[Permalink](https://twitter.com/fernandeznorona/status/1488229497673588740) | 0 Me Gusta | 320 Retweets

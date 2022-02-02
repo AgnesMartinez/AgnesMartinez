@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 20:50:21
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 15:53:15
 *****
-Los terminé, muy simpático, aunque luego se pone un poco denso.
-[Permalink](https://twitter.com/fernandeznorona/status/1488374136913252357) | 28 Me Gusta | 4 Retweets
+No sabía que la constitución perdía votaciones. Sabía que le hacían tormento, como cuando gobernaba un conocido tuyo que usurpó la presidencia y se la pasaba por el arco del triunfo. ¿Verdad #tomandanteborolas alias @FelipeCalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1488661758537576448) | 22 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 20:39:38
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 15:51:06
 *****
-27,046 en Facebook y, 12,632 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1488371439069712384) | 29 Me Gusta | 3 Retweets
+Pues no. Los trabajadores petroleros ya están bastante grandecitos y son los responsables de quién conduce su sindicato.
+[Permalink](https://twitter.com/fernandeznorona/status/1488661217262641152) | 15 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 20:23:28
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 15:48:01
 *****
-Eres un farsante @CiroMurayamaINE. Por eso necesitas 3900 millones de pesos. Más 1900 millones de pesos adicionales para una consulta inexistente. Pandilla de ladrones es lo que son.
-[Permalink](https://twitter.com/fernandeznorona/status/1488367372016787457) | 153 Me Gusta | 56 Retweets
+Ahí te hablan @CarlosLoret.
+[Permalink](https://twitter.com/fernandeznorona/status/1488660440947302400) | 52 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 20:22:02
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 15:45:52
 *****
-Es muy buen disco.
-[Permalink](https://twitter.com/fernandeznorona/status/1488367012049047555) | 27 Me Gusta | 0 Retweets
+Naa, ustedes son autónomos, @SHCP_mx es parte del ejecutivo federal. A pesar de ello, Hacienda les dio la solución, pero ustedes quieren seguirse dando la gran vida a costas del pueblo @CiroMurayamaINE @INEMexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1488659897935872000) | 44 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2022 a las 18:06:57
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 15:36:30
 *****
-Ya voy rumbo a la casa para hacer la transmisión de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1488333013800955906) | 111 Me Gusta | 8 Retweets
+RT @Sanx415:
+[Permalink](https://twitter.com/fernandeznorona/status/1488657540292349958) | 0 Me Gusta | 3 Retweets

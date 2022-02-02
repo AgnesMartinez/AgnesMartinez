@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 15:53:15
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 20:31:06
 *****
-No sabía que la constitución perdía votaciones. Sabía que le hacían tormento, como cuando gobernaba un conocido tuyo que usurpó la presidencia y se la pasaba por el arco del triunfo. ¿Verdad #tomandanteborolas alias @FelipeCalderon?
-[Permalink](https://twitter.com/fernandeznorona/status/1488661758537576448) | 22 Me Gusta | 10 Retweets
+Pronta recuperación.
+[Permalink](https://twitter.com/fernandeznorona/status/1488731680437243904) | 20 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 15:51:06
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 20:29:09
 *****
-Pues no. Los trabajadores petroleros ya están bastante grandecitos y son los responsables de quién conduce su sindicato.
-[Permalink](https://twitter.com/fernandeznorona/status/1488661217262641152) | 15 Me Gusta | 4 Retweets
+RT @ErendiraTecpatl: 👀 ¿Ya conocen el trabajo que se hace en el taller de Francisca Palafox, tejedora ikoots de San Mateo del Mar? 😍 
+Ella,…
+[Permalink](https://twitter.com/fernandeznorona/status/1488731190034976768) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 15:48:01
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 20:28:26
 *****
-Ahí te hablan @CarlosLoret.
-[Permalink](https://twitter.com/fernandeznorona/status/1488660440947302400) | 52 Me Gusta | 10 Retweets
+Si hubiese militarización, los legisladores de movimiento paniaguado NUNCA se habrían atrevido a faltar al respeto a los símbolos patrios. @MovCiudadanoMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1488731007503126528) | 29 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 15:45:52
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 20:27:19
 *****
-Naa, ustedes son autónomos, @SHCP_mx es parte del ejecutivo federal. A pesar de ello, Hacienda les dio la solución, pero ustedes quieren seguirse dando la gran vida a costas del pueblo @CiroMurayamaINE @INEMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1488659897935872000) | 44 Me Gusta | 12 Retweets
+Eres muy, pero muy ignorante. Tuvimos el enorme honor de qué la banda militar y un escolta encabezaron los honores a la bandera en la ceremonia solemne que @MovCiudadanoMX se pasó por el arco del triunfo y seguro celebras.
+[Permalink](https://twitter.com/fernandeznorona/status/1488730726686027777) | 57 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 15:36:30
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 20:24:40
 *****
-RT @Sanx415:
-[Permalink](https://twitter.com/fernandeznorona/status/1488657540292349958) | 0 Me Gusta | 3 Retweets
+Pues a dormir, mañana debo estar a las 8:30 de la mañana en @SEDENAmx.
+[Permalink](https://twitter.com/fernandeznorona/status/1488730062790692865) | 70 Me Gusta | 9 Retweets

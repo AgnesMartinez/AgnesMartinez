@@ -1,27 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 20:31:06
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 09:55:44
 *****
-Pronta recuperación.
-[Permalink](https://twitter.com/fernandeznorona/status/1488731680437243904) | 23 Me Gusta | 1 Retweets
+La manera como esta persona miente sobre la situación de @CFEmx es de una mala fe impresionante, porque soy gente que debe conocer la verdadera situación. ¿Dónde dice que estudió Mariana?
+[Permalink](https://twitter.com/fernandeznorona/status/1488934171779158016) | 23 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 20:29:09
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 08:21:24
 *****
-RT @ErendiraTecpatl: 👀 ¿Ya conocen el trabajo que se hace en el taller de Francisca Palafox, tejedora ikoots de San Mateo del Mar? 😍 
-Ella,…
-[Permalink](https://twitter.com/fernandeznorona/status/1488731190034976768) | 0 Me Gusta | 17 Retweets
+RT @LJyDMX: Larga vida a Genaro Vázquez a 50 años de su muerte.
+\#RevolucionarioDeLosPueblosOprimidos
+[Permalink](https://twitter.com/fernandeznorona/status/1488910433104936960) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 20:28:26
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 05:40:57
 *****
-Si hubiese militarización, los legisladores de movimiento paniaguado NUNCA se habrían atrevido a faltar al respeto a los símbolos patrios. @MovCiudadanoMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1488731007503126528) | 38 Me Gusta | 12 Retweets
+Es más, no sé como no se le había ocurrido al compañero presidente sustituir a @HLGatell por @FerVilchisMx. Con que pusieran a su servicio la @GN_MEXICO_ pararía la ola de contagios en México. Es un genio.
+[Permalink](https://twitter.com/fernandeznorona/status/1488870052526915584) | 41 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 20:27:19
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 05:34:18
 *****
-Eres muy, pero muy ignorante. Tuvimos el enorme honor de qué la banda militar y un escolta encabezaron los honores a la bandera en la ceremonia solemne que @MovCiudadanoMX se pasó por el arco del triunfo y seguro celebras.
-[Permalink](https://twitter.com/fernandeznorona/status/1488730726686027777) | 71 Me Gusta | 29 Retweets
+Es más debería asesorar al primer ministro de Canadá @JustinTrudeau cómo debe usar el cubrebocas para no contagiarse. @FerVilchisMx va que vuela para presidir la @opsoms. En una de esas le dan hasta el Nobel de medicina.
+[Permalink](https://twitter.com/fernandeznorona/status/1488868381147103233) | 53 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2022 a las 20:24:40
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 05:33:17
 *****
-Pues a dormir, mañana debo estar a las 8:30 de la mañana en @SEDENAmx.
-[Permalink](https://twitter.com/fernandeznorona/status/1488730062790692865) | 89 Me Gusta | 10 Retweets
+Israel va por la quinta vacuna contra el COVID. No sé porque su embajada no ha pedido la asesoría de @FerVilchisMx, él sí sabe como parar los contagios con un trapito.
+[Permalink](https://twitter.com/fernandeznorona/status/1488868123994296322) | 65 Me Gusta | 17 Retweets

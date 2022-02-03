@@ -1,27 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 09:55:44
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 15:53:44
 *****
-La manera como esta persona miente sobre la situación de @CFEmx es de una mala fe impresionante, porque soy gente que debe conocer la verdadera situación. ¿Dónde dice que estudió Mariana?
-[Permalink](https://twitter.com/fernandeznorona/status/1488934171779158016) | 23 Me Gusta | 5 Retweets
+Por cierto, yo parto de la buena fe. Ayer vi al hijo de la vecina del 6, de Leandro Valle 14. Me dijeron que ya no vivía ahí y mintieron. Él fue el que me amenazó con saquear el departamento.
+[Permalink](https://twitter.com/fernandeznorona/status/1489024264707710976) | 28 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 08:21:24
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 15:45:35
 *****
-RT @LJyDMX: Larga vida a Genaro Vázquez a 50 años de su muerte.
-\#RevolucionarioDeLosPueblosOprimidos
-[Permalink](https://twitter.com/fernandeznorona/status/1488910433104936960) | 0 Me Gusta | 15 Retweets
+No subestimes a @FerVilchisMx, es el epidemiólogo más brillante del país. La @opsoms lo anda buscando, pero no lo encuentra entre todas las capas de cubrebocas que porta.
+[Permalink](https://twitter.com/fernandeznorona/status/1489022214196408321) | 17 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 05:40:57
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 13:43:39
 *****
-Es más, no sé como no se le había ocurrido al compañero presidente sustituir a @HLGatell por @FerVilchisMx. Con que pusieran a su servicio la @GN_MEXICO_ pararía la ola de contagios en México. Es un genio.
-[Permalink](https://twitter.com/fernandeznorona/status/1488870052526915584) | 41 Me Gusta | 11 Retweets
+RT @fisgonmonero: El que engaña adrede no merece ser llamado periodista.
+ 
+Lo único que demuestra el reportaje sobre la casa de Houston de…
+[Permalink](https://twitter.com/fernandeznorona/status/1488991528378933248) | 0 Me Gusta | 2,009 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 05:34:18
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 13:43:03
 *****
-Es más debería asesorar al primer ministro de Canadá @JustinTrudeau cómo debe usar el cubrebocas para no contagiarse. @FerVilchisMx va que vuela para presidir la @opsoms. En una de esas le dan hasta el Nobel de medicina.
-[Permalink](https://twitter.com/fernandeznorona/status/1488868381147103233) | 53 Me Gusta | 22 Retweets
+RT @lopezobrador_: Hoy es Día de la Candelaria, día de los tamales. El que sacó muñequito que no se haga rosca ¡Bendita tradición! https://…
+[Permalink](https://twitter.com/fernandeznorona/status/1488991380177403922) | 0 Me Gusta | 4,125 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 05:33:17
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2022 a las 13:42:53
 *****
-Israel va por la quinta vacuna contra el COVID. No sé porque su embajada no ha pedido la asesoría de @FerVilchisMx, él sí sabe como parar los contagios con un trapito.
-[Permalink](https://twitter.com/fernandeznorona/status/1488868123994296322) | 65 Me Gusta | 17 Retweets
+Ahí te hablan cabeza hueca @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1488991338938912774) | 97 Me Gusta | 34 Retweets

@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2022 a las 18:20:56
+**Fernández Noroña** (**@fernandeznorona**) • 04-02-2022 a las 09:57:24
 *****
-14,784 en Facebook y, 11,255 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1489423697601515526) | 45 Me Gusta | 5 Retweets
+El Gobierno aprobará el martes el fin de las mascarillas en el exterior
+[Permalink](https://twitter.com/fernandeznorona/status/1489659369507770368) | 12 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2022 a las 18:18:52
+**Fernández Noroña** (**@fernandeznorona**) • 04-02-2022 a las 09:21:21
 *****
-En vista de la cancelación intempestiva de mi visita a Villahermosa, me regresaré a Pueblo quieto. Mañana iré a caminar a la montaña que bastante bien me hace.
-[Permalink](https://twitter.com/fernandeznorona/status/1489423177189048325) | 93 Me Gusta | 9 Retweets
+RT @TobiasLatour: Los mismos que dijeron que Ferrocarriles Nacionales necesitaba inversión privada para crecer ahora lo dicen de la generac…
+[Permalink](https://twitter.com/fernandeznorona/status/1489650296355708933) | 0 Me Gusta | 143 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2022 a las 17:38:21
+**Fernández Noroña** (**@fernandeznorona**) • 04-02-2022 a las 09:21:14
 *****
-Me voy a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1489412980911583232) | 64 Me Gusta | 4 Retweets
+No sabía que te habías contagiado. Pronta recuperación. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1489650266739822592) | 26 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2022 a las 17:38:13
+**Fernández Noroña** (**@fernandeznorona**) • 04-02-2022 a las 09:20:21
 *****
-Me acaban de avisar la suspensión del evento de mañana en Tabasco. @cantonzetina explicará. No ofrezco disculpas porque no tengo que ver en el tema.
-[Permalink](https://twitter.com/fernandeznorona/status/1489412948783157249) | 50 Me Gusta | 4 Retweets
+RT @librofilos: Leer me salvó la vida, escribir le dio un sentido. 
+
+
+\#JordiSierra
+[Permalink](https://twitter.com/fernandeznorona/status/1489650045683122180) | 0 Me Gusta | 48 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2022 a las 14:56:58
+**Fernández Noroña** (**@fernandeznorona**) • 04-02-2022 a las 09:19:48
 *****
-Muchísimas gracias por tu bello verso. Abrazote. Iba a poner remachado, pero ibas a pensar que era albur.
-[Permalink](https://twitter.com/fernandeznorona/status/1489372368602640384) | 61 Me Gusta | 10 Retweets
+@AliteyU Debe ser al revés, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1489649907292119042) | 0 Me Gusta | 0 Retweets

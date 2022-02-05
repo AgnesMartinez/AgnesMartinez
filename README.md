@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-02-2022 a las 20:18:34
+**Fernández Noroña** (**@fernandeznorona**) • 05-02-2022 a las 09:58:05
 *****
-RT @rubengluengas: 🇫🇮Protest ante el Parlamento de Helsinki, en Finlandia por lo mismo que se protesta en Canadá. 👁⬇️👁
-[Permalink](https://twitter.com/fernandeznorona/status/1489815688457990145) | 0 Me Gusta | 124 Retweets
+As hi te hablan @CarlosLoret.
+[Permalink](https://twitter.com/fernandeznorona/status/1490021927792136198) | 10 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-02-2022 a las 20:13:09
+**Fernández Noroña** (**@fernandeznorona**) • 05-02-2022 a las 09:57:22
 *****
-¡Qué barbaridad! Ahí te hablan genio de la epidemiología @FerVilchisMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1489814326869475330) | 45 Me Gusta | 21 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1490021749211254784) | 9 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-02-2022 a las 20:10:19
+**Fernández Noroña** (**@fernandeznorona**) • 05-02-2022 a las 09:57:08
 *****
-RT @Nubia_SCG: Por situaciones como esta es perfectamente válido que cada quien analice y decida si se vacuna o no.
-
-
-Y eso no es ser anti v…
-[Permalink](https://twitter.com/fernandeznorona/status/1489813612436852738) | 0 Me Gusta | 22 Retweets
+RT @SupsipS: Mientras sigan pensando, señores, que femeneizar a otros hombres es gracioso o un insulto efectivo, no vamos a avanzar.
+Ser mu…
+[Permalink](https://twitter.com/fernandeznorona/status/1490021686749577222) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-02-2022 a las 20:09:58
+**Fernández Noroña** (**@fernandeznorona**) • 05-02-2022 a las 09:51:42
 *****
-RT @aga10mx: El petróleo es "tan rechazado e indeaseado en el mundo" que el mundo lo paga a 100 dólares el barril
-[Permalink](https://twitter.com/fernandeznorona/status/1489813526726205442) | 0 Me Gusta | 18 Retweets
+Oye genio, revisa tu declaración @robpalazuelos, amenazaste a periodistas si llegabas al gobierno del Estado. Eso hiciste.
+[Permalink](https://twitter.com/fernandeznorona/status/1490020322321608704) | 30 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-02-2022 a las 20:09:33
+**Fernández Noroña** (**@fernandeznorona**) • 05-02-2022 a las 09:49:47
 *****
-Mira, pensé que andaban pidiendo dinero para hacer la consulta @CiroMurayamaINE. #Neuronacidio.
-[Permalink](https://twitter.com/fernandeznorona/status/1489813419930886144) | 47 Me Gusta | 11 Retweets
+Mira, uno de tus hermanos de sangre @FerVilchisMx. No estás solo en tu demencial cruzada.
+[Permalink](https://twitter.com/fernandeznorona/status/1490019839787900929) | 14 Me Gusta | 5 Retweets

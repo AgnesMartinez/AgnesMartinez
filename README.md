@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2022 a las 20:43:27
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2022 a las 08:58:45
 *****
-Ya llegamos a Zitácuaro, aquí dormiré.
-[Permalink](https://twitter.com/fernandeznorona/status/1490184338926977027) | 103 Me Gusta | 3 Retweets
+Ya en Ciudad Hidalgo, Michoacán.
+[Permalink](https://twitter.com/fernandeznorona/status/1490369384929533959) | 27 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2022 a las 17:19:25
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2022 a las 07:45:00
 *****
-Otro que confunde la plaza de Leandro Valle con estacionamiento ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1490132991263199234) | 63 Me Gusta | 15 Retweets
+Y sí.
+[Permalink](https://twitter.com/fernandeznorona/status/1490350825008418820) | 20 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2022 a las 12:22:12
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2022 a las 07:44:44
 *****
-Ya en el D.F.
-[Permalink](https://twitter.com/fernandeznorona/status/1490058197310320642) | 68 Me Gusta | 1 Retweets
+RT @jgnaredo: Escribe Javier Sicilia:
+
+
+“A López Obrador le hemos encontrado parecidos como Hitler, Stalin, Díaz Ordaz, Echeverría, Chávez……
+[Permalink](https://twitter.com/fernandeznorona/status/1490350755336929294) | 0 Me Gusta | 334 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2022 a las 10:39:28
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2022 a las 07:44:22
 *****
-Más países en Europa dicen adiós al cubrebocas obligatorio. Mira genio de la epidemiología ⁦@FerVilchisMx⁩, El mundo se empeña en hacerte ver como un idiota.
-[Permalink](https://twitter.com/fernandeznorona/status/1490032343825977346) | 79 Me Gusta | 28 Retweets
+RT @Luna_Tagg: De Tamaulipas...
+[Permalink](https://twitter.com/fernandeznorona/status/1490350665276829697) | 0 Me Gusta | 48 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2022 a las 09:58:05
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2022 a las 07:44:10
 *****
-As hi te hablan @CarlosLoret.
-[Permalink](https://twitter.com/fernandeznorona/status/1490021927792136198) | 51 Me Gusta | 20 Retweets
+¡Qué maravilla!
+[Permalink](https://twitter.com/fernandeznorona/status/1490350615175872512) | 70 Me Gusta | 11 Retweets

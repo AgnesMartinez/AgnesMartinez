@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 14:01:33
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 20:22:37
 *****
-Con Santiago del sagrado corazón de Jesús.
-[Permalink](https://twitter.com/fernandeznorona/status/1490807973526093824) | 114 Me Gusta | 9 Retweets
+Lo terminé. Levrero es muy bueno, divertida novela, aunque el personaje es un pelmazo.
+[Permalink](https://twitter.com/fernandeznorona/status/1490903872034033665) | 23 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 13:43:54
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 19:32:10
 *****
-Aplica exactamente para ustedes y su campaña canalla. ¿Se dan cuenta de cómo promueven la violencia contra el compañero presidente?
-[Permalink](https://twitter.com/fernandeznorona/status/1490803532022353924) | 54 Me Gusta | 16 Retweets
+En realidad es un tamal que llegó el 3 de febrero, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1490891178153496577) | 16 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 13:42:26
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 19:31:41
 *****
-¡Qué bonito! Se me salieron las de cocodrilo.
-[Permalink](https://twitter.com/fernandeznorona/status/1490803165058502658) | 94 Me Gusta | 30 Retweets
+@maurojas360 @Mike28dev Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1490891053838200833) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 13:39:55
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 19:29:57
 *****
-RT @rosaicela_: Felicito por su cumpleaños al general @Luis_C_Sandoval , titular de la @SEDENAmx y compañero de Gabinete del @GobiernoMX de…
-[Permalink](https://twitter.com/fernandeznorona/status/1490802528178556931) | 0 Me Gusta | 333 Retweets
+El impresentable de @robpalazuelos confiesa que asesinó y hay miserables que dicen fue en legítima defensa, cuando el mismo confiesa el dolo y mala fe con que actuó. Va muy bien @MovCiudadanoMX #MovimientoPaniaguado.
+[Permalink](https://twitter.com/fernandeznorona/status/1490890616964018182) | 177 Me Gusta | 46 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 13:19:00
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 19:26:27
 *****
-RT @rubengluengas: Y mientras tanto Rotterdam protesta contra las medidas “sanitarias” 👁⬇️👁
-[Permalink](https://twitter.com/fernandeznorona/status/1490797263962128386) | 0 Me Gusta | 168 Retweets
+Y los feminicidios. ¿Verdad genio de la epidemiología @FerVilchisMx?
+[Permalink](https://twitter.com/fernandeznorona/status/1490889736491532292) | 19 Me Gusta | 5 Retweets

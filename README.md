@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 09:57:40
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 14:01:33
 *****
-Impresionantes las estadísticas sobre disminución de delitos de alto impacto del gobierno de la capital del país que encabeza @Claudiashein. Arriba del 60%.
-[Permalink](https://twitter.com/fernandeznorona/status/1490746597273214979) | 52 Me Gusta | 9 Retweets
+Con Santiago del sagrado corazón de Jesús.
+[Permalink](https://twitter.com/fernandeznorona/status/1490807973526093824) | 114 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 09:35:40
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 13:43:54
 *****
-Muchas felicidades al compañero secretario de @SEDENAmx, General @Luis_C_Sandoval en su cumpleaños.
-[Permalink](https://twitter.com/fernandeznorona/status/1490741062901637123) | 34 Me Gusta | 9 Retweets
+Aplica exactamente para ustedes y su campaña canalla. ¿Se dan cuenta de cómo promueven la violencia contra el compañero presidente?
+[Permalink](https://twitter.com/fernandeznorona/status/1490803532022353924) | 54 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 08:15:13
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 13:42:26
 *****
-Oigan @TELMEXSoluciona desde ayer, en Tepoztlán, Valle Atongo, no hay servicio telefónico y por ende, ni de Internet
-[Permalink](https://twitter.com/fernandeznorona/status/1490720815104495616) | 43 Me Gusta | 11 Retweets
+¡Qué bonito! Se me salieron las de cocodrilo.
+[Permalink](https://twitter.com/fernandeznorona/status/1490803165058502658) | 94 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 07:52:15
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 13:39:55
 *****
-Otro que confunde la plaza de Leandro Valle con estacionamiento ⁦@UCS_GCDMX⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1490715035592630274) | 41 Me Gusta | 6 Retweets
+RT @rosaicela_: Felicito por su cumpleaños al general @Luis_C_Sandoval , titular de la @SEDENAmx y compañero de Gabinete del @GobiernoMX de…
+[Permalink](https://twitter.com/fernandeznorona/status/1490802528178556931) | 0 Me Gusta | 333 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2022 a las 20:46:55
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2022 a las 13:19:00
 *****
-RT @rubengluengas: Sin comentarios 👁⬇️👁
-[Permalink](https://twitter.com/fernandeznorona/status/1490547599581093891) | 0 Me Gusta | 716 Retweets
+RT @rubengluengas: Y mientras tanto Rotterdam protesta contra las medidas “sanitarias” 👁⬇️👁
+[Permalink](https://twitter.com/fernandeznorona/status/1490797263962128386) | 0 Me Gusta | 168 Retweets

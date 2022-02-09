@@ -1,31 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2022 a las 14:15:48
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2022 a las 18:50:55
 *****
-RT @SupsipS: Apóyenme a difundir, por favor.
-Todavía no encuentran a Valeria.
-Ahora se sabe que un desconocido se la llevó a la fuerza.
-
-
-No…
-[Permalink](https://twitter.com/fernandeznorona/status/1491173947043643392) | 0 Me Gusta | 62 Retweets
+RT @BibianaViana:
+[Permalink](https://twitter.com/fernandeznorona/status/1491243183027920897) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2022 a las 14:12:00
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2022 a las 18:49:45
 *****
-Los martes descansa #Pa'losSuelos @robpalazuelos.
-[Permalink](https://twitter.com/fernandeznorona/status/1491172992218693632) | 25 Me Gusta | 12 Retweets
+RT @jenarovillamil: #Informativo14. Hacen públicos sus ingresos los consejeros electorales del @INEMexico: 8,202 pesos diarios. 262 mil pes…
+[Permalink](https://twitter.com/fernandeznorona/status/1491242891297320962) | 0 Me Gusta | 660 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2022 a las 14:10:14
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2022 a las 18:48:20
 *****
-RT @ebauman70: Cae el primer dominó provincial en Saskatchewan terminando restricciones covidianas el 28 de Febrero.
-[Permalink](https://twitter.com/fernandeznorona/status/1491172547576188928) | 0 Me Gusta | 20 Retweets
+Me parece un error que los senadores del movimiento le laven la cara a @lorenzocordovav que fue a una reunión con los paniaguados y ahora ya puede decir que también fue con nosotros.
+[Permalink](https://twitter.com/fernandeznorona/status/1491242531631550464) | 61 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2022 a las 14:07:29
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2022 a las 18:43:48
 *****
-RT @lajornadaonline: #MonerosLaJornada Derecha mexicana del Siglo XXI, cartón de @fisgonmonero
-[Permalink](https://twitter.com/fernandeznorona/status/1491171853289013249) | 0 Me Gusta | 191 Retweets
+RT @jenarovillamil: El auténtico “cartel” durante el gobierno de @FelipeCalderon no estaba fuera sino dentro de la PF: Garcia Luna; Cárdena…
+[Permalink](https://twitter.com/fernandeznorona/status/1491241393573949447) | 0 Me Gusta | 617 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2022 a las 14:06:04
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2022 a las 18:42:21
 *****
-Están obligados a leerlo, @AristeguiOnline, @CarlosLoret.
-[Permalink](https://twitter.com/fernandeznorona/status/1491171500317151238) | 45 Me Gusta | 9 Retweets
+Pero en el caso de las candidaturas de @PartidoMorenaMx no aparezco. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1491241028741103617) | 17 Me Gusta | 1 Retweets

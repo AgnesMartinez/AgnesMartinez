@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 20:20:56
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 06:02:35
 *****
-Apenas voy a la casa y si habrá video charla cerca de las 11 de la noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1491628226568933381) | 114 Me Gusta | 16 Retweets
+Bien merecido su retorno. A seguir luchando, felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1491774601772376064) | 32 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 19:52:58
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 06:01:55
 *****
-RT @epigmenioibarra: Muy distinta sería la historia si esa élite periodística,en lugar de avalar el fraude del 2006,lo hubiera denunciado y…
-[Permalink](https://twitter.com/fernandeznorona/status/1491621188006821889) | 0 Me Gusta | 1,089 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1491774435099033604) | 22 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 19:52:32
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 06:01:21
 *****
-RT @lopezobrador_: Me reuní con John Kerry, enviado presidencial especial de Estados Unidos para el Clima, y como siempre hablamos con fran…
-[Permalink](https://twitter.com/fernandeznorona/status/1491621078917173258) | 0 Me Gusta | 2,921 Retweets
+Seguro conoce el dato, embajador, de que las empresas privadas productoras de electricidad están generando el 56% del monóxido de carbono y producen el 82% de su energía total con gas, que obvio decirlo, es combustible fósil y no es energía limpia.
+[Permalink](https://twitter.com/fernandeznorona/status/1491774292417294342) | 25 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 19:52:08
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 05:59:13
 *****
-Igualito. Bueno, yo en 30 minutos.
-[Permalink](https://twitter.com/fernandeznorona/status/1491620977909944323) | 24 Me Gusta | 2 Retweets
+RT @Ceciliaaaoooo: Tu tía la Panista 😑🤣🤣🤣🤣🤣🤣 ahora sí se mamo jajajajajaja
+[Permalink](https://twitter.com/fernandeznorona/status/1491773755567259653) | 0 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 19:46:52
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 05:58:56
 *****
-Como la Martina, aquí sigo en el parlamento abierto, no me he movido de aquí.
-[Permalink](https://twitter.com/fernandeznorona/status/1491619652870545408) | 178 Me Gusta | 29 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1491773684255793153) | 32 Me Gusta | 5 Retweets

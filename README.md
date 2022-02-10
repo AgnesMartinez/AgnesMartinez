@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 15:41:41
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 20:20:56
 *****
-Naa, son los que suspiran con convertirse en súbditos de una corona -como Vargas Llosa- , que ciudadanos plenos.
-[Permalink](https://twitter.com/fernandeznorona/status/1491557946924449792) | 29 Me Gusta | 6 Retweets
+Apenas voy a la casa y si habrá video charla cerca de las 11 de la noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1491628226568933381) | 93 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 15:37:53
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 19:52:58
 *****
-Ají ej, y contigo, diputada patriota, comprometida y consecuente. Abrazote @JulietaRamirezP.
-[Permalink](https://twitter.com/fernandeznorona/status/1491556992279883781) | 39 Me Gusta | 13 Retweets
+RT @epigmenioibarra: Muy distinta sería la historia si esa élite periodística,en lugar de avalar el fraude del 2006,lo hubiera denunciado y…
+[Permalink](https://twitter.com/fernandeznorona/status/1491621188006821889) | 0 Me Gusta | 1,002 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 13:55:52
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 19:52:32
 *****
-Peor aún, @iberdrola tiene de ibérico solo el nombre. Los dueños de @iberdrola son fondos de inversión que no tienen ni patria, ni moral, ni límites en su voracidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1491531318345273348) | 96 Me Gusta | 44 Retweets
+RT @lopezobrador_: Me reuní con John Kerry, enviado presidencial especial de Estados Unidos para el Clima, y como siempre hablamos con fran…
+[Permalink](https://twitter.com/fernandeznorona/status/1491621078917173258) | 0 Me Gusta | 2,724 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 13:53:38
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 19:52:08
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1491530758850240512) | 49 Me Gusta | 11 Retweets
+Igualito. Bueno, yo en 30 minutos.
+[Permalink](https://twitter.com/fernandeznorona/status/1491620977909944323) | 18 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 13:53:27
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2022 a las 19:46:52
 *****
-Me parece muy bien que te vuelvas súbdito de la corona española, en vez de ciudadano mexicano pleno.
-[Permalink](https://twitter.com/fernandeznorona/status/1491530711173640199) | 57 Me Gusta | 14 Retweets
+Como la Martina, aquí sigo en el parlamento abierto, no me he movido de aquí.
+[Permalink](https://twitter.com/fernandeznorona/status/1491619652870545408) | 153 Me Gusta | 25 Retweets

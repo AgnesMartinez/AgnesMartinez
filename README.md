@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 15:49:53
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 21:40:51
 *****
-Ya rumbo al aeropuerto. @AICM_mx.
-[Permalink](https://twitter.com/fernandeznorona/status/1491922398739849218) | 29 Me Gusta | 2 Retweets
+RT @aura_fdez: Agenda completa de los próximos días @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1492010724239028244) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 15:16:42
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 21:40:09
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1491914050862788609) | 20 Me Gusta | 3 Retweets
+RT @AlmendraYek: Suspenden la cuenta de @LetyMN1  solo por decir  -que suspendan la cuenta de la fachisterigue-
+Así no, se puede.
+👇 https:/…
+[Permalink](https://twitter.com/fernandeznorona/status/1492010546341818395) | 0 Me Gusta | 81 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 15:14:48
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 21:39:25
 *****
-¡Ya no es independiente! Bien @MarkoCortes, !cómo sumas! Ya solo te falta @EmilioAlvarezI.
-[Permalink](https://twitter.com/fernandeznorona/status/1491913571382484994) | 18 Me Gusta | 6 Retweets
+En ningún caso se piden antecedentes penales. Por otra parte, nadie puede ser candidato si está suspendido en sus derechos políticos porque está preso. Me parece lamentable que promuevan la despolitización hoy que el congreso es mayoritariamente del pueblo.
+[Permalink](https://twitter.com/fernandeznorona/status/1492010363897982981) | 15 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 15:09:33
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 21:35:45
 *****
-Naa, te corregí una falta de ortografía. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1491912251862917123) | 9 Me Gusta | 1 Retweets
+RT @pedrokanche: Estoy saliendo del Cereso de Chetumal,fui a entrevistar a Manuel y dice y consta en el expediente que fue torturado por la…
+[Permalink](https://twitter.com/fernandeznorona/status/1492009442690412547) | 0 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 14:37:57
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 21:35:13
 *****
-RT @Luis_C_Sandoval: Hoy en el 107 Aniversario de la #FuerzaAéreaMexicana, felicitamos a las mujeres y hombres de esta fuerza armada que en…
-[Permalink](https://twitter.com/fernandeznorona/status/1491904296228634626) | 0 Me Gusta | 211 Retweets
+Claro.
+[Permalink](https://twitter.com/fernandeznorona/status/1492009308279746585) | 8 Me Gusta | 2 Retweets

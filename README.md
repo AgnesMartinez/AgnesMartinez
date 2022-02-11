@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 06:02:35
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 15:49:53
 *****
-Bien merecido su retorno. A seguir luchando, felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1491774601772376064) | 32 Me Gusta | 6 Retweets
+Ya rumbo al aeropuerto. @AICM_mx.
+[Permalink](https://twitter.com/fernandeznorona/status/1491922398739849218) | 29 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 06:01:55
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 15:16:42
 *****
 Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1491774435099033604) | 22 Me Gusta | 4 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1491914050862788609) | 20 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 06:01:21
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 15:14:48
 *****
-Seguro conoce el dato, embajador, de que las empresas privadas productoras de electricidad están generando el 56% del monóxido de carbono y producen el 82% de su energía total con gas, que obvio decirlo, es combustible fósil y no es energía limpia.
-[Permalink](https://twitter.com/fernandeznorona/status/1491774292417294342) | 25 Me Gusta | 5 Retweets
+¡Ya no es independiente! Bien @MarkoCortes, !cómo sumas! Ya solo te falta @EmilioAlvarezI.
+[Permalink](https://twitter.com/fernandeznorona/status/1491913571382484994) | 18 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 05:59:13
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 15:09:33
 *****
-RT @Ceciliaaaoooo: Tu tía la Panista 😑🤣🤣🤣🤣🤣🤣 ahora sí se mamo jajajajajaja
-[Permalink](https://twitter.com/fernandeznorona/status/1491773755567259653) | 0 Me Gusta | 19 Retweets
+Naa, te corregí una falta de ortografía. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1491912251862917123) | 9 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 05:58:56
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2022 a las 14:37:57
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1491773684255793153) | 32 Me Gusta | 5 Retweets
+RT @Luis_C_Sandoval: Hoy en el 107 Aniversario de la #FuerzaAéreaMexicana, felicitamos a las mujeres y hombres de esta fuerza armada que en…
+[Permalink](https://twitter.com/fernandeznorona/status/1491904296228634626) | 0 Me Gusta | 211 Retweets

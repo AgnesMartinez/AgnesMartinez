@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2022 a las 08:19:31
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2022 a las 11:26:54
 *****
-En Ixtlán del Río, Nayarit.
-[Permalink](https://twitter.com/fernandeznorona/status/1492533837938761732) | 50 Me Gusta | 7 Retweets
+Compostela, Nayarit.
+[Permalink](https://twitter.com/fernandeznorona/status/1492580994452529160) | 92 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-02-2022 a las 20:14:24
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2022 a las 11:19:25
 *****
-RT @ManitasMonero: Sí, muchos solidarizándose con @CarlosLoret y el “periodismo”, pero cuando el Presidente ofreció asilo a #JulianAssange,…
-[Permalink](https://twitter.com/fernandeznorona/status/1492351355133956099) | 0 Me Gusta | 898 Retweets
+Jajejijoju
+[Permalink](https://twitter.com/fernandeznorona/status/1492579112556376065) | 107 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-02-2022 a las 20:13:10
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2022 a las 11:17:20
 *****
-¡Pero si @CarlosLoret trabaja para la delincuencia!
-[Permalink](https://twitter.com/fernandeznorona/status/1492351047322329088) | 253 Me Gusta | 82 Retweets
+Ay @rivapa, son unos farsantes. Les ardió que les exhiban sus ingresos millonarios. ¡35 millones en un año -yo creo que fue más-. Inquilinos de la mendacidad y la corrupción.
+[Permalink](https://twitter.com/fernandeznorona/status/1492578587286937601) | 113 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-02-2022 a las 20:11:52
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2022 a las 11:11:34
 *****
-Pero a la mayor parte del pueblo de México le llevaría varias vidas lograr un ingreso de 35 millones. @CarlosLoret #lavistima.
-[Permalink](https://twitter.com/fernandeznorona/status/1492350719453581314) | 242 Me Gusta | 69 Retweets
+¡Xacto, los oyes pero no apareces! ¡Ay @Mzavalagc, nunca cambies!
+[Permalink](https://twitter.com/fernandeznorona/status/1492577134203871244) | 77 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-02-2022 a las 20:10:38
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2022 a las 11:10:40
 *****
-A mi me llevo tres años de trabajo adquirir una camioneta @VolvoCarMexico. @CarlosLoret podría comprar 23, con sus ingresos del año pasado.
-[Permalink](https://twitter.com/fernandeznorona/status/1492350407946866690) | 345 Me Gusta | 91 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1492576910014042125) | 48 Me Gusta | 9 Retweets

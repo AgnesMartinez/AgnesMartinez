@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2022 a las 15:18:30
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2022 a las 20:48:37
 *****
-Hoy empezará tarde la video charla.
-[Permalink](https://twitter.com/fernandeznorona/status/1493001666291015688) | 63 Me Gusta | 7 Retweets
+RT @El_Chamuco: Solidarios.
+
+
+Cartón de @monerohernandez en @lajornadaonline.
+[Permalink](https://twitter.com/fernandeznorona/status/1493084740915798016) | 0 Me Gusta | 669 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2022 a las 15:14:55
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2022 a las 19:53:41
 *****
-Bahía de Banderas.
-[Permalink](https://twitter.com/fernandeznorona/status/1493000765211918336) | 43 Me Gusta | 6 Retweets
+15,885 en Facebook y, 19,658 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1493070917945245704) | 43 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2022 a las 14:41:18
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2022 a las 17:41:29
 *****
-Vamos tarde a Bucerías.
-[Permalink](https://twitter.com/fernandeznorona/status/1492992304780615682) | 44 Me Gusta | 2 Retweets
+Jajejijoju
+[Permalink](https://twitter.com/fernandeznorona/status/1493037650391048195) | 69 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2022 a las 08:52:11
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2022 a las 17:38:36
 *****
-Iniciamos en Rosamorada.
-[Permalink](https://twitter.com/fernandeznorona/status/1492904446694670341) | 106 Me Gusta | 27 Retweets
+Ni duda, vacaciones.
+[Permalink](https://twitter.com/fernandeznorona/status/1493036923153268738) | 22 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2022 a las 08:48:33
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2022 a las 17:37:59
 *****
-A punto de iniciar en Rosamorada.
-[Permalink](https://twitter.com/fernandeznorona/status/1492903530897813504) | 47 Me Gusta | 9 Retweets
+Comeré algo rápido, y luego haré la video charla, que creo que será como a las 8:30 de la noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1493036770258296845) | 89 Me Gusta | 9 Retweets

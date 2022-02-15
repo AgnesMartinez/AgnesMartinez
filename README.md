@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 09:12:26
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 15:10:34
 *****
-Dicen: #YoSoyLoret, naa, #tueresculebra.
-[Permalink](https://twitter.com/fernandeznorona/status/1493271929410797569) | 130 Me Gusta | 27 Retweets
+Ya no les dije, pero ya tengo mi nueva camioneta.
+[Permalink](https://twitter.com/fernandeznorona/status/1493362056833155075) | 248 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 08:31:16
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 12:48:40
 *****
-Puej ji Dr. Chapatín @JesusMartinMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1493261572281712642) | 31 Me Gusta | 3 Retweets
+¿Qué pasó con el “hashtag”: #todossomosCanayas?
+[Permalink](https://twitter.com/fernandeznorona/status/1493326348055715841) | 315 Me Gusta | 89 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 08:23:12
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 12:46:21
 *****
-RT @lucesdelsiglo: 🇨🇦 #Canadá | Con una intervención policial el puente Ambassador, importante paso fronterizo entre Estados Unidos y Canad…
-[Permalink](https://twitter.com/fernandeznorona/status/1493259541303242764) | 0 Me Gusta | 2 Retweets
+RT @SupsipS: Es cumple de Guadalajara.
+Nada que celebrar.
+Hoy un hombre asesinó a su pareja de un balazo en la nuca.
+Sorry si las cifras of…
+[Permalink](https://twitter.com/fernandeznorona/status/1493325762816057352) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 08:22:26
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 12:45:44
 *****
-RT @julioastillero: #JoséRamónLópezBeltrán está en este momento en 2o lugar en Tendencias #Twitter en MX y en 17 a nivel mundial. Oportunam…
-[Permalink](https://twitter.com/fernandeznorona/status/1493259348834983946) | 0 Me Gusta | 952 Retweets
+Fue un encuentro maravilloso. Estoy muy agradecido con quienes fueron a verme la noche del viernes pasado a la “Perla Tapatía”.
+[Permalink](https://twitter.com/fernandeznorona/status/1493325607341596677) | 35 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 08:22:16
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 12:43:37
 *****
-470 mil millones.
-[Permalink](https://twitter.com/fernandeznorona/status/1493259306090655745) | 25 Me Gusta | 7 Retweets
+La derecha ya tiene candidato presidencial: Loretito, @CarlosLoret. Jajajajejejejijijijojojojujuju.
+[Permalink](https://twitter.com/fernandeznorona/status/1493325077097684996) | 360 Me Gusta | 52 Retweets

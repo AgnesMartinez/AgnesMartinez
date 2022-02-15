@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 21:14:44
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 10:05:07
 *****
-Es un chingón el compañero presidente @lopezobrador_.
-[Permalink](https://twitter.com/fernandeznorona/status/1493453704682422272) | 240 Me Gusta | 62 Retweets
+No les agrada se cuestione que sean primero funcionarios y luego entren al servicio de intereses privados. Un caso emblemático es el del #TomandanteBorolas alias @FelipeCalderon que trabajo y aún trabaja para @iberdrola. Así que es tema en el marco del parlamento abierto.
+[Permalink](https://twitter.com/fernandeznorona/status/1493647576356245510) | 16 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 21:12:07
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 09:22:03
 *****
-Que, no qué. Este pinche teléfono todo el tiempo acentúa la palabra que.
-[Permalink](https://twitter.com/fernandeznorona/status/1493453043756670976) | 30 Me Gusta | 6 Retweets
+RT @Nubia_SCG: “Estaríamos mejor con Anaya”
+
+
+Nada más encuéntrenlo, 🤡🤡🤡
+[Permalink](https://twitter.com/fernandeznorona/status/1493636738438385667) | 0 Me Gusta | 50 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 21:11:15
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 09:21:56
 *****
-Lo bueno es que según los medios el desesperado es el compañero presidente. Mañana les volverá a repetir la medicina. #TenganParaQueAprendan.
-[Permalink](https://twitter.com/fernandeznorona/status/1493452824503595008) | 57 Me Gusta | 13 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1493636707274702849) | 49 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 21:10:13
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 09:21:41
 *****
-Simpáticos, Loretito @CarlosLoret intriga contra un particular, lo pone en vulnerabilidad y no pasa nada. Exhiben el hipotético ingreso de Loretito y el Consejo del @INAImexico, qué no tienen facultades para sancionar, habla de una posible sanción contra el compañero presidente.
-[Permalink](https://twitter.com/fernandeznorona/status/1493452567363436544) | 641 Me Gusta | 173 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1493636645618434049) | 23 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 21:00:44
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 08:44:44
 *****
-RT @julioastillero: Pues, en pocas palabras, la autodenominada "Sociedad Civil" @SocCivilMx , rehuyó mi invitación a entrevistar a alguno d…
-[Permalink](https://twitter.com/fernandeznorona/status/1493450180078804992) | 0 Me Gusta | 776 Retweets
+RT @_VicenteSerrano: Si @CarlosLoret gana $35 millones ¿Pues cuánto gana @CiroGomezL @DeniseMaerker @AristeguiOnline @lopezdoriga @rivapa?
+[Permalink](https://twitter.com/fernandeznorona/status/1493627348054429699) | 0 Me Gusta | 655 Retweets

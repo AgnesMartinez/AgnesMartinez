@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 15:10:34
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 21:14:44
 *****
-Ya no les dije, pero ya tengo mi nueva camioneta.
-[Permalink](https://twitter.com/fernandeznorona/status/1493362056833155075) | 248 Me Gusta | 19 Retweets
+Es un chingón el compañero presidente @lopezobrador_.
+[Permalink](https://twitter.com/fernandeznorona/status/1493453704682422272) | 137 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 12:48:40
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 21:12:07
 *****
-¿Qué pasó con el “hashtag”: #todossomosCanayas?
-[Permalink](https://twitter.com/fernandeznorona/status/1493326348055715841) | 315 Me Gusta | 89 Retweets
+Que, no qué. Este pinche teléfono todo el tiempo acentúa la palabra que.
+[Permalink](https://twitter.com/fernandeznorona/status/1493453043756670976) | 18 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 12:46:21
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 21:11:15
 *****
-RT @SupsipS: Es cumple de Guadalajara.
-Nada que celebrar.
-Hoy un hombre asesinó a su pareja de un balazo en la nuca.
-Sorry si las cifras of…
-[Permalink](https://twitter.com/fernandeznorona/status/1493325762816057352) | 0 Me Gusta | 9 Retweets
+Lo bueno es que según los medios el desesperado es el compañero presidente. Mañana les volverá a repetir la medicina. #TenganParaQueAprendan.
+[Permalink](https://twitter.com/fernandeznorona/status/1493452824503595008) | 32 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 12:45:44
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 21:10:13
 *****
-Fue un encuentro maravilloso. Estoy muy agradecido con quienes fueron a verme la noche del viernes pasado a la “Perla Tapatía”.
-[Permalink](https://twitter.com/fernandeznorona/status/1493325607341596677) | 35 Me Gusta | 13 Retweets
+Simpáticos, Loretito @CarlosLoret intriga contra un particular, lo pone en vulnerabilidad y no pasa nada. Exhiben el hipotético ingreso de Loretito y el Consejo del @INAImexico, qué no tienen facultades para sancionar, habla de una posible sanción contra el compañero presidente.
+[Permalink](https://twitter.com/fernandeznorona/status/1493452567363436544) | 313 Me Gusta | 90 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 12:43:37
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2022 a las 21:00:44
 *****
-La derecha ya tiene candidato presidencial: Loretito, @CarlosLoret. Jajajajejejejijijijojojojujuju.
-[Permalink](https://twitter.com/fernandeznorona/status/1493325077097684996) | 360 Me Gusta | 52 Retweets
+RT @julioastillero: Pues, en pocas palabras, la autodenominada "Sociedad Civil" @SocCivilMx , rehuyó mi invitación a entrevistar a alguno d…
+[Permalink](https://twitter.com/fernandeznorona/status/1493450180078804992) | 0 Me Gusta | 723 Retweets

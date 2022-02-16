@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 16:27:24
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 21:08:43
 *****
-Está perdido. Lo están atacando a él, buscan destruir parte de su prestigio fundado en la honestidad. Además lo realizan golpeando a sus hijos. Es una campaña perversa y canalla.
-[Permalink](https://twitter.com/fernandeznorona/status/1493743780276621314) | 1 Me Gusta | 0 Retweets
+Se me había olvidado compartir los datos de la transmisión de hoy. 27,011 en Facebook y, 16,526 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1493814577678716931) | 49 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 16:19:13
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 21:02:22
 *****
-Primero dijeron que no había transmitido el @CanalCongreso la protesta, nueva mentira. Ahora dicen que se silenció YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1493741723067027458) | 11 Me Gusta | 1 Retweets
+@aletorre13 @julioc_moreno @_almaguer @MiguelTorrucoG @alejandrorobmx @Lidiapbarcenas @fernando_da1 Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1493812980332613632) | 4 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 16:14:45
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 20:57:29
 *****
-@JucaNoticias Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1493740599366856705) | 9 Me Gusta | 0 Retweets
+RT @chioreya: Lo peor de lo peorcito, …..,Xicoténcatl,Zavala,Icaza,Téllez,Rabadan,Calderón,Krauze,Camin,Loret,   Rodríguez etc,etc,etc ……🤮🤮…
+[Permalink](https://twitter.com/fernandeznorona/status/1493811749170077698) | 0 Me Gusta | 116 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 15:57:58
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 20:56:19
 *****
-De repente, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1493736374331133953) | 13 Me Gusta | 1 Retweets
+RT @ezralevant: So proud of our Canadian police. To serve and protect. So glad they took that 80-year-old, 5-foot-nothing man off the stree…
+[Permalink](https://twitter.com/fernandeznorona/status/1493811457527582722) | 0 Me Gusta | 22,553 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 15:54:52
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 20:54:34
 *****
-Como no lo hicieron nunca. Dudo que si regresara a gobernar la derecha, se atrevieran a manifestarse ni de gracia. Pero nunca es tarde para que tomen conciencia y para que tomen partido abiertamente.
-[Permalink](https://twitter.com/fernandeznorona/status/1493735594798768131) | 39 Me Gusta | 8 Retweets
+Xacto
+[Permalink](https://twitter.com/fernandeznorona/status/1493811014512648196) | 18 Me Gusta | 2 Retweets

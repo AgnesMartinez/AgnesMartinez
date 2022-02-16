@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 10:05:07
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 16:27:24
 *****
-No les agrada se cuestione que sean primero funcionarios y luego entren al servicio de intereses privados. Un caso emblemático es el del #TomandanteBorolas alias @FelipeCalderon que trabajo y aún trabaja para @iberdrola. Así que es tema en el marco del parlamento abierto.
-[Permalink](https://twitter.com/fernandeznorona/status/1493647576356245510) | 16 Me Gusta | 7 Retweets
+Está perdido. Lo están atacando a él, buscan destruir parte de su prestigio fundado en la honestidad. Además lo realizan golpeando a sus hijos. Es una campaña perversa y canalla.
+[Permalink](https://twitter.com/fernandeznorona/status/1493743780276621314) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 09:22:03
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 16:19:13
 *****
-RT @Nubia_SCG: “Estaríamos mejor con Anaya”
-
-
-Nada más encuéntrenlo, 🤡🤡🤡
-[Permalink](https://twitter.com/fernandeznorona/status/1493636738438385667) | 0 Me Gusta | 50 Retweets
+Primero dijeron que no había transmitido el @CanalCongreso la protesta, nueva mentira. Ahora dicen que se silenció YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1493741723067027458) | 11 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 09:21:56
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 16:14:45
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1493636707274702849) | 49 Me Gusta | 14 Retweets
+@JucaNoticias Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1493740599366856705) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 09:21:41
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 15:57:58
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1493636645618434049) | 23 Me Gusta | 12 Retweets
+De repente, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1493736374331133953) | 13 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 08:44:44
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 15:54:52
 *****
-RT @_VicenteSerrano: Si @CarlosLoret gana $35 millones ¿Pues cuánto gana @CiroGomezL @DeniseMaerker @AristeguiOnline @lopezdoriga @rivapa?
-[Permalink](https://twitter.com/fernandeznorona/status/1493627348054429699) | 0 Me Gusta | 655 Retweets
+Como no lo hicieron nunca. Dudo que si regresara a gobernar la derecha, se atrevieran a manifestarse ni de gracia. Pero nunca es tarde para que tomen conciencia y para que tomen partido abiertamente.
+[Permalink](https://twitter.com/fernandeznorona/status/1493735594798768131) | 39 Me Gusta | 8 Retweets

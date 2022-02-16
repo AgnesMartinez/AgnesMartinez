@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 21:08:43
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 08:35:10
 *****
-Se me había olvidado compartir los datos de la transmisión de hoy. 27,011 en Facebook y, 16,526 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1493814577678716931) | 71 Me Gusta | 7 Retweets
+El eje 1 Norte. Y luego se queda solo un carril. Yo creo que antes de que lo liberen, acabará convirtiéndose en mercado todo el eje. ⁦@UCS_GCDMX⁩ ⁦@Claudiashein⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1493987328754208768) | 50 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 21:02:22
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 07:28:01
 *****
-@aletorre13 @julioc_moreno @_almaguer @MiguelTorrucoG @alejandrorobmx @Lidiapbarcenas @fernando_da1 Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1493812980332613632) | 4 Me Gusta | 1 Retweets
+Todo erario es público. Saludos.
+[Permalink](https://twitter.com/fernandeznorona/status/1493970429375094787) | 186 Me Gusta | 63 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 20:57:29
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 07:27:29
 *****
-RT @chioreya: Lo peor de lo peorcito, …..,Xicoténcatl,Zavala,Icaza,Téllez,Rabadan,Calderón,Krauze,Camin,Loret,   Rodríguez etc,etc,etc ……🤮🤮…
-[Permalink](https://twitter.com/fernandeznorona/status/1493811749170077698) | 0 Me Gusta | 123 Retweets
+RT @alvaro_delgado: “Momento cumbre”, de @monerohernandez, en @lajornadaonline
+[Permalink](https://twitter.com/fernandeznorona/status/1493970292720508932) | 0 Me Gusta | 1,608 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 20:56:19
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 07:27:12
 *****
-RT @ezralevant: So proud of our Canadian police. To serve and protect. So glad they took that 80-year-old, 5-foot-nothing man off the stree…
-[Permalink](https://twitter.com/fernandeznorona/status/1493811457527582722) | 0 Me Gusta | 22,624 Retweets
+Por fin, le escribe violar la ley o quiere debilitarlo. Cada vez estás peor @SergioSarmiento. ¿A ti cuánto te pagan por intrigar?
+[Permalink](https://twitter.com/fernandeznorona/status/1493970221320835075) | 52 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2022 a las 20:54:34
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 07:17:31
 *****
-Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1493811014512648196) | 23 Me Gusta | 3 Retweets
+Esto es lo que está realizando la derecha, "lawfare,". Lectura obligada para compañeras y compañeros del movimiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1493967786082775049) | 139 Me Gusta | 46 Retweets

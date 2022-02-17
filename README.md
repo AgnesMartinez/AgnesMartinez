@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 08:35:10
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 13:57:32
 *****
-El eje 1 Norte. Y luego se queda solo un carril. Yo creo que antes de que lo liberen, acabará convirtiéndose en mercado todo el eje. ⁦@UCS_GCDMX⁩ ⁦@Claudiashein⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1493987328754208768) | 50 Me Gusta | 11 Retweets
+¡Acto apartidista! La causa es legítima, la militancia es de derecha vergonzante.
+[Permalink](https://twitter.com/fernandeznorona/status/1494068455682842629) | 38 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 07:28:01
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 13:56:06
 *****
-Todo erario es público. Saludos.
-[Permalink](https://twitter.com/fernandeznorona/status/1493970429375094787) | 186 Me Gusta | 63 Retweets
+RT @yeidckol: “Como decía Melchor Ocampo: ‘me quiebro pero no me doblo’. Vamos hacia adelante, vamos a limpiar el país de corrupción sin au…
+[Permalink](https://twitter.com/fernandeznorona/status/1494068092485488643) | 0 Me Gusta | 169 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 07:27:29
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 13:55:32
 *****
-RT @alvaro_delgado: “Momento cumbre”, de @monerohernandez, en @lajornadaonline
-[Permalink](https://twitter.com/fernandeznorona/status/1493970292720508932) | 0 Me Gusta | 1,608 Retweets
+El movimiento, que con todo cariño a mis hermanos y hermanas de @PartidoMorenaMx, es mucho más grande, que la extraordinaria fuerza que Morena tiene.
+[Permalink](https://twitter.com/fernandeznorona/status/1494067949937823747) | 39 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 07:27:12
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 13:54:03
 *****
-Por fin, le escribe violar la ley o quiere debilitarlo. Cada vez estás peor @SergioSarmiento. ¿A ti cuánto te pagan por intrigar?
-[Permalink](https://twitter.com/fernandeznorona/status/1493970221320835075) | 52 Me Gusta | 14 Retweets
+Los efectos secundarios aún no se conocen. El malestar pasajero les da a algunos y a otros no.
+[Permalink](https://twitter.com/fernandeznorona/status/1494067579266244608) | 22 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 07:17:31
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2022 a las 13:52:53
 *****
-Esto es lo que está realizando la derecha, "lawfare,". Lectura obligada para compañeras y compañeros del movimiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1493967786082775049) | 139 Me Gusta | 46 Retweets
+Apenas se fue @Claudiashein del Parlamento abierto, después de varias horas de discusión, se desinfló el foro.  Por cierto, estupenda estuvo nuestra compañera jefa de gobierno.
+[Permalink](https://twitter.com/fernandeznorona/status/1494067283194437644) | 188 Me Gusta | 39 Retweets

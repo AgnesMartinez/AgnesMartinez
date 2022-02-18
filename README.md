@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 13:36:43
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 21:07:04
 *****
-Los paniaguados haciendo espectáculo en @Mx_Diputados. Qué les aproveche.
-[Permalink](https://twitter.com/fernandeznorona/status/1494425601628950533) | 117 Me Gusta | 21 Retweets
+Está perdido mi compañero @RicardoMonrealA. Si no es obligatorio en adultos, mucho menos en menores de edad. Le está ganando la ambición y cae preso de la demagogia y de la irresponsabilidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1494538937578184724) | 124 Me Gusta | 44 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 13:26:15
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 21:04:31
 *****
-Él, aprende a escribir. A ti te satisface que le paguen 35 millones de pesos por intrigar y meterse a los asuntos públicos, a nosotros nos interesa saber la mano que mece la cuna.
-[Permalink](https://twitter.com/fernandeznorona/status/1494422969946419205) | 58 Me Gusta | 13 Retweets
+Ahí te hablan genio de la epidemiología @FerVilchisMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1494538295740620845) | 15 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 13:24:57
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 21:03:45
 *****
-Es un pánfilo @SergioSarmiento, pero de que le pagan, le pagan. ¿Cuánto? Es justo lo que queremos saber.
-[Permalink](https://twitter.com/fernandeznorona/status/1494422642757181440) | 34 Me Gusta | 10 Retweets
+Tú siempre tan patriota, @SergioSarmiento. Y encima te pagan.
+[Permalink](https://twitter.com/fernandeznorona/status/1494538101716312105) | 52 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 13:22:59
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 21:02:04
 *****
-El 56% del bióxido de carbono producido por la industria eléctrica en México. No el 56% del total del bióxido de carbono que genera nuestro país.
-[Permalink](https://twitter.com/fernandeznorona/status/1494422146319364097) | 33 Me Gusta | 12 Retweets
+Sería muy lamentable que @DrJLPech aceptara ser candidato de @MovCiudadanoMX. El nivel de movimiento paniaguado es @robpalazuelos.
+[Permalink](https://twitter.com/fernandeznorona/status/1494537678322339840) | 60 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 13:13:43
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 20:59:40
 *****
-RT @Julianatilano: Me da mucho orgullo que colegas de la academia me ataquen por militar a favor del pueblo. Toda mi vida he estudiado en e…
-[Permalink](https://twitter.com/fernandeznorona/status/1494419816500899840) | 0 Me Gusta | 985 Retweets
+RT @julioastillero: Van 3 días seguidos de ataques en mi contra desde cuentas q difunden mensajes anti4T. Duros, groseros, amenazantes. No…
+[Permalink](https://twitter.com/fernandeznorona/status/1494537075785359379) | 0 Me Gusta | 626 Retweets

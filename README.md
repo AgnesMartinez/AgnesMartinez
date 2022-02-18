@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 21:07:04
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 09:38:51
 *****
-Está perdido mi compañero @RicardoMonrealA. Si no es obligatorio en adultos, mucho menos en menores de edad. Le está ganando la ambición y cae preso de la demagogia y de la irresponsabilidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1494538937578184724) | 219 Me Gusta | 73 Retweets
+Ya vamos rumbo a Ixcatlán, Tuxtepec
+[Permalink](https://twitter.com/fernandeznorona/status/1494728131105730562) | 31 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 21:04:31
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 09:22:15
 *****
-Ahí te hablan genio de la epidemiología @FerVilchisMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1494538295740620845) | 21 Me Gusta | 6 Retweets
+RT @rubengluengas: En vivo desde Ottawa 👁⬇️👁
+[Permalink](https://twitter.com/fernandeznorona/status/1494723951955750912) | 0 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 21:03:45
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 09:22:06
 *****
-Tú siempre tan patriota, @SergioSarmiento. Y encima te pagan.
-[Permalink](https://twitter.com/fernandeznorona/status/1494538101716312105) | 68 Me Gusta | 16 Retweets
+RT @abrahamendieta: En esta red social que tanto se habla de la Roma y de la Condesa, poco se ha dicho de la inversión histórica a Iztapala…
+[Permalink](https://twitter.com/fernandeznorona/status/1494723913565286401) | 0 Me Gusta | 239 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 21:02:04
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 09:21:18
 *****
-Sería muy lamentable que @DrJLPech aceptara ser candidato de @MovCiudadanoMX. El nivel de movimiento paniaguado es @robpalazuelos.
-[Permalink](https://twitter.com/fernandeznorona/status/1494537678322339840) | 84 Me Gusta | 19 Retweets
+RT @Marilu86053: 😂😂😂
+[Permalink](https://twitter.com/fernandeznorona/status/1494723711412453378) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2022 a las 20:59:40
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 09:20:35
 *****
-RT @julioastillero: Van 3 días seguidos de ataques en mi contra desde cuentas q difunden mensajes anti4T. Duros, groseros, amenazantes. No…
-[Permalink](https://twitter.com/fernandeznorona/status/1494537075785359379) | 0 Me Gusta | 711 Retweets
+RT @chioreya: Hoy x hoy gracias a AMLO sabemos q aquellos q se decían medios “independientes”no lo son,q aquellos q se decían defensores d…
+[Permalink](https://twitter.com/fernandeznorona/status/1494723532873420804) | 0 Me Gusta | 206 Retweets

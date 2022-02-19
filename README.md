@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 16:21:50
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 21:15:14
 *****
-San Pedro Ixcatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1494829545308012549) | 21 Me Gusta | 3 Retweets
+RT @rubengluengas: La nueva subnormalidad en Canadá 👁⬇️👁
+[Permalink](https://twitter.com/fernandeznorona/status/1494903379285397506) | 0 Me Gusta | 115 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 14:40:36
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 21:14:50
 *****
-San Pedro Ixcatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1494804067411009540) | 35 Me Gusta | 3 Retweets
+RT @Laura_Marcela39: Hoy un grupo de golpeadores de la Alcaldesa de Cuauhtemoc @SandraCuevas_  intentó impedir que se llevara a cabo una as…
+[Permalink](https://twitter.com/fernandeznorona/status/1494903280492851200) | 0 Me Gusta | 286 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 14:36:29
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 21:13:19
 *****
-En San Pedro Ixcatlán, después de un recorrido de una hora en lancha.
-[Permalink](https://twitter.com/fernandeznorona/status/1494803031539466243) | 27 Me Gusta | 3 Retweets
+RT @rubengluengas: Así cabalga la “democracia” en Canadá versión @JustinTrudeau
+[Permalink](https://twitter.com/fernandeznorona/status/1494902896856555523) | 0 Me Gusta | 202 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 14:35:27
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 21:12:29
 *****
-Llegando a San Pedro Ixcatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1494802769575878656) | 91 Me Gusta | 9 Retweets
+RT @rubengluengas: Otra escena de la tiranía canadiense cuando policías embisten contra esta mujer.
+[Permalink](https://twitter.com/fernandeznorona/status/1494902688198320128) | 0 Me Gusta | 116 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 14:17:21
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 21:11:03
 *****
-Llegando a San Pedro Ixcatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1494798215979356162) | 61 Me Gusta | 3 Retweets
+Los compañeros que iban en la segunda lancha la pasaron realmente mal. Afortunadamente todo salió bien y no terminó en tragedia.
+[Permalink](https://twitter.com/fernandeznorona/status/1494902328238948356) | 68 Me Gusta | 6 Retweets

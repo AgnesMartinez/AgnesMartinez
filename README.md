@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 21:15:14
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 09:03:01
 *****
-RT @rubengluengas: La nueva subnormalidad en Canadá 👁⬇️👁
-[Permalink](https://twitter.com/fernandeznorona/status/1494903379285397506) | 0 Me Gusta | 192 Retweets
+Parece que @FerVilchisMx y @JustinTrudeau son de la misma ralea. Mi solidaridad con el pueblo canadiense.
+[Permalink](https://twitter.com/fernandeznorona/status/1495081499443580930) | 43 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 21:14:50
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 08:52:27
 *****
-RT @Laura_Marcela39: Hoy un grupo de golpeadores de la Alcaldesa de Cuauhtemoc @SandraCuevas_  intentó impedir que se llevara a cabo una as…
-[Permalink](https://twitter.com/fernandeznorona/status/1494903280492851200) | 0 Me Gusta | 514 Retweets
+Tuxtepec.
+[Permalink](https://twitter.com/fernandeznorona/status/1495078840678457347) | 41 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 21:13:19
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 08:40:42
 *****
-RT @rubengluengas: Así cabalga la “democracia” en Canadá versión @JustinTrudeau
-[Permalink](https://twitter.com/fernandeznorona/status/1494902896856555523) | 0 Me Gusta | 264 Retweets
+RT @Luis_C_Sandoval: Hoy conmemoramos el 109 Aniversario del #EjércitoMexicano, conformado por mujeres y hombres con lealtad inquebrantable…
+[Permalink](https://twitter.com/fernandeznorona/status/1495075885627715592) | 0 Me Gusta | 218 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 21:12:29
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 08:36:01
 *****
-RT @rubengluengas: Otra escena de la tiranía canadiense cuando policías embisten contra esta mujer.
-[Permalink](https://twitter.com/fernandeznorona/status/1494902688198320128) | 0 Me Gusta | 185 Retweets
+Lamento no haber podido acompañar en la celebración del 109 aniversario del ejército al compañero secretario de @SEDENAmx @Luis_C_Sandoval. Muchas felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1495074707200266249) | 52 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2022 a las 21:11:03
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 08:35:09
 *****
-Los compañeros que iban en la segunda lancha la pasaron realmente mal. Afortunadamente todo salió bien y no terminó en tragedia.
-[Permalink](https://twitter.com/fernandeznorona/status/1494902328238948356) | 113 Me Gusta | 8 Retweets
+RT @hectorslimseade: Muchas felicidades a todos los soldados de México @SEDENAmx  @Luis_C_Sandoval en este 109 aniversario de la fundación…
+[Permalink](https://twitter.com/fernandeznorona/status/1495074485527007242) | 0 Me Gusta | 24 Retweets

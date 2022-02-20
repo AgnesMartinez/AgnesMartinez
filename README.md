@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 22:03:21
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2022 a las 09:26:28
 *****
-RT @BenjaminRoblesM: Este fin de semana invitamos al compañero @fernandeznorona a recorrer con nosotros nuestro maravilloso estado de #Oaxa…
-[Permalink](https://twitter.com/fernandeznorona/status/1495277877767589892) | 0 Me Gusta | 55 Retweets
+Hoy en Ocotlán me hicieron un regalo que me rebasa. Me siento incómodo -por supuesto agradecido-.
+[Permalink](https://twitter.com/fernandeznorona/status/1495449788401209355) | 137 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 22:02:16
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2022 a las 06:56:29
 *****
-Es un reaccionario de siempre, apenas te das cuenta.
-[Permalink](https://twitter.com/fernandeznorona/status/1495277605095890947) | 108 Me Gusta | 24 Retweets
+RT @temoc: #AMLONoEstaSolo #AmloElMejorPresidenteDelMundo @fernandeznorona @_VicenteSerrano
+[Permalink](https://twitter.com/fernandeznorona/status/1495412043029090314) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 21:58:45
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2022 a las 06:52:02
 *****
-8578 en Facebook y, 11,760 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1495276721272246273) | 36 Me Gusta | 5 Retweets
+Ya salimos rumbo a Ocotlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1495410925171625986) | 64 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 21:33:56
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2022 a las 06:30:56
 *****
-Llegando al hotel en Oaxaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1495270474011582468) | 67 Me Gusta | 8 Retweets
+Ya les tienen la solución al Tritánic @PRI_Nacional, @AccionNacional y @PRDMexico. #ParenDeSufrir por falta de candidato. Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1495405613114929156) | 62 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 21:17:27
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2022 a las 06:29:23
 *****
-Apenas estamos llegando a Oaxaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1495266325064781833) | 123 Me Gusta | 9 Retweets
+Ay botijón, hoy si amaneciste muy jocosito. Sólo falta que anuncies que serás su coordinador de campaña -de @LillyTellez- y que, @CarlosLoret será su jefe de prensa. Ahí les hablan @PRI_Nacional -@alitomorenoc-; @AccionNacional -@MarkoCortes- y, @PRDMexico -@jesusortegam-…
+[Permalink](https://twitter.com/fernandeznorona/status/1495405226618150917) | 97 Me Gusta | 24 Retweets

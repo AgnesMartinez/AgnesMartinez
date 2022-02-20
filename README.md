@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 15:32:38
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 22:03:21
 *****
-7000 años del presupuesto de Valle Nacional representan los 490,000 millones de pesos que nos roban cada año las empresas privadas extranjeras.
-[Permalink](https://twitter.com/fernandeznorona/status/1495179551411998726) | 57 Me Gusta | 21 Retweets
+RT @BenjaminRoblesM: Este fin de semana invitamos al compañero @fernandeznorona a recorrer con nosotros nuestro maravilloso estado de #Oaxa…
+[Permalink](https://twitter.com/fernandeznorona/status/1495277877767589892) | 0 Me Gusta | 48 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 14:34:51
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 22:02:16
 *****
-Valle Nacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1495165009676152839) | 70 Me Gusta | 12 Retweets
+Es un reaccionario de siempre, apenas te das cuenta.
+[Permalink](https://twitter.com/fernandeznorona/status/1495277605095890947) | 22 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 10:35:52
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 21:58:45
 *****
-Porqué no hay. Van a la celebración del 109 aniversario de las fuerzas armadas.
-[Permalink](https://twitter.com/fernandeznorona/status/1495104864313122817) | 33 Me Gusta | 2 Retweets
+8578 en Facebook y, 11,760 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1495276721272246273) | 12 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 10:34:58
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 21:33:56
 *****
-@edd_lite Aguardentosa.
-[Permalink](https://twitter.com/fernandeznorona/status/1495104640823828487) | 4 Me Gusta | 0 Retweets
+Llegando al hotel en Oaxaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1495270474011582468) | 41 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 10:27:37
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 21:17:27
 *****
-RT @rocionahle: La @CFEmx en el 2021 generó el 55% del total de la energía limpia que se inyectó al sistema.Participa en nuevos proyectos,…
-[Permalink](https://twitter.com/fernandeznorona/status/1495102788266868738) | 0 Me Gusta | 862 Retweets
+Apenas estamos llegando a Oaxaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1495266325064781833) | 71 Me Gusta | 3 Retweets

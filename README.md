@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 09:03:01
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 15:32:38
 *****
-Parece que @FerVilchisMx y @JustinTrudeau son de la misma ralea. Mi solidaridad con el pueblo canadiense.
-[Permalink](https://twitter.com/fernandeznorona/status/1495081499443580930) | 43 Me Gusta | 7 Retweets
+7000 años del presupuesto de Valle Nacional representan los 490,000 millones de pesos que nos roban cada año las empresas privadas extranjeras.
+[Permalink](https://twitter.com/fernandeznorona/status/1495179551411998726) | 57 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 08:52:27
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 14:34:51
 *****
-Tuxtepec.
-[Permalink](https://twitter.com/fernandeznorona/status/1495078840678457347) | 41 Me Gusta | 9 Retweets
+Valle Nacional.
+[Permalink](https://twitter.com/fernandeznorona/status/1495165009676152839) | 70 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 08:40:42
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 10:35:52
 *****
-RT @Luis_C_Sandoval: Hoy conmemoramos el 109 Aniversario del #EjércitoMexicano, conformado por mujeres y hombres con lealtad inquebrantable…
-[Permalink](https://twitter.com/fernandeznorona/status/1495075885627715592) | 0 Me Gusta | 218 Retweets
+Porqué no hay. Van a la celebración del 109 aniversario de las fuerzas armadas.
+[Permalink](https://twitter.com/fernandeznorona/status/1495104864313122817) | 33 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 08:36:01
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 10:34:58
 *****
-Lamento no haber podido acompañar en la celebración del 109 aniversario del ejército al compañero secretario de @SEDENAmx @Luis_C_Sandoval. Muchas felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1495074707200266249) | 52 Me Gusta | 1 Retweets
+@edd_lite Aguardentosa.
+[Permalink](https://twitter.com/fernandeznorona/status/1495104640823828487) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 08:35:09
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2022 a las 10:27:37
 *****
-RT @hectorslimseade: Muchas felicidades a todos los soldados de México @SEDENAmx  @Luis_C_Sandoval en este 109 aniversario de la fundación…
-[Permalink](https://twitter.com/fernandeznorona/status/1495074485527007242) | 0 Me Gusta | 24 Retweets
+RT @rocionahle: La @CFEmx en el 2021 generó el 55% del total de la energía limpia que se inyectó al sistema.Participa en nuevos proyectos,…
+[Permalink](https://twitter.com/fernandeznorona/status/1495102788266868738) | 0 Me Gusta | 862 Retweets

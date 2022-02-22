@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 07:19:07
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 14:08:55
 *****
-Ya que me hicieron madrugar, me vine a desayunar al @ElCardenalMr.
-[Permalink](https://twitter.com/fernandeznorona/status/1495780126403051522) | 75 Me Gusta | 11 Retweets
+Queremos ver la foto.
+[Permalink](https://twitter.com/fernandeznorona/status/1495883259460399106) | 32 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 05:48:37
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 12:49:23
 *****
-Para ti una semana de constante desprestigio @CarlosLoret. Aunque para ti es una mancha más a la piel de la hiena.
-[Permalink](https://twitter.com/fernandeznorona/status/1495757354159198216) | 178 Me Gusta | 42 Retweets
+Voy saliendo rumbo a Pueblo quieto. Desde allá haré la transmisión de hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1495863241624465422) | 92 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 05:45:26
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 11:38:13
 *****
-Pero el helicóptero trae cubrebocas, ¿Verdad @FerVilchisMx? Es el genio de la epidemiología en México. Merece viajar en helicóptero.
-[Permalink](https://twitter.com/fernandeznorona/status/1495756553785425922) | 31 Me Gusta | 12 Retweets
+Muchas felicidades @SupsipS. Que disfrutes tu cumpleaños con tus “bendis”, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1495845333863219204) | 76 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 05:44:17
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 10:43:50
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1495756262222487554) | 44 Me Gusta | 7 Retweets
+Muchas gracias. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1495831645886242820) | 26 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 05:43:46
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 10:32:11
 *****
-@chioreya Dizque.
-[Permalink](https://twitter.com/fernandeznorona/status/1495756133218275329) | 4 Me Gusta | 1 Retweets
+Lamento con muchísimo pesar, el fallecimiento de nuestra compañera diputada federal Celeste Sánchez Romero. Mi más amplia solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1495828715892363274) | 365 Me Gusta | 109 Retweets

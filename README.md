@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 19:53:36
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 09:40:01
 *****
-Lo terminé. Bastante bueno.
-[Permalink](https://twitter.com/fernandeznorona/status/1495969999521034241) | 57 Me Gusta | 7 Retweets
+Mira, ya logramos dos puntos de coincidencia. Éste y el derecho de las mujeres a decidir sobre su cuerpo y ejercer libremente su sexualidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1496177973090783239) | 21 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 19:05:18
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 09:32:00
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1495957843534659604) | 45 Me Gusta | 4 Retweets
+Te ves al espejo Loretito. @CarlosLoret.
+[Permalink](https://twitter.com/fernandeznorona/status/1496175956628840457) | 52 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 18:41:50
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 09:31:32
 *****
-Es muy bueno.
-[Permalink](https://twitter.com/fernandeznorona/status/1495951939842019333) | 44 Me Gusta | 9 Retweets
+Ya fue atendido el monaguillo @CiroMurayamaINE.
+[Permalink](https://twitter.com/fernandeznorona/status/1496175838705983490) | 45 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 18:33:04
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 09:26:27
 *****
-Aprehensión.
-[Permalink](https://twitter.com/fernandeznorona/status/1495949732497309696) | 33 Me Gusta | 3 Retweets
+RT @capitalporcual: Hoy @TapiaFernanda se fue al Foro 23 del #ParlamentoAbierto de la #ReformaEléctrica ⚡ en @Mx_Diputados.
+
+
+Previo al deba…
+[Permalink](https://twitter.com/fernandeznorona/status/1496174558587629570) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 18:13:58
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 07:08:50
 *****
-RT @julioastillero: Baker Hughes solicitó una investigación a una firma de abogados especializados en investigaciones y cumplimiento normat…
-[Permalink](https://twitter.com/fernandeznorona/status/1495944926235873280) | 0 Me Gusta | 413 Retweets
+Si hay quien hace eso, es lamentable. Pero no hay duda que los peores son los que se suman a las campañas de linchamiento y de odio y nunca reconocen yerro alguno. Claro, no tendrían que reconocerlo porque lo hacen a sabiendas, ¿Verdad Dr. Chapatín @JesusMartinMx?
+[Permalink](https://twitter.com/fernandeznorona/status/1496139929709121537) | 53 Me Gusta | 21 Retweets

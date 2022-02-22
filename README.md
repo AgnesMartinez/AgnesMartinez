@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 14:08:55
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 19:53:36
 *****
-Queremos ver la foto.
-[Permalink](https://twitter.com/fernandeznorona/status/1495883259460399106) | 32 Me Gusta | 5 Retweets
+Lo terminé. Bastante bueno.
+[Permalink](https://twitter.com/fernandeznorona/status/1495969999521034241) | 51 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 12:49:23
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 19:05:18
 *****
-Voy saliendo rumbo a Pueblo quieto. Desde allá haré la transmisión de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1495863241624465422) | 92 Me Gusta | 16 Retweets
+Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1495957843534659604) | 39 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 11:38:13
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 18:41:50
 *****
-Muchas felicidades @SupsipS. Que disfrutes tu cumpleaños con tus “bendis”, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1495845333863219204) | 76 Me Gusta | 11 Retweets
+Es muy bueno.
+[Permalink](https://twitter.com/fernandeznorona/status/1495951939842019333) | 37 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 10:43:50
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 18:33:04
 *****
-Muchas gracias. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1495831645886242820) | 26 Me Gusta | 5 Retweets
+Aprehensión.
+[Permalink](https://twitter.com/fernandeznorona/status/1495949732497309696) | 30 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 10:32:11
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2022 a las 18:13:58
 *****
-Lamento con muchísimo pesar, el fallecimiento de nuestra compañera diputada federal Celeste Sánchez Romero. Mi más amplia solidaridad para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1495828715892363274) | 365 Me Gusta | 109 Retweets
+RT @julioastillero: Baker Hughes solicitó una investigación a una firma de abogados especializados en investigaciones y cumplimiento normat…
+[Permalink](https://twitter.com/fernandeznorona/status/1495944926235873280) | 0 Me Gusta | 370 Retweets

@@ -1,29 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 09:40:01
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 15:56:47
 *****
-Mira, ya logramos dos puntos de coincidencia. Éste y el derecho de las mujeres a decidir sobre su cuerpo y ejercer libremente su sexualidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1496177973090783239) | 21 Me Gusta | 5 Retweets
+Ya hay más autos estacionados en la plaza de Leandro Valle. Ya la volvieron a convertir en estacionamiento @UCS_GCDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1496272793188679682) | 35 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 09:32:00
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 15:48:48
 *****
-Te ves al espejo Loretito. @CarlosLoret.
-[Permalink](https://twitter.com/fernandeznorona/status/1496175956628840457) | 52 Me Gusta | 8 Retweets
+RT @PMunozIturrieta: Putin acaba de declarar Ley Marcial. 
+Está congelando las cuentas de sus opositores. 
+Envió a la policía a golpear a l…
+[Permalink](https://twitter.com/fernandeznorona/status/1496270782888034304) | 0 Me Gusta | 508 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 09:31:32
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 15:48:25
 *****
-Ya fue atendido el monaguillo @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1496175838705983490) | 45 Me Gusta | 13 Retweets
+Eso se llama mal pasadas, no ayuno. El ayuno es una práctica bastante sana. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1496270685643194371) | 12 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 09:26:27
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 15:20:19
 *****
-RT @capitalporcual: Hoy @TapiaFernanda se fue al Foro 23 del #ParlamentoAbierto de la #ReformaEléctrica ⚡ en @Mx_Diputados.
-
-
-Previo al deba…
-[Permalink](https://twitter.com/fernandeznorona/status/1496174558587629570) | 0 Me Gusta | 9 Retweets
+Lo que nos da hueva es la traducción, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1496263612108791814) | 32 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 07:08:50
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2022 a las 15:19:11
 *****
-Si hay quien hace eso, es lamentable. Pero no hay duda que los peores son los que se suman a las campañas de linchamiento y de odio y nunca reconocen yerro alguno. Claro, no tendrían que reconocerlo porque lo hacen a sabiendas, ¿Verdad Dr. Chapatín @JesusMartinMx?
-[Permalink](https://twitter.com/fernandeznorona/status/1496139929709121537) | 53 Me Gusta | 21 Retweets
+RT @alvaro_delgado: Ojo: En España se une “la mafia oligárquica” de PSOE y la derecha para frustran crear empresa estatal para bajar precio…
+[Permalink](https://twitter.com/fernandeznorona/status/1496263328662016004) | 0 Me Gusta | 490 Retweets

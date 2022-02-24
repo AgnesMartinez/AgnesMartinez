@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 08:31:34
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 15:57:53
 *****
-Ya rumbo a la @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1496523135432249350) | 59 Me Gusta | 4 Retweets
+Voy tarde para la transmisión de hoy. Paciencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1496635454887800834) | 49 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 07:56:23
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 14:18:16
 *****
-Esto no le preocupa al secretario de Estado de EEUU.
-[Permalink](https://twitter.com/fernandeznorona/status/1496514282741284871) | 75 Me Gusta | 37 Retweets
+El Gustavo A Madero.
+[Permalink](https://twitter.com/fernandeznorona/status/1496610387046932483) | 45 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 07:41:39
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 13:24:14
 *****
-Resulta que @POTUS insulta un reportero diciéndole “ estúpido hijo de puta” fue un desliz. Pero que el compañero presidente @lopezobrador_ desmienta campañas de calumnias es preocupante para la libertad de expresión.
-[Permalink](https://twitter.com/fernandeznorona/status/1496510573462306823) | 372 Me Gusta | 107 Retweets
+RT @rubengluengas: El títere de Klaus Schwab, el dictator Trudeau hablando sobre la situación de Rusia/Ucrania: "Canadá y nuestros aliados…
+[Permalink](https://twitter.com/fernandeznorona/status/1496596788207177730) | 0 Me Gusta | 75 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 07:36:52
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 13:23:16
 *****
-RT @Hans2412: El presidente @lopezobrador_ le pide al secretario de Estado de EEUU @SecBlinken: 
-
-
-“Que se informe y que no actúen de manera…
-[Permalink](https://twitter.com/fernandeznorona/status/1496509369487437831) | 0 Me Gusta | 465 Retweets
+El Parlamento abierto me hizo aprender que los grandes grandes empresarios están preocupadísimos por el medio ambiente y solo usan energías limpias. No sé de dónde las sacan, pero ahora todos usan energías limpias.
+[Permalink](https://twitter.com/fernandeznorona/status/1496596543905755145) | 120 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 07:36:25
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 12:48:57
 *****
-Yo soy de los desagradecidos pues quiero seguir durmiendo.
-[Permalink](https://twitter.com/fernandeznorona/status/1496509258816438278) | 31 Me Gusta | 4 Retweets
+A la larga significa como cien años. Hubieras venido ayer a @Mx_Diputados, te habría atendido con mucho gusto leoncito, @leozuckermann.
+[Permalink](https://twitter.com/fernandeznorona/status/1496587908240719872) | 85 Me Gusta | 25 Retweets

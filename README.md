@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 15:57:53
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 19:33:39
 *****
-Voy tarde para la transmisión de hoy. Paciencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1496635454887800834) | 49 Me Gusta | 7 Retweets
+Oye #TomandanteBorolas alias @FelipeCalderon, nos gustaría tu opinión. La de @Mzavalagc, la oiré en tribuna, supongo.
+[Permalink](https://twitter.com/fernandeznorona/status/1496689753630154752) | 305 Me Gusta | 122 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 14:18:16
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 19:25:42
 *****
-El Gustavo A Madero.
-[Permalink](https://twitter.com/fernandeznorona/status/1496610387046932483) | 45 Me Gusta | 8 Retweets
+@Ceciliaaaoooo Has hecho.
+[Permalink](https://twitter.com/fernandeznorona/status/1496687755740561408) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 13:24:14
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 19:25:18
 *****
-RT @rubengluengas: El títere de Klaus Schwab, el dictator Trudeau hablando sobre la situación de Rusia/Ucrania: "Canadá y nuestros aliados…
-[Permalink](https://twitter.com/fernandeznorona/status/1496596788207177730) | 0 Me Gusta | 75 Retweets
+RT @ActualidadRT: "Se ve cómo Hungría está rodeada": Pelosi confunde Ucrania con Hungría al describir la situación en Europa del Este y la…
+[Permalink](https://twitter.com/fernandeznorona/status/1496687654393597954) | 0 Me Gusta | 71 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 13:23:16
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 19:24:34
 *****
-El Parlamento abierto me hizo aprender que los grandes grandes empresarios están preocupadísimos por el medio ambiente y solo usan energías limpias. No sé de dónde las sacan, pero ahora todos usan energías limpias.
-[Permalink](https://twitter.com/fernandeznorona/status/1496596543905755145) | 120 Me Gusta | 36 Retweets
+¡Repelar! Lo que hay que leer.
+[Permalink](https://twitter.com/fernandeznorona/status/1496687468342657027) | 33 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 12:48:57
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 19:19:57
 *****
-A la larga significa como cien años. Hubieras venido ayer a @Mx_Diputados, te habría atendido con mucho gusto leoncito, @leozuckermann.
-[Permalink](https://twitter.com/fernandeznorona/status/1496587908240719872) | 85 Me Gusta | 25 Retweets
+RT @m_ebrard: Les comparto comunicación que estoy enviando al Secretario de Estado de los Estados Unidos, Antony J. Blinken, en estos momen…
+[Permalink](https://twitter.com/fernandeznorona/status/1496686306151342081) | 0 Me Gusta | 2,163 Retweets

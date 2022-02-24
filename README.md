@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 19:33:39
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 09:13:42
 *****
-Oye #TomandanteBorolas alias @FelipeCalderon, nos gustaría tu opinión. La de @Mzavalagc, la oiré en tribuna, supongo.
-[Permalink](https://twitter.com/fernandeznorona/status/1496689753630154752) | 378 Me Gusta | 160 Retweets
+Saliendo de Campo Marte rumbo a @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1496896129505583112) | 50 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 19:25:42
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 08:29:42
 *****
-@Ceciliaaaoooo Has hecho.
-[Permalink](https://twitter.com/fernandeznorona/status/1496687755740561408) | 2 Me Gusta | 0 Retweets
+“Día de la Bandera”, Campo Marte.
+[Permalink](https://twitter.com/fernandeznorona/status/1496885053258973191) | 61 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 19:25:18
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 07:50:38
 *****
-RT @ActualidadRT: "Se ve cómo Hungría está rodeada": Pelosi confunde Ucrania con Hungría al describir la situación en Europa del Este y la…
-[Permalink](https://twitter.com/fernandeznorona/status/1496687654393597954) | 0 Me Gusta | 77 Retweets
+Campo Marte.
+[Permalink](https://twitter.com/fernandeznorona/status/1496875223559385091) | 74 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 19:24:34
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 07:45:00
 *****
-¡Repelar! Lo que hay que leer.
-[Permalink](https://twitter.com/fernandeznorona/status/1496687468342657027) | 34 Me Gusta | 5 Retweets
+Imagínese a Rosseau, Voltaire, Holbach, Lessing, Heine y Hegel fundidos en una sola persona -digo fundidos y no yuxtapuestos-, y tendremos al doctor Marx”
+[Permalink](https://twitter.com/fernandeznorona/status/1496873807763619843) | 95 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2022 a las 19:19:57
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 07:18:56
 *****
-RT @m_ebrard: Les comparto comunicación que estoy enviando al Secretario de Estado de los Estados Unidos, Antony J. Blinken, en estos momen…
-[Permalink](https://twitter.com/fernandeznorona/status/1496686306151342081) | 0 Me Gusta | 2,252 Retweets
+Llegando al Campo Marte para la ceremonia del “Día de la Bandera”.
+[Permalink](https://twitter.com/fernandeznorona/status/1496867247163424776) | 99 Me Gusta | 8 Retweets

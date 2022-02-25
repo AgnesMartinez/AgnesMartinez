@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 20:24:51
+**Fernández Noroña** (**@fernandeznorona**) • 25-02-2022 a las 06:55:43
 *****
-Y ustedes confunden el @INEMexico con @AccionNacional. El presupuesto público con su caja chica; el órgano electoral con un poder de la República y, su cinismo con dignidad. Así de perdidos están monaguillo @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1497065028532457473) | 154 Me Gusta | 59 Retweets
+RT @Navegaciones: He leído varias notas sobre posibles impactos negativos para México de la incursión rusa en Ucrania.
+Apunto uno positivo:…
+[Permalink](https://twitter.com/fernandeznorona/status/1497223789171515396) | 0 Me Gusta | 703 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 20:21:20
+**Fernández Noroña** (**@fernandeznorona**) • 25-02-2022 a las 06:54:52
 *****
-Abrazote. Debo admitir que no lo ví, pero puros buenos comentarios he recibido de tu participación. Muchas gracias.
-[Permalink](https://twitter.com/fernandeznorona/status/1497064145161801736) | 40 Me Gusta | 6 Retweets
+RT @HNoticiasMX: Este video que circula en las redes sociales lo pasan como un ataque con misiles perpetrado por #Rusia a la ciudad de Kiev…
+[Permalink](https://twitter.com/fernandeznorona/status/1497223575761207334) | 0 Me Gusta | 204 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 20:13:54
+**Fernández Noroña** (**@fernandeznorona**) • 25-02-2022 a las 06:54:38
 *****
-Ahí estás @insolitista.
-[Permalink](https://twitter.com/fernandeznorona/status/1497062270454710274) | 63 Me Gusta | 10 Retweets
+Tomó sus providencias. ¿Verdad #TomandanteBorolas alias @FelipeCalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1497223519461122051) | 43 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 18:58:40
+**Fernández Noroña** (**@fernandeznorona**) • 25-02-2022 a las 06:53:29
 *****
-RT @abrahamendieta: Se me hace divertido que los mismos panistas que me dicen que “no puedo opinar de México porque soy extranjero”, ahora…
-[Permalink](https://twitter.com/fernandeznorona/status/1497043337815420928) | 0 Me Gusta | 2,177 Retweets
+Ahora sí se acabó Rusia, se ha cancelado la Fórmula 1. @SergioSarmiento da la exclusiva. ¡Eso es periodismo! Ya perdió el premio Nobel de periodismo @CarlosLoret.
+[Permalink](https://twitter.com/fernandeznorona/status/1497223230528147459) | 131 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 18:55:06
+**Fernández Noroña** (**@fernandeznorona**) • 25-02-2022 a las 06:50:47
 *****
-Uta, mañana deberé salir 5:30 rumbo al aeropuerto con destino a Tuxtla Gutiérrez, Chiapas. De ahí a Comitán.
-[Permalink](https://twitter.com/fernandeznorona/status/1497042441760911383) | 174 Me Gusta | 12 Retweets
+RT @JesusRCuevas: Acerca del asesinato del periodista Margarito Martínez Esquivel, el @GobiernoMX realizó un operativo en el cual se detuvi…
+[Permalink](https://twitter.com/fernandeznorona/status/1497222548324556801) | 0 Me Gusta | 789 Retweets

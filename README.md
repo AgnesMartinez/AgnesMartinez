@@ -1,31 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 16:00:24
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 20:24:51
 *****
-RT @AfpFactual: Numerosos usuarios comparten el video de una gran explosión nocturna asegurando que muestra un ataque aéreo ruso sobre  Lug…
-[Permalink](https://twitter.com/fernandeznorona/status/1496998476277858306) | 0 Me Gusta | 736 Retweets
+Y ustedes confunden el @INEMexico con @AccionNacional. El presupuesto público con su caja chica; el órgano electoral con un poder de la República y, su cinismo con dignidad. Así de perdidos están monaguillo @CiroMurayamaINE.
+[Permalink](https://twitter.com/fernandeznorona/status/1497065028532457473) | 123 Me Gusta | 46 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 16:00:16
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 20:21:20
 *****
-RT @AfpFactual: 🇺🇦 ¿Este video de unos aviones militares en formación registra la invasión rusa a Ucrania de 2022?
- 
-🔎No. El video original…
-[Permalink](https://twitter.com/fernandeznorona/status/1496998444170645504) | 0 Me Gusta | 422 Retweets
+Abrazote. Debo admitir que no lo ví, pero puros buenos comentarios he recibido de tu participación. Muchas gracias.
+[Permalink](https://twitter.com/fernandeznorona/status/1497064145161801736) | 31 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 16:00:02
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 20:13:54
 *****
-RT @AfpFactual: 🇷🇺 🇺🇦 ¿Este es un niño ucraniano durante el conflicto con Rusia?
-
-
-❌ No. El pequeño es un refugiado sirio en un campamento e…
-[Permalink](https://twitter.com/fernandeznorona/status/1496998385559257090) | 0 Me Gusta | 185 Retweets
+Ahí estás @insolitista.
+[Permalink](https://twitter.com/fernandeznorona/status/1497062270454710274) | 46 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 15:58:48
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 18:58:40
 *****
-Ya voy para la video charla de hoy, pero el centro siempre es una pesadilla. Las patrullas tienen cerrada la calle Allende en el Eje 1 Norte, a saber por qué. @UCS_GCDMX
-[Permalink](https://twitter.com/fernandeznorona/status/1496998074950234112) | 26 Me Gusta | 3 Retweets
+RT @abrahamendieta: Se me hace divertido que los mismos panistas que me dicen que “no puedo opinar de México porque soy extranjero”, ahora…
+[Permalink](https://twitter.com/fernandeznorona/status/1497043337815420928) | 0 Me Gusta | 1,951 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 15:52:31
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2022 a las 18:55:06
 *****
-RT @AlfonsoFDyE: León Krauze entrevista a un colombiano residente en Ucrania. Esta persona le explica lo que está pasando en el lugar en el…
-[Permalink](https://twitter.com/fernandeznorona/status/1496996492615499776) | 0 Me Gusta | 1,092 Retweets
+Uta, mañana deberé salir 5:30 rumbo al aeropuerto con destino a Tuxtla Gutiérrez, Chiapas. De ahí a Comitán.
+[Permalink](https://twitter.com/fernandeznorona/status/1497042441760911383) | 146 Me Gusta | 9 Retweets

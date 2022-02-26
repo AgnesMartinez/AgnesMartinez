@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-02-2022 a las 21:40:35
+**Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 09:24:20
 *****
-Qué día más intenso. Apenas me voy a dormir.
-[Permalink](https://twitter.com/fernandeznorona/status/1497446475822944262) | 201 Me Gusta | 11 Retweets
+Toda mi solidaridad. Un testimonio muy fuerte y grave sobre el efecto de las vacunas.
+[Permalink](https://twitter.com/fernandeznorona/status/1497623580753993728) | 19 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-02-2022 a las 17:12:03
+**Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 09:22:59
 *****
-8960 en Facebook y, 10,484 en YouTube
-[Permalink](https://twitter.com/fernandeznorona/status/1497378894969769984) | 82 Me Gusta | 12 Retweets
+RT @BibiMonteroDR: 1/3. Tenía 52 años, estaba contento porque le habían aplicado el refuerzo de la vacuna, ese día comenzó a sentirse muy m…
+[Permalink](https://twitter.com/fernandeznorona/status/1497623241753571330) | 0 Me Gusta | 79 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-02-2022 a las 06:55:43
+**Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 09:21:00
 *****
-RT @Navegaciones: He leído varias notas sobre posibles impactos negativos para México de la incursión rusa en Ucrania.
-Apunto uno positivo:…
-[Permalink](https://twitter.com/fernandeznorona/status/1497223789171515396) | 0 Me Gusta | 804 Retweets
+¡Qué tal!
+[Permalink](https://twitter.com/fernandeznorona/status/1497622740949471232) | 24 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-02-2022 a las 06:54:52
+**Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 09:20:32
 *****
-RT @HNoticiasMX: Este video que circula en las redes sociales lo pasan como un ataque con misiles perpetrado por #Rusia a la ciudad de Kiev…
-[Permalink](https://twitter.com/fernandeznorona/status/1497223575761207334) | 0 Me Gusta | 470 Retweets
+Jejeje. Me preguntó por qué no tengo canas.
+[Permalink](https://twitter.com/fernandeznorona/status/1497622623295094795) | 61 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-02-2022 a las 06:54:38
+**Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 08:36:35
 *****
-Tomó sus providencias. ¿Verdad #TomandanteBorolas alias @FelipeCalderon?
-[Permalink](https://twitter.com/fernandeznorona/status/1497223519461122051) | 62 Me Gusta | 20 Retweets
+Las Margaritas.
+[Permalink](https://twitter.com/fernandeznorona/status/1497611562735001609) | 62 Me Gusta | 16 Retweets

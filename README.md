@@ -3,17 +3,17 @@
 **Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 20:52:49
 *****
 Apenas en el hotel y mañana debemos salir ocho de la mañana rumbo a El Parral.
-[Permalink](https://twitter.com/fernandeznorona/status/1497796843475976194) | 77 Me Gusta | 6 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1497796843475976194) | 107 Me Gusta | 7 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 20:52:07
 *****
 Vamos llegando a Tuxtla Gutiérrez.
-[Permalink](https://twitter.com/fernandeznorona/status/1497796664165388288) | 66 Me Gusta | 3 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1497796664165388288) | 88 Me Gusta | 3 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 17:38:49
 *****
 Vamos saliendo de Comitán rumbo a Tuxtla Gutiérrez.
-[Permalink](https://twitter.com/fernandeznorona/status/1497748022209486850) | 127 Me Gusta | 7 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1497748022209486850) | 131 Me Gusta | 7 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 17:26:13
 *****
@@ -23,4 +23,4 @@ Vamos saliendo de Comitán rumbo a Tuxtla Gutiérrez.
 **Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 15:59:50
 *****
 En Tzimol, Chiapas.
-[Permalink](https://twitter.com/fernandeznorona/status/1497723112300765186) | 56 Me Gusta | 6 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1497723112300765186) | 60 Me Gusta | 7 Retweets

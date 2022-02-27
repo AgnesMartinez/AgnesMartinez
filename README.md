@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 20:52:49
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 08:36:06
 *****
-Apenas en el hotel y mañana debemos salir ocho de la mañana rumbo a El Parral.
-[Permalink](https://twitter.com/fernandeznorona/status/1497796843475976194) | 107 Me Gusta | 7 Retweets
+RT @Patriciomonero: Menos mal...
+[Permalink](https://twitter.com/fernandeznorona/status/1497973829104193543) | 0 Me Gusta | 134 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 20:52:07
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 08:30:53
 *****
-Vamos llegando a Tuxtla Gutiérrez.
-[Permalink](https://twitter.com/fernandeznorona/status/1497796664165388288) | 88 Me Gusta | 3 Retweets
+En El Parral, Chiapas con Karina Camacho, compañera de lucha en este lugar de la Patria.
+[Permalink](https://twitter.com/fernandeznorona/status/1497972518073810944) | 30 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 17:38:49
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 08:22:41
 *****
-Vamos saliendo de Comitán rumbo a Tuxtla Gutiérrez.
-[Permalink](https://twitter.com/fernandeznorona/status/1497748022209486850) | 131 Me Gusta | 7 Retweets
+Toda mi solidaridad con @CitlaHM. Me parece miserable que se burlen del accidente que tuvo. Espero que estés bien, mi estimada amiga y compañera de lucha.
+[Permalink](https://twitter.com/fernandeznorona/status/1497970453520039943) | 259 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 17:26:13
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 08:18:27
 *****
-4916 en Facebook, raro el número reportado -por modesto- y, 11,213 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1497744848476061701) | 45 Me Gusta | 5 Retweets
+En El Parral, Chiapas.
+[Permalink](https://twitter.com/fernandeznorona/status/1497969387445395456) | 47 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2022 a las 15:59:50
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 06:14:51
 *****
-En Tzimol, Chiapas.
-[Permalink](https://twitter.com/fernandeznorona/status/1497723112300765186) | 60 Me Gusta | 7 Retweets
+Ya vamos a El Parral.
+[Permalink](https://twitter.com/fernandeznorona/status/1497938280620474374) | 71 Me Gusta | 7 Retweets

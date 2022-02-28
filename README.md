@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 22:34:37
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 09:12:21
 *****
-Apenas llegando a casa. Mañana deberé salir a las 8:30 de la mañana rumbo a @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1498184847289896964) | 66 Me Gusta | 4 Retweets
+Una periodista en defensa de la libertad de expresión. Es un ironía, para los que sean cortos de miras y no se den cuenta. @DoliaEstevez #dolia
+[Permalink](https://twitter.com/fernandeznorona/status/1498345341409804295) | 88 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 21:41:08
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 09:10:53
 *****
-El renunció a @AccionNacional un año antes de que tú te afiliaras a éste, #TomandanteBorolas alias @FelipeCalderon. Tu padre era un hombre decente, creo que no le aprendiste nada.
-[Permalink](https://twitter.com/fernandeznorona/status/1498171388875661312) | 89 Me Gusta | 30 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1498344971371520000) | 32 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 21:32:25
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 07:39:01
 *****
-Acabamos de aterrizar en el DF.
-[Permalink](https://twitter.com/fernandeznorona/status/1498169197284794370) | 71 Me Gusta | 1 Retweets
+No está confirmado ¿o sí?
+[Permalink](https://twitter.com/fernandeznorona/status/1498321852170702849) | 16 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 20:15:44
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 07:38:02
 *****
-El vuelo de @flyvolaris va hasta el tope.
-[Permalink](https://twitter.com/fernandeznorona/status/1498149896792285196) | 27 Me Gusta | 6 Retweets
+El facho @SergioSarmiento, siendo facho.
+[Permalink](https://twitter.com/fernandeznorona/status/1498321602676764677) | 85 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 20:10:40
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 07:37:12
 *****
-RT @rochaperiodista: ¿Por qué la diferencia entre el costo de casillas del INE? ¿Ahora incluyen "food truck"?
--Consulta Popular, Costo por…
-[Permalink](https://twitter.com/fernandeznorona/status/1498148621849665538) | 0 Me Gusta | 531 Retweets
+RT @Sanx415: El siempre lucrativo negocio de vender armas @UnionEuropeaRD
+[Permalink](https://twitter.com/fernandeznorona/status/1498321394630905858) | 0 Me Gusta | 12 Retweets

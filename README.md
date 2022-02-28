@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 08:36:06
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 15:57:50
 *****
-RT @Patriciomonero: Menos mal...
-[Permalink](https://twitter.com/fernandeznorona/status/1497973829104193543) | 0 Me Gusta | 134 Retweets
+RT @AnaMendoza1989: ¿Cuándo condenaremos esto?, ¿Cuándo nuestro gobierno se pronunciará sobre estos hechos tan aberrantes?. Es inhumano que…
+[Permalink](https://twitter.com/fernandeznorona/status/1498084995558215683) | 0 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 08:30:53
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 15:56:35
 *****
-En El Parral, Chiapas con Karina Camacho, compañera de lucha en este lugar de la Patria.
-[Permalink](https://twitter.com/fernandeznorona/status/1497972518073810944) | 30 Me Gusta | 2 Retweets
+Naa, ellos también andan recorriendo el país, realizando asambleas informativas sobre la reforma constitucional en materia eléctrica. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1498084680914116609) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 08:22:41
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 15:36:45
 *****
-Toda mi solidaridad con @CitlaHM. Me parece miserable que se burlen del accidente que tuvo. Espero que estés bien, mi estimada amiga y compañera de lucha.
-[Permalink](https://twitter.com/fernandeznorona/status/1497970453520039943) | 259 Me Gusta | 41 Retweets
+@Aposematico Escenario.
+[Permalink](https://twitter.com/fernandeznorona/status/1498079689436540928) | 5 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 08:18:27
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 15:11:07
 *****
-En El Parral, Chiapas.
-[Permalink](https://twitter.com/fernandeznorona/status/1497969387445395456) | 47 Me Gusta | 6 Retweets
+Hoy te volaste la barda Dr. Chapatín @JesusMartinMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1498073236755697664) | 36 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 06:14:51
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2022 a las 15:08:38
 *****
-Ya vamos a El Parral.
-[Permalink](https://twitter.com/fernandeznorona/status/1497938280620474374) | 71 Me Gusta | 7 Retweets
+RT @rocioss: Siempre atinado el ⁦@monerohernandez⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1498072614534795270) | 0 Me Gusta | 498 Retweets

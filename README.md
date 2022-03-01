@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 14:40:56
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 19:48:29
 *****
-Tiene el escudo del América.
-[Permalink](https://twitter.com/fernandeznorona/status/1498428030607400964) | 31 Me Gusta | 6 Retweets
+@xX_DarkAdria_Xx Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1498505428627460096) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 14:37:58
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 19:34:30
 *****
-“Sucedió así que el hombre más tonto de Francia adquirió la más compleja trascendencia: ‘Precisamente por que no era nada, podía significarlo todo”. Wheen y Marx sobre Luis Bonaparte. La definición me hizo pensar en @EPN.
-[Permalink](https://twitter.com/fernandeznorona/status/1498427282586836996) | 49 Me Gusta | 9 Retweets
+Mira @FerVilchisMx, no hacen caso de tus sabios consejos epidemiológicos.
+[Permalink](https://twitter.com/fernandeznorona/status/1498501910344523782) | 33 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 13:38:01
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 19:33:37
 *****
-Jejeje. Acuérdate que no hay reelección.
-[Permalink](https://twitter.com/fernandeznorona/status/1498412194609909762) | 25 Me Gusta | 8 Retweets
+Nadie ha descartado nada. ¿Qué te pasó?
+[Permalink](https://twitter.com/fernandeznorona/status/1498501685433356295) | 28 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 12:52:27
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 19:32:02
 *****
-Te hablas frente al espejo, monaguillo @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1498400731220561923) | 97 Me Gusta | 34 Retweets
+RT @luisanchezmejia: @fernandeznorona @armanditoev @INEMexico Hola Gerardo, te cuento que aquí en Avándaro escondieron tanto la casilla -ju…
+[Permalink](https://twitter.com/fernandeznorona/status/1498501286479613960) | 0 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 09:12:21
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2022 a las 19:15:19
 *****
-Una periodista en defensa de la libertad de expresión. Es un ironía, para los que sean cortos de miras y no se den cuenta. @DoliaEstevez #dolia
-[Permalink](https://twitter.com/fernandeznorona/status/1498345341409804295) | 155 Me Gusta | 47 Retweets
+Se pasan.
+[Permalink](https://twitter.com/fernandeznorona/status/1498497082440630277) | 26 Me Gusta | 4 Retweets

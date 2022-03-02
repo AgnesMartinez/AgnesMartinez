@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2022 a las 20:40:12
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 10:00:38
 *****
-Ya en pueblo quieto. A dormir pues mañana quiero ir a caminar a la montaña.
-[Permalink](https://twitter.com/fernandeznorona/status/1498880830365704192) | 139 Me Gusta | 11 Retweets
+¡Ah que tiempos señor Don Simón! ¿Los extrañas?
+[Permalink](https://twitter.com/fernandeznorona/status/1499082267230093315) | 10 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2022 a las 19:42:54
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 09:38:46
 *****
-Ese traidorzuelo no merece mayor atención. Anda de sirviente del @PRI_Nacional y antes se ponía de tapete del hoy compañero presidente.
-[Permalink](https://twitter.com/fernandeznorona/status/1498866412533780484) | 79 Me Gusta | 19 Retweets
+RT @Navegaciones: ¿Cómo explicarle a los panistas el significado de “bolchevique”? 🤔
+[Permalink](https://twitter.com/fernandeznorona/status/1499076761589530631) | 0 Me Gusta | 794 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2022 a las 18:29:04
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 09:38:44
 *****
-Cierto. No quiere, han saboteado la consulta y lo seguirán haciendo, pandilla de hipócritas. @lorenzocordovav @INEMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1498847828256428038) | 103 Me Gusta | 41 Retweets
+¡Está buenísimo!
+[Permalink](https://twitter.com/fernandeznorona/status/1499076753012281347) | 28 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2022 a las 18:21:49
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 09:37:52
 *****
-Ya es tarde y aún así voy a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1498846004636000256) | 85 Me Gusta | 5 Retweets
+RT @El_Chamuco: Siendo honestos.
+
+
+Cartón de @monerohernandez en @lajornadaonline.
+[Permalink](https://twitter.com/fernandeznorona/status/1499076536259031045) | 0 Me Gusta | 330 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2022 a las 17:23:55
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 09:37:38
 *****
-17,009 en Facebook y, 13,522 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1498831433007353862) | 64 Me Gusta | 8 Retweets
+RT @Luna_Tagg: Otro #EnanoAcomplejado
+[Permalink](https://twitter.com/fernandeznorona/status/1499076476263702529) | 0 Me Gusta | 30 Retweets

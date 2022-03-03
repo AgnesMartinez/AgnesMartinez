@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 15:47:36
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 20:12:49
 *****
-Estoy feliz en Tláhuac.
-[Permalink](https://twitter.com/fernandeznorona/status/1499169582103375878) | 40 Me Gusta | 4 Retweets
+RT @epigmenioibarra: En el fondo ni la élite periodística,con toda su influencia;ni el INE que ha saboteado sistemáticamente la consulta de…
+[Permalink](https://twitter.com/fernandeznorona/status/1499236326343852033) | 0 Me Gusta | 1,080 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 15:14:48
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 20:12:31
 *****
-Tláhuac
-[Permalink](https://twitter.com/fernandeznorona/status/1499161330518999040) | 83 Me Gusta | 20 Retweets
+RT @Beatriz84981597: Bola de fantoches, inconcebible la inmadurez que manifiestan 🤦🏻‍♀️
+[Permalink](https://twitter.com/fernandeznorona/status/1499236250980700169) | 0 Me Gusta | 54 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 15:14:34
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 20:06:53
 *****
-Tláhuac.
-[Permalink](https://twitter.com/fernandeznorona/status/1499161272105017344) | 34 Me Gusta | 4 Retweets
+Xacto. Siempre que me mandaban a comprar cilantro y llevaba perejil, y a la inversa.
+[Permalink](https://twitter.com/fernandeznorona/status/1499234834132123649) | 44 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 15:14:20
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 20:06:10
 *****
-Tláhuac.
-[Permalink](https://twitter.com/fernandeznorona/status/1499161210046013441) | 55 Me Gusta | 9 Retweets
+RT @rubengluengas: López Obrador califica de fascismo la censura de medios rusos. 
+
+
+El presidente de México, Andrés Manuel López Obrador, d…
+[Permalink](https://twitter.com/fernandeznorona/status/1499234653106061312) | 0 Me Gusta | 79 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 14:34:02
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 20:03:33
 *****
-Estuve una hora en la asamblea de legisladores de la 4T. Pero no empezó nunca y ya tenía yo el compromiso en Tláhuac. De hecho voy en camino.
-[Permalink](https://twitter.com/fernandeznorona/status/1499151067501760513) | 81 Me Gusta | 10 Retweets
+RT @mlucascir: Lean a Dostoievski. Les juro que no se arrepentirán y los enriquecerá mucho. Haber leído su obra completa ha sido una de las…
+[Permalink](https://twitter.com/fernandeznorona/status/1499233994285670403) | 0 Me Gusta | 92 Retweets

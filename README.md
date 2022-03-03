@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 10:00:38
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 15:47:36
 *****
-¡Ah que tiempos señor Don Simón! ¿Los extrañas?
-[Permalink](https://twitter.com/fernandeznorona/status/1499082267230093315) | 10 Me Gusta | 4 Retweets
+Estoy feliz en Tláhuac.
+[Permalink](https://twitter.com/fernandeznorona/status/1499169582103375878) | 40 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 09:38:46
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 15:14:48
 *****
-RT @Navegaciones: ¿Cómo explicarle a los panistas el significado de “bolchevique”? 🤔
-[Permalink](https://twitter.com/fernandeznorona/status/1499076761589530631) | 0 Me Gusta | 794 Retweets
+Tláhuac
+[Permalink](https://twitter.com/fernandeznorona/status/1499161330518999040) | 83 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 09:38:44
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 15:14:34
 *****
-¡Está buenísimo!
-[Permalink](https://twitter.com/fernandeznorona/status/1499076753012281347) | 28 Me Gusta | 9 Retweets
+Tláhuac.
+[Permalink](https://twitter.com/fernandeznorona/status/1499161272105017344) | 34 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 09:37:52
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 15:14:20
 *****
-RT @El_Chamuco: Siendo honestos.
-
-
-Cartón de @monerohernandez en @lajornadaonline.
-[Permalink](https://twitter.com/fernandeznorona/status/1499076536259031045) | 0 Me Gusta | 330 Retweets
+Tláhuac.
+[Permalink](https://twitter.com/fernandeznorona/status/1499161210046013441) | 55 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 09:37:38
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 14:34:02
 *****
-RT @Luna_Tagg: Otro #EnanoAcomplejado
-[Permalink](https://twitter.com/fernandeznorona/status/1499076476263702529) | 0 Me Gusta | 30 Retweets
+Estuve una hora en la asamblea de legisladores de la 4T. Pero no empezó nunca y ya tenía yo el compromiso en Tláhuac. De hecho voy en camino.
+[Permalink](https://twitter.com/fernandeznorona/status/1499151067501760513) | 81 Me Gusta | 10 Retweets

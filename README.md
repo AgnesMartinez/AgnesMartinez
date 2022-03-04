@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 15:47:22
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 21:22:05
 *****
-Oigan @UCS_GCDMX. Un policía quería dinero por no levantar una infracción. Me pueden pasar el teléfono donde se hace el reporte.
-[Permalink](https://twitter.com/fernandeznorona/status/1499531911135379457) | 51 Me Gusta | 10 Retweets
+RT @Archi_Traveler: Positano, Italy 🇮🇹
+[Permalink](https://twitter.com/fernandeznorona/status/1499616145518645248) | 0 Me Gusta | 151 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 15:27:43
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 21:19:55
 *****
-Ahí les hablan @INEMexico @lorenzocordovav @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1499526968689270788) | 41 Me Gusta | 11 Retweets
+Obvio, ya llegamos al aeropuerto de Culiacán.
+[Permalink](https://twitter.com/fernandeznorona/status/1499615601702019073) | 41 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 15:25:36
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 21:19:35
 *****
-¿Ésta tampoco te gusta?
-[Permalink](https://twitter.com/fernandeznorona/status/1499526435391877122) | 45 Me Gusta | 11 Retweets
+“Alguien que trabaje solo para sí mismo ‘quizás llegue a ser un famoso erudito, gran sabio, excelente poeta, pero jamás podrá ser un perfecto y verdadero gran hombre’. La historia  solo aclama a las personas qué sean en beneficio de su tribu…”. Wheen.
+[Permalink](https://twitter.com/fernandeznorona/status/1499615516444422146) | 29 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 15:20:41
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 21:16:27
 *****
-Muchas felicidades para ambos.
-[Permalink](https://twitter.com/fernandeznorona/status/1499525195287179273) | 22 Me Gusta | 3 Retweets
+18,543 en Facebook y, 13,522 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1499614728661856257) | 25 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 15:15:41
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 19:26:11
 *****
-Fuerte discurso de este diputado alemán.
-[Permalink](https://twitter.com/fernandeznorona/status/1499523937159553028) | 69 Me Gusta | 28 Retweets
+RT @RaquelBonillaHe: ¡Una mañana de recorrido por la patria grande! Primero recibiendo a Lula Da Silva en la Cámara de Diputados y después…
+[Permalink](https://twitter.com/fernandeznorona/status/1499586977456345120) | 0 Me Gusta | 11 Retweets

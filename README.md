@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 20:12:49
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 15:47:22
 *****
-RT @epigmenioibarra: En el fondo ni la élite periodística,con toda su influencia;ni el INE que ha saboteado sistemáticamente la consulta de…
-[Permalink](https://twitter.com/fernandeznorona/status/1499236326343852033) | 0 Me Gusta | 1,412 Retweets
+Oigan @UCS_GCDMX. Un policía quería dinero por no levantar una infracción. Me pueden pasar el teléfono donde se hace el reporte.
+[Permalink](https://twitter.com/fernandeznorona/status/1499531911135379457) | 51 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 20:12:31
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 15:27:43
 *****
-RT @Beatriz84981597: Bola de fantoches, inconcebible la inmadurez que manifiestan 🤦🏻‍♀️
-[Permalink](https://twitter.com/fernandeznorona/status/1499236250980700169) | 0 Me Gusta | 79 Retweets
+Ahí les hablan @INEMexico @lorenzocordovav @CiroMurayamaINE.
+[Permalink](https://twitter.com/fernandeznorona/status/1499526968689270788) | 41 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 20:06:53
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 15:25:36
 *****
-Xacto. Siempre que me mandaban a comprar cilantro y llevaba perejil, y a la inversa.
-[Permalink](https://twitter.com/fernandeznorona/status/1499234834132123649) | 75 Me Gusta | 14 Retweets
+¿Ésta tampoco te gusta?
+[Permalink](https://twitter.com/fernandeznorona/status/1499526435391877122) | 45 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 20:06:10
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 15:20:41
 *****
-RT @rubengluengas: López Obrador califica de fascismo la censura de medios rusos. 
-
-
-El presidente de México, Andrés Manuel López Obrador, d…
-[Permalink](https://twitter.com/fernandeznorona/status/1499234653106061312) | 0 Me Gusta | 103 Retweets
+Muchas felicidades para ambos.
+[Permalink](https://twitter.com/fernandeznorona/status/1499525195287179273) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2022 a las 20:03:33
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2022 a las 15:15:41
 *****
-RT @mlucascir: Lean a Dostoievski. Les juro que no se arrepentirán y los enriquecerá mucho. Haber leído su obra completa ha sido una de las…
-[Permalink](https://twitter.com/fernandeznorona/status/1499233994285670403) | 0 Me Gusta | 154 Retweets
+Fuerte discurso de este diputado alemán.
+[Permalink](https://twitter.com/fernandeznorona/status/1499523937159553028) | 69 Me Gusta | 28 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 08:46:19
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 14:35:08
 *****
-Miren que buena foto de ayer con el Dip. Fernando García.
-[Permalink](https://twitter.com/fernandeznorona/status/1500150729318805511) | 97 Me Gusta | 10 Retweets
+Ya en Concordia, Sinaloa.
+[Permalink](https://twitter.com/fernandeznorona/status/1500238508077694978) | 41 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 00:48:46
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 12:43:05
 *****
-Estuvo muy intenso. Apenas a dormir.
-[Permalink](https://twitter.com/fernandeznorona/status/1500030546545631236) | 91 Me Gusta | 6 Retweets
+Así la reunión en Mazatlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1500210309797056513) | 91 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 00:21:07
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 11:19:41
 *****
-Apenas llegamos a Mazatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1500023589755502594) | 90 Me Gusta | 7 Retweets
+Así va la asistencia en Mazatlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1500189321952784384) | 46 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-03-2022 a las 21:40:02
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 11:14:13
 *****
-RT @Aposematico: Buenísimo!
-[Permalink](https://twitter.com/fernandeznorona/status/1499983052960763904) | 0 Me Gusta | 18 Retweets
+RT @IvanFrancoV: La región volcanes del Estado de México tendrá la visita de @fernandeznorona en #Tlalmanalco el próximo 18 de marzo. https…
+[Permalink](https://twitter.com/fernandeznorona/status/1500187948104359936) | 0 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-03-2022 a las 21:38:54
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 11:11:14
 *****
-RT @JesusJessy: El relevo en #Mocorito #Sinaloa   @fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1499982767022477315) | 0 Me Gusta | 15 Retweets
+Pues parece que más bien es la impuntualidad que hemos generado al convocar a una hora y empezar una hora después. La gente va a llegando al auditorio de la @UASinaloa en Mazatlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1500187197479079940) | 41 Me Gusta | 6 Retweets

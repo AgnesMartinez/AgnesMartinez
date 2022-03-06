@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 14:35:08
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 19:55:03
 *****
-Ya en Concordia, Sinaloa.
-[Permalink](https://twitter.com/fernandeznorona/status/1500238508077694978) | 41 Me Gusta | 8 Retweets
+No quiero ni ver las escenas de lo sucedido en Querétaro el día de hoy. Mi solidaridad para familiares y amigos de quienes hoy sufrieron la violencia en el estadio Corregidora.
+[Permalink](https://twitter.com/fernandeznorona/status/1500319020653764617) | 742 Me Gusta | 105 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 12:43:05
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 19:50:39
 *****
-Así la reunión en Mazatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1500210309797056513) | 91 Me Gusta | 7 Retweets
+Muchísimas gracias. Un alto honor que me pongas en esa lista de gigantes.
+[Permalink](https://twitter.com/fernandeznorona/status/1500317914330587139) | 37 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 11:19:41
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 19:48:19
 *****
-Así va la asistencia en Mazatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1500189321952784384) | 46 Me Gusta | 6 Retweets
+RT @ArturoZaldivarL: Lamento profundamente  lo acontecido en mi Ciudad de Querétaro. Mis condolencias y un abrazo para las familias de las…
+[Permalink](https://twitter.com/fernandeznorona/status/1500317325039312896) | 0 Me Gusta | 2,820 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 11:14:13
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 19:47:51
 *****
-RT @IvanFrancoV: La región volcanes del Estado de México tendrá la visita de @fernandeznorona en #Tlalmanalco el próximo 18 de marzo. https…
-[Permalink](https://twitter.com/fernandeznorona/status/1500187948104359936) | 0 Me Gusta | 34 Retweets
+RT @ReginaldoSF_PT: Terribles y muy condenables los hechos ocurridos en el partido de fútbol en Qro. Autoridades hagan su trabajo con rigor…
+[Permalink](https://twitter.com/fernandeznorona/status/1500317207917563904) | 0 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 11:11:14
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 19:43:48
 *****
-Pues parece que más bien es la impuntualidad que hemos generado al convocar a una hora y empezar una hora después. La gente va a llegando al auditorio de la @UASinaloa en Mazatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1500187197479079940) | 41 Me Gusta | 6 Retweets
+RT @jgnaredo: Al menos 17 asesinatos en el estadio de Querétaro hoy y la @LigaBBVAMX dice que va a “reprogramar” el partido. 
+
+
+Eso es no te…
+[Permalink](https://twitter.com/fernandeznorona/status/1500316189238579200) | 0 Me Gusta | 745 Retweets

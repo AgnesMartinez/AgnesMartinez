@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 22:00:04
+**Fernández Noroña** (**@fernandeznorona**) • 07-03-2022 a las 08:13:04
 *****
-Ayer unos tipos escandalizando de tres a cinco de la mañana en la habitación de al lado. Ahorita, un tipo tipo vino casi a tirar la puerta y, en la recepción, llamar para pedir la seguridad nos dicen que quieren comunicarse con nosotros. ¿Qué pasa con el “Hotel Varali”? Mazatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1500712869461049345) | 191 Me Gusta | 62 Retweets
+Es un hecho social, va mucho más allá del seno familiar.
+[Permalink](https://twitter.com/fernandeznorona/status/1500867135156805638) | 42 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 21:18:50
+**Fernández Noroña** (**@fernandeznorona**) • 07-03-2022 a las 08:12:14
 *****
-RT @abrahamendieta: Nuevamente España rompe récords en el precio de la luz: 442€ (9,000 pesos) por Megavatio.
-
-
-Hacia allá vamos en México s…
-[Permalink](https://twitter.com/fernandeznorona/status/1500702490378977282) | 0 Me Gusta | 3,478 Retweets
+I M B É C I L.
+[Permalink](https://twitter.com/fernandeznorona/status/1500866927605923841) | 274 Me Gusta | 45 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 21:06:12
+**Fernández Noroña** (**@fernandeznorona**) • 07-03-2022 a las 08:11:38
 *****
-Uta, mañana deberé salir 4:30 de la mañana rumbo al aeropuerto.
-[Permalink](https://twitter.com/fernandeznorona/status/1500699313009090560) | 164 Me Gusta | 8 Retweets
+RT @EscuchandoCHEN1: Viajo a ver el partido a Querétaro y no lo puden localizar sus Padres piden ayuda para localizarlo
+[Permalink](https://twitter.com/fernandeznorona/status/1500866773062619140) | 0 Me Gusta | 4,178 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 20:36:12
+**Fernández Noroña** (**@fernandeznorona**) • 07-03-2022 a las 08:00:47
 *****
-Bellísimo el casco antiguo de Mazatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1500691761986883593) | 91 Me Gusta | 9 Retweets
+RT @julioastillero: Lunes, 11 am, #Especial con las dos voces necesarias para hablar de lo sucedido en #Querétaro:  Carlos Albert @calbert5…
+[Permalink](https://twitter.com/fernandeznorona/status/1500864043183063044) | 0 Me Gusta | 81 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 20:33:33
+**Fernández Noroña** (**@fernandeznorona**) • 07-03-2022 a las 08:00:09
 *****
-El Presidio.
-[Permalink](https://twitter.com/fernandeznorona/status/1500691095667109890) | 42 Me Gusta | 7 Retweets
+Presidio. Este inchi auto corrector
+[Permalink](https://twitter.com/fernandeznorona/status/1500863883736539139) | 18 Me Gusta | 1 Retweets

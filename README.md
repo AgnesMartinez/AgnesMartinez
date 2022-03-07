@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 09:00:19
+**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 15:01:13
 *****
-¡Te pasas!
-[Permalink](https://twitter.com/fernandeznorona/status/1500516638625464320) | 44 Me Gusta | 4 Retweets
+Hoy transmitiré desde el Museo “Lola Beltrán” en El Rosario, Sinaloa.
+[Permalink](https://twitter.com/fernandeznorona/status/1500607463875223552) | 52 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 08:59:55
+**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 14:52:36
 *****
-Muchas felicidades, que lo disfrutes con familiares, amigos y seres queridos.
-[Permalink](https://twitter.com/fernandeznorona/status/1500516539522379776) | 18 Me Gusta | 1 Retweets
+Empezamos.
+[Permalink](https://twitter.com/fernandeznorona/status/1500605293549342721) | 47 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 08:36:26
+**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 14:42:09
 *****
-Paramos a desayunar en “Kekys” en Villa Unión.
-[Permalink](https://twitter.com/fernandeznorona/status/1500510626271023106) | 45 Me Gusta | 2 Retweets
+En el club Rotario, El Rosario, Sinaloa.
+[Permalink](https://twitter.com/fernandeznorona/status/1500602661678174210) | 52 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 19:55:03
+**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 14:40:09
 *****
-No quiero ni ver las escenas de lo sucedido en Querétaro el día de hoy. Mi solidaridad para familiares y amigos de quienes hoy sufrieron la violencia en el estadio Corregidora.
-[Permalink](https://twitter.com/fernandeznorona/status/1500319020653764617) | 1,302 Me Gusta | 226 Retweets
+En El Rosario, Sinaloa.
+[Permalink](https://twitter.com/fernandeznorona/status/1500602158445522945) | 35 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2022 a las 19:50:39
+**Fernández Noroña** (**@fernandeznorona**) • 06-03-2022 a las 14:18:00
 *****
-Muchísimas gracias. Un alto honor que me pongas en esa lista de gigantes.
-[Permalink](https://twitter.com/fernandeznorona/status/1500317914330587139) | 51 Me Gusta | 3 Retweets
+Se equivocó @leoalcantaraPT, la reunión en El Rosario es en el Club Rotario.
+[Permalink](https://twitter.com/fernandeznorona/status/1500596586073657344) | 25 Me Gusta | 5 Retweets

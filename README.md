@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 09:49:43
+*****
+Que se ocupen de sus asuntos, siguen de lacayos del imperialismo estadounidense. Me refiero al parlamento europeo y no a ti, gaznápiro @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1501616233896357888) | 34 Me Gusta | 8 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 07:34:35
+*****
+RT @mlucascir: Las rosas que entregaron las mujeres de MORENA se las quieren adjudicar quienes han aplaudido a las que llevan mazos y picah…
+[Permalink](https://twitter.com/fernandeznorona/status/1501582224612806657) | 0 Me Gusta | 124 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 07:34:23
+*****
+Espero que en la próxima intervención militar de Estados Unidos se mantengan tan activos.
+[Permalink](https://twitter.com/fernandeznorona/status/1501582176919470086) | 38 Me Gusta | 11 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 07:32:17
+*****
+Ahí te hablan @ClaudioXGG. Señor XJr.
+[Permalink](https://twitter.com/fernandeznorona/status/1501581646683947012) | 57 Me Gusta | 19 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 18:34:05
 *****
 RT @albernap: ITALIA 🇮🇹
 
 
 La policía de Mario Draghi maltratando a los ciudadanos pacíficos de Milán que quieren acabar de una santa vez con…
-[Permalink](https://twitter.com/fernandeznorona/status/1501385808036737041) | 0 Me Gusta | 218 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 17:42:55
-*****
-RT @guruchuirer: ¿Fuera hombres? Pero hay hombres codo a codo con las encapuchadas vandalizando en la #MarchaFeminista. ¿Crees que lo que h…
-[Permalink](https://twitter.com/fernandeznorona/status/1501372928805462019) | 0 Me Gusta | 429 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 17:39:00
-*****
-RT @martibatres: En estos momentos ya hay muchos hombres frente a la valla que protege al Palacio Nacional, son parte de los grupos que gen…
-[Permalink](https://twitter.com/fernandeznorona/status/1501371946084315139) | 0 Me Gusta | 1,208 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 17:38:23
-*****
-Si los agresores fueron los locales, no los visitantes.
-[Permalink](https://twitter.com/fernandeznorona/status/1501371788625907719) | 27 Me Gusta | 6 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 17:36:31
-*****
-Ahí están estas gordas cenando.
-[Permalink](https://twitter.com/fernandeznorona/status/1501371321913118724) | 108 Me Gusta | 4 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1501385808036737041) | 0 Me Gusta | 255 Retweets

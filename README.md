@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-03-2022 a las 18:19:16
+**Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 15:48:41
 *****
-Regrese y regrese llamadas y la mayoría es para saludarme. Yo les agradezco pero el número no es para socializar.
-[Permalink](https://twitter.com/fernandeznorona/status/1501019689731997696) | 198 Me Gusta | 13 Retweets
+Es una chingona ⁦@Ascension528Hz⁩. Ya está en proceso de restauración.
+[Permalink](https://twitter.com/fernandeznorona/status/1501344183218544641) | 22 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-03-2022 a las 17:52:42
+**Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 15:39:12
 *****
-¡Qué triste! ¡Me llegó rota!
-[Permalink](https://twitter.com/fernandeznorona/status/1501013006750298115) | 66 Me Gusta | 6 Retweets
+A las pruebas de la vida me remito. No serás ni un chiste en la historia de nuestra patria @hdemauleon. Por otra parte, tu compromiso es nulo, lo que extrañas es el chayote. Abur.
+[Permalink](https://twitter.com/fernandeznorona/status/1501341798186242050) | 76 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-03-2022 a las 17:33:36
+**Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 15:33:38
 *****
-15,066 en Facebook y, 11,805 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1501008198098165763) | 85 Me Gusta | 8 Retweets
+Díganme si no son bellos mis platos. De Capula, Michoacán.
+[Permalink](https://twitter.com/fernandeznorona/status/1501340397511090178) | 66 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-03-2022 a las 15:04:56
+**Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 15:11:54
 *****
-Ahí te hablan @MarkoCortes. @AccionNacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1500970782985535493) | 190 Me Gusta | 38 Retweets
+RT @DaniMayakovski: La subsecretaria de EEUU, Victoria Nuland, reconoció hoy en el Congreso que tenian "bases de investigación biológicas"…
+[Permalink](https://twitter.com/fernandeznorona/status/1501334925240418304) | 0 Me Gusta | 211 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-03-2022 a las 15:00:55
+**Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 15:10:29
 *****
-Nooooo, bueno. ¡La desvergonzada! ¡Lotería!
-[Permalink](https://twitter.com/fernandeznorona/status/1500969774007955461) | 61 Me Gusta | 14 Retweets
+RT @NachoMierV: Mala y tarde la "recomendación" de la @cofecemx. Durante mes y medio hubo parlamento abierto. Participaron todos, cayeron m…
+[Permalink](https://twitter.com/fernandeznorona/status/1501334567541608449) | 0 Me Gusta | 41 Retweets

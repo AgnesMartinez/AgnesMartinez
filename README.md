@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 09:49:43
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 15:55:43
 *****
-Que se ocupen de sus asuntos, siguen de lacayos del imperialismo estadounidense. Me refiero al parlamento europeo y no a ti, gaznápiro @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1501616233896357888) | 34 Me Gusta | 8 Retweets
+La ratificación sí existe en la ley. Además, si no revocas, ratificas. Me parece bien que promuevas la revocación y me parece mejor que promuevas la participación. Sólo sé serio y veraz. Sé que es pedirte demasiado. @PedroFerriz
+[Permalink](https://twitter.com/fernandeznorona/status/1501708341986299907) | 39 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 07:34:35
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 15:50:44
 *****
-RT @mlucascir: Las rosas que entregaron las mujeres de MORENA se las quieren adjudicar quienes han aplaudido a las que llevan mazos y picah…
-[Permalink](https://twitter.com/fernandeznorona/status/1501582224612806657) | 0 Me Gusta | 124 Retweets
+RT @Evayflork1: Triste realidad, desde que llegó el PAN a Tlalpan el ajusco desaparece a pasos agigantados, me parece que para el próximo a…
+[Permalink](https://twitter.com/fernandeznorona/status/1501707084894650371) | 0 Me Gusta | 122 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 07:34:23
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 15:14:46
 *****
-Espero que en la próxima intervención militar de Estados Unidos se mantengan tan activos.
-[Permalink](https://twitter.com/fernandeznorona/status/1501582176919470086) | 38 Me Gusta | 11 Retweets
+Muy buena reunión en Iztapalapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1501698035780399104) | 49 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 07:32:17
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 14:37:06
 *****
-Ahí te hablan @ClaudioXGG. Señor XJr.
-[Permalink](https://twitter.com/fernandeznorona/status/1501581646683947012) | 57 Me Gusta | 19 Retweets
+En Iztapalapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1501688554497400833) | 73 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2022 a las 18:34:05
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2022 a las 13:46:45
 *****
-RT @albernap: ITALIA 🇮🇹
-
-
-La policía de Mario Draghi maltratando a los ciudadanos pacíficos de Milán que quieren acabar de una santa vez con…
-[Permalink](https://twitter.com/fernandeznorona/status/1501385808036737041) | 0 Me Gusta | 255 Retweets
+RT @alvaro_delgado: "Estoy deshecha, pero no hay de otra": Mamá que entregó a su hijo por la violencia en Querétaro
+[Permalink](https://twitter.com/fernandeznorona/status/1501675885396729856) | 0 Me Gusta | 797 Retweets

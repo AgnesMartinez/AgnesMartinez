@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 21:01:23
+**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 22:28:38
 *****
-Espero que en lo que vuelo del DF a Villahermosa se aclare lo de ese comunicado.
-[Permalink](https://twitter.com/fernandeznorona/status/1502147651634184193) | 164 Me Gusta | 29 Retweets
+Los mamones: bruña considera que es desafortunado. Más bien hasta los cretinos piensan que no podemos ser críticos con nuestro gobierno.
+[Permalink](https://twitter.com/fernandeznorona/status/1502169610065383426) | 197 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 20:59:30
+**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 22:26:57
 *****
-Ya lo sé.
-[Permalink](https://twitter.com/fernandeznorona/status/1502147177380028417) | 44 Me Gusta | 5 Retweets
+Lo único bueno que tenía el coví, era la bonita costumbre de salir por etapas, pero eso sí, siguen con el chingado cubrebocas.
+[Permalink](https://twitter.com/fernandeznorona/status/1502169187715670016) | 71 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 20:56:35
+**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 22:18:29
 *****
-Sigo pensando que ese comunicado es falso.
-[Permalink](https://twitter.com/fernandeznorona/status/1502146444647702531) | 87 Me Gusta | 14 Retweets
+Besitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1502167055306346498) | 30 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 20:54:32
+**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 22:16:04
 *****
-RT @PonchoGutz: Se enojaron cuando AMLO dijo que había gente planeando llevar armas a la marcha, luego se hicieron tontos cuando les encont…
-[Permalink](https://twitter.com/fernandeznorona/status/1502145927393554432) | 0 Me Gusta | 1,745 Retweets
+Coincido.
+[Permalink](https://twitter.com/fernandeznorona/status/1502166448252223488) | 132 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 20:53:49
+**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 22:15:28
 *****
-RT @vifex: Ya lo sabíamos !!! Verdad @FelipeCalderon ?
-[Permalink](https://twitter.com/fernandeznorona/status/1502145750045708288) | 0 Me Gusta | 13 Retweets
+@Mike28dev Se ha…
+[Permalink](https://twitter.com/fernandeznorona/status/1502166293947944965) | 5 Me Gusta | 1 Retweets

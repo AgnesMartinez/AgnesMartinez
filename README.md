@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 22:33:13
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 09:35:42
 *****
-Por fin lo terminé. Bien a secas. No lo recomiendo.
-[Permalink](https://twitter.com/fernandeznorona/status/1502533149024301056) | 83 Me Gusta | 6 Retweets
+Llegamos a Oaxaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1502699870297243650) | 21 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 21:21:56
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 09:35:35
 *****
-Lo terminé. Muy bonito libro. Muy japonés.
-[Permalink](https://twitter.com/fernandeznorona/status/1502515211508469761) | 57 Me Gusta | 5 Retweets
+‘El cielo está donde el hombre ha colocado su corazón’, Swedenborg citado por Solares.
+[Permalink](https://twitter.com/fernandeznorona/status/1502699838839873546) | 12 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 21:15:51
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 08:44:07
 *****
-Son ustedes los que no deben decidir que toda actividad política y, sobre todo parlamentaria, es propaganda, monaguillo @CiroMurayamaINE. En cuanto a poder, podemos decidir
-[Permalink](https://twitter.com/fernandeznorona/status/1502513682495983624) | 89 Me Gusta | 22 Retweets
+Lo primero que deberías es aprender a escribir. Si vas a usar abreviaturas, úsalas correctamente. @ClaudioXGG. En balde lo que gastaron en tu educación, pareciera que no cursaste ni la primaria.
+[Permalink](https://twitter.com/fernandeznorona/status/1502686890641743873) | 56 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 20:57:05
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 08:41:22
 *****
-RT @alvaro_delgado: Me gusta que inicien medios, no que cierren: Aquí una reunión, el 5 de octubre de 2019, a dos meses de iniciar ⁦⁦@laoct…
-[Permalink](https://twitter.com/fernandeznorona/status/1502508958111707140) | 0 Me Gusta | 124 Retweets
+RT @ceci_bailon: Decir lo que sientes cuando lo sientes, es sano.
+
+
+Buenos días ☀️☕
+[Permalink](https://twitter.com/fernandeznorona/status/1502686194785792003) | 0 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 20:55:51
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 08:41:08
 *****
-@jon_aleman7 Echan.
-[Permalink](https://twitter.com/fernandeznorona/status/1502508647930290176) | 2 Me Gusta | 0 Retweets
+RT @julioastillero: ¡Adiós al proyecto de La Octava TV! Empresa de Miami manejará contenidos.
+[Permalink](https://twitter.com/fernandeznorona/status/1502686136661155842) | 0 Me Gusta | 52 Retweets

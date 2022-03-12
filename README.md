@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 15:52:34
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 21:21:56
 *****
-Ya estoy en el aeropuerto de Villahermosa, Tabasco, en la sala VIP, para transmitir la video charla a las seis de la tarde en punto.
-[Permalink](https://twitter.com/fernandeznorona/status/1502432325421965316) | 58 Me Gusta | 6 Retweets
+Lo terminé. Muy bonito libro. Muy japonés.
+[Permalink](https://twitter.com/fernandeznorona/status/1502515211508469761) | 32 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 12:13:43
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 21:15:51
 *****
-RT @SinLinea_Mx: Cosas que haría el #ParlamentoEuropeo  
-Censurar a un gobierno legítimo 🇲🇽
-Validar a un gobierno ilegítimo 🇻🇪
-[Permalink](https://twitter.com/fernandeznorona/status/1502377246748823555) | 0 Me Gusta | 1,045 Retweets
+Son ustedes los que no deben decidir que toda actividad política y, sobre todo parlamentaria, es propaganda, monaguillo @CiroMurayamaINE. En cuanto a poder, podemos decidir
+[Permalink](https://twitter.com/fernandeznorona/status/1502513682495983624) | 67 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 12:03:10
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 20:57:05
 *****
-Y como lo he dicho TODO el tiempo, tenemos los dos principales motores de la transformación: el liderazgo del compañero presidente @lopezobrador_ y el más grande líder, el pueblo de México politizado y en pie de lucha.
-[Permalink](https://twitter.com/fernandeznorona/status/1502374592622510081) | 110 Me Gusta | 28 Retweets
+RT @alvaro_delgado: Me gusta que inicien medios, no que cierren: Aquí una reunión, el 5 de octubre de 2019, a dos meses de iniciar ⁦⁦@laoct…
+[Permalink](https://twitter.com/fernandeznorona/status/1502508958111707140) | 0 Me Gusta | 96 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 12:00:35
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 20:55:51
 *****
-Su nueva campaña de denuesto me la persigna. Como los anteriores, no podrán desacreditar toda una vida de lucha. El tiempo pone a todo mundo en su lugar. Me atengo no solo al tiempo -que SIEMPRE me ha dado la razón-, sino sobre todo al pueblo. A él sirvo, a él me atengo.
-[Permalink](https://twitter.com/fernandeznorona/status/1502373941620486146) | 370 Me Gusta | 76 Retweets
+@jon_aleman7 Echan.
+[Permalink](https://twitter.com/fernandeznorona/status/1502508647930290176) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 11:53:34
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 20:49:17
 *****
-Bravucón.
-[Permalink](https://twitter.com/fernandeznorona/status/1502372179568123905) | 29 Me Gusta | 5 Retweets
+Ya aterrizamos en el DF. Estamos en posición remota. Ya quiero llegar y mañana debemos estar de nuevo en el aeropuerto para volar a Oaxaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1502506995471036418) | 59 Me Gusta | 5 Retweets

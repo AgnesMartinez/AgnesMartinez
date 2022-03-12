@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 10:07:39
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 15:52:34
 *****
-No broma, pensé que era una noticia falsa.
-[Permalink](https://twitter.com/fernandeznorona/status/1502345523893833732) | 2 Me Gusta | 0 Retweets
+Ya estoy en el aeropuerto de Villahermosa, Tabasco, en la sala VIP, para transmitir la video charla a las seis de la tarde en punto.
+[Permalink](https://twitter.com/fernandeznorona/status/1502432325421965316) | 58 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 10:06:53
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 12:13:43
 *****
-Gracias.
-[Permalink](https://twitter.com/fernandeznorona/status/1502345331429752832) | 7 Me Gusta | 1 Retweets
+RT @SinLinea_Mx: Cosas que haría el #ParlamentoEuropeo  
+Censurar a un gobierno legítimo 🇲🇽
+Validar a un gobierno ilegítimo 🇻🇪
+[Permalink](https://twitter.com/fernandeznorona/status/1502377246748823555) | 0 Me Gusta | 1,045 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 09:15:47
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 12:03:10
 *****
-¡Hasta! Mi estimado gaznápiro, siempre he acreditado que soy un hombre de pensamiento propio y libre.
-[Permalink](https://twitter.com/fernandeznorona/status/1502332471765082113) | 84 Me Gusta | 8 Retweets
+Y como lo he dicho TODO el tiempo, tenemos los dos principales motores de la transformación: el liderazgo del compañero presidente @lopezobrador_ y el más grande líder, el pueblo de México politizado y en pie de lucha.
+[Permalink](https://twitter.com/fernandeznorona/status/1502374592622510081) | 110 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 22:28:38
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 12:00:35
 *****
-Los mamones: bruña considera que es desafortunado. Más bien hasta los cretinos piensan que no podemos ser críticos con nuestro gobierno.
-[Permalink](https://twitter.com/fernandeznorona/status/1502169610065383426) | 391 Me Gusta | 43 Retweets
+Su nueva campaña de denuesto me la persigna. Como los anteriores, no podrán desacreditar toda una vida de lucha. El tiempo pone a todo mundo en su lugar. Me atengo no solo al tiempo -que SIEMPRE me ha dado la razón-, sino sobre todo al pueblo. A él sirvo, a él me atengo.
+[Permalink](https://twitter.com/fernandeznorona/status/1502373941620486146) | 370 Me Gusta | 76 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-03-2022 a las 22:26:57
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2022 a las 11:53:34
 *****
-Lo único bueno que tenía el coví, era la bonita costumbre de salir por etapas, pero eso sí, siguen con el chingado cubrebocas.
-[Permalink](https://twitter.com/fernandeznorona/status/1502169187715670016) | 112 Me Gusta | 11 Retweets
+Bravucón.
+[Permalink](https://twitter.com/fernandeznorona/status/1502372179568123905) | 29 Me Gusta | 5 Retweets

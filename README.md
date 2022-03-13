@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 14:55:23
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 21:01:23
 *****
-En Primera Ampliación, en Xoxo.
-[Permalink](https://twitter.com/fernandeznorona/status/1502780319421849607) | 30 Me Gusta | 7 Retweets
+Nunca es tarde para sumarme a la felicitación por el cumpleaños de @MariaRoseteMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1502872427944202241) | 11 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 14:09:09
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 20:58:16
 *****
-Abrazote estimada compañera y amiga @CitlaHM.
-[Permalink](https://twitter.com/fernandeznorona/status/1502768686003896323) | 138 Me Gusta | 40 Retweets
+RT @SupsipS: Han intentado hacer una cita para un pasaporte???
+No hay citas ni en Jalisco, ni en Nayarit.
+Te hacen dar de alta, abrir una c…
+[Permalink](https://twitter.com/fernandeznorona/status/1502871643500208128) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 14:02:54
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 20:58:06
 *****
-RT @CitlaHM: De cómo defender la democracia, denunciar el sesgo político de @lorenzocordovav y @CiroMurayamaINE y al mismo tiempo citar a L…
-[Permalink](https://twitter.com/fernandeznorona/status/1502767114809135116) | 0 Me Gusta | 107 Retweets
+RT @CuitlahuacGJ: Manifiesto de la gran mayoría de gobernadores de los estados mexicanos contra la actitud injerencista del Parlamento Euro…
+[Permalink](https://twitter.com/fernandeznorona/status/1502871603314577408) | 0 Me Gusta | 1,082 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 11:24:33
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 20:32:50
 *****
-En Xoxo con Tania López López, próxima alcaldesa.
-[Permalink](https://twitter.com/fernandeznorona/status/1502727265146355718) | 58 Me Gusta | 13 Retweets
+RT @VictorCastroCos: Gobernadores, gobernadoras y Jefa de Gobierno de la #4T condenamos la resolución del parlamento europeo por considerar…
+[Permalink](https://twitter.com/fernandeznorona/status/1502865242262540298) | 0 Me Gusta | 185 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 10:14:56
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 20:30:49
 *****
-Miren esta genialidad oaxaqueña.
-[Permalink](https://twitter.com/fernandeznorona/status/1502709743995039745) | 71 Me Gusta | 3 Retweets
+Pues por problemas de mal tiempo no podremos volar a Ixtepec mañana. Por ello se tendrá que cancelar el recorrido de mañana. Disculpas.
+[Permalink](https://twitter.com/fernandeznorona/status/1502864736911773696) | 55 Me Gusta | 4 Retweets

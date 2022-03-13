@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 09:35:42
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 14:55:23
 *****
-Llegamos a Oaxaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1502699870297243650) | 21 Me Gusta | 0 Retweets
+En Primera Ampliación, en Xoxo.
+[Permalink](https://twitter.com/fernandeznorona/status/1502780319421849607) | 30 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 09:35:35
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 14:09:09
 *****
-‘El cielo está donde el hombre ha colocado su corazón’, Swedenborg citado por Solares.
-[Permalink](https://twitter.com/fernandeznorona/status/1502699838839873546) | 12 Me Gusta | 1 Retweets
+Abrazote estimada compañera y amiga @CitlaHM.
+[Permalink](https://twitter.com/fernandeznorona/status/1502768686003896323) | 138 Me Gusta | 40 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 08:44:07
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 14:02:54
 *****
-Lo primero que deberías es aprender a escribir. Si vas a usar abreviaturas, úsalas correctamente. @ClaudioXGG. En balde lo que gastaron en tu educación, pareciera que no cursaste ni la primaria.
-[Permalink](https://twitter.com/fernandeznorona/status/1502686890641743873) | 56 Me Gusta | 10 Retweets
+RT @CitlaHM: De cómo defender la democracia, denunciar el sesgo político de @lorenzocordovav y @CiroMurayamaINE y al mismo tiempo citar a L…
+[Permalink](https://twitter.com/fernandeznorona/status/1502767114809135116) | 0 Me Gusta | 107 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 08:41:22
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 11:24:33
 *****
-RT @ceci_bailon: Decir lo que sientes cuando lo sientes, es sano.
-
-
-Buenos días ☀️☕
-[Permalink](https://twitter.com/fernandeznorona/status/1502686194785792003) | 0 Me Gusta | 1 Retweets
+En Xoxo con Tania López López, próxima alcaldesa.
+[Permalink](https://twitter.com/fernandeznorona/status/1502727265146355718) | 58 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 08:41:08
+**Fernández Noroña** (**@fernandeznorona**) • 12-03-2022 a las 10:14:56
 *****
-RT @julioastillero: ¡Adiós al proyecto de La Octava TV! Empresa de Miami manejará contenidos.
-[Permalink](https://twitter.com/fernandeznorona/status/1502686136661155842) | 0 Me Gusta | 52 Retweets
+Miren esta genialidad oaxaqueña.
+[Permalink](https://twitter.com/fernandeznorona/status/1502709743995039745) | 71 Me Gusta | 3 Retweets

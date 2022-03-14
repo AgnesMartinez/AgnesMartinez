@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 22:00:02
+**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 09:56:44
 *****
-Yo presenté la propuesta desde la legislatura pasada. En esta legislatura aprobaremos su desaparición.
-[Permalink](https://twitter.com/fernandeznorona/status/1503249576651862021) | 25 Me Gusta | 12 Retweets
+Un nuevo dato del franco sabotaje del @INEMexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1503429937767727104) | 15 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 21:58:55
+**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 09:41:18
 *****
-Hace un rato, todavía tenía panza.
-[Permalink](https://twitter.com/fernandeznorona/status/1503249294291259393) | 20 Me Gusta | 1 Retweets
+RT @Luna_Tagg: A los panazis les importa mucho guerra en Ucrania y tienen el descaro de exigir al gobierno federal que envíe armas. Pero no…
+[Permalink](https://twitter.com/fernandeznorona/status/1503426055222136834) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 21:58:20
+**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 09:40:54
 *****
-La importancia de las comas: “Si soy candidato o no, vale madre”…
-[Permalink](https://twitter.com/fernandeznorona/status/1503249147998216193) | 39 Me Gusta | 6 Retweets
+Pues que ellos se ocupen, yo aquí de metiche.
+[Permalink](https://twitter.com/fernandeznorona/status/1503425953564794881) | 9 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 21:51:30
+**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 09:39:38
 *****
-RT @lopezobrador_: Regresé de mi gira por Chiapas y Tabasco al mismo tiempo que llegó Beatriz, quien me representó en Chile y Argentina. Mi…
-[Permalink](https://twitter.com/fernandeznorona/status/1503247426374754305) | 0 Me Gusta | 4,305 Retweets
+Ay leoncito @LeonKrauze, eres lacayo, lacayo del país que habitas. Si eres ciudadano norteamericano se entiende, pero si eres simplemente lambiscón, es lamentable.
+[Permalink](https://twitter.com/fernandeznorona/status/1503425634390867970) | 25 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 21:48:53
+**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 09:24:55
 *****
-Ya estoy en casa, en el centro histórico. Leeré un poco y a dormir.
-[Permalink](https://twitter.com/fernandeznorona/status/1503246768309665794) | 97 Me Gusta | 4 Retweets
+Entró por la puerta trasera y salió por la puerta trasera. No hubo curules voladoras, pesan demasiado. Patadas voladoras si hubo.
+[Permalink](https://twitter.com/fernandeznorona/status/1503421930023444480) | 25 Me Gusta | 3 Retweets

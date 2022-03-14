@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 15:15:13
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 22:00:02
 *****
-Avisa, en el @PTnacionalMX no llevan semillas -nueces, nueces de la india, almendras, cacahuates, pasas- y fruta. Te podemos convidar.
-[Permalink](https://twitter.com/fernandeznorona/status/1503147698584752133) | 26 Me Gusta | 2 Retweets
+Yo presenté la propuesta desde la legislatura pasada. En esta legislatura aprobaremos su desaparición.
+[Permalink](https://twitter.com/fernandeznorona/status/1503249576651862021) | 1 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 15:14:09
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 21:58:55
 *****
-Jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1503147431101444102) | 31 Me Gusta | 5 Retweets
+Hace un rato, todavía tenía panza.
+[Permalink](https://twitter.com/fernandeznorona/status/1503249294291259393) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 15:09:52
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 21:58:20
 *****
-Ya en Tehuacán, Puebla. Comeré y transmitiré desde “La Lonja”. Me encontré a Carmenchu, -María Del Carmen Izaguirre- que fue diputada federal conmigo en la LXI Legislatura.
-[Permalink](https://twitter.com/fernandeznorona/status/1503146352603279369) | 29 Me Gusta | 2 Retweets
+La importancia de las comas: “Si soy candidato o no, vale madre”…
+[Permalink](https://twitter.com/fernandeznorona/status/1503249147998216193) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 13:42:32
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 21:51:30
 *****
-Vamos camino a Tehuacán, desde ahí transmitiré a las seis de la tarde.
-[Permalink](https://twitter.com/fernandeznorona/status/1503124376295669761) | 67 Me Gusta | 8 Retweets
+RT @lopezobrador_: Regresé de mi gira por Chiapas y Tabasco al mismo tiempo que llegó Beatriz, quien me representó en Chile y Argentina. Mi…
+[Permalink](https://twitter.com/fernandeznorona/status/1503247426374754305) | 0 Me Gusta | 3,743 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 10:48:35
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 21:48:53
 *****
-Y ahí ya recuperamos el territorio que nos robó Estados Unidos.
-[Permalink](https://twitter.com/fernandeznorona/status/1503080597610237959) | 82 Me Gusta | 21 Retweets
+Ya estoy en casa, en el centro histórico. Leeré un poco y a dormir.
+[Permalink](https://twitter.com/fernandeznorona/status/1503246768309665794) | 44 Me Gusta | 1 Retweets

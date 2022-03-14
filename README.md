@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 08:41:50
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 15:15:13
 *****
-Si soy candidato o no vale madre. Acabo de desayunar en el mercado de la merced y es muy bello recibir el cariño de la gente. Eso es más valioso que cualquier candidatura.
-[Permalink](https://twitter.com/fernandeznorona/status/1503048700184219652) | 197 Me Gusta | 38 Retweets
+Avisa, en el @PTnacionalMX no llevan semillas -nueces, nueces de la india, almendras, cacahuates, pasas- y fruta. Te podemos convidar.
+[Permalink](https://twitter.com/fernandeznorona/status/1503147698584752133) | 26 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 08:26:27
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 15:14:09
 *****
-Xacto. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1503044830548701190) | 38 Me Gusta | 11 Retweets
+Jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1503147431101444102) | 31 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 08:25:32
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 15:09:52
 *****
-RT @Arquithierry:
-[Permalink](https://twitter.com/fernandeznorona/status/1503044599987810317) | 0 Me Gusta | 25 Retweets
+Ya en Tehuacán, Puebla. Comeré y transmitiré desde “La Lonja”. Me encontré a Carmenchu, -María Del Carmen Izaguirre- que fue diputada federal conmigo en la LXI Legislatura.
+[Permalink](https://twitter.com/fernandeznorona/status/1503146352603279369) | 29 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 07:16:55
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 13:42:32
 *****
-Me quedé en el hotel María Inés, cerca del aeropuerto de Oaxaca. Me encantó. Limpio, cómodo, prácticamente nuevo, una agradable sorpresa.
-[Permalink](https://twitter.com/fernandeznorona/status/1503027333527183366) | 117 Me Gusta | 15 Retweets
+Vamos camino a Tehuacán, desde ahí transmitiré a las seis de la tarde.
+[Permalink](https://twitter.com/fernandeznorona/status/1503124376295669761) | 67 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 03:54:08
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2022 a las 10:48:35
 *****
-Mejor voy a intentar dormir de nuevo, Parece que el domingo madruga la nata del conservadurismo.
-[Permalink](https://twitter.com/fernandeznorona/status/1502976301778583555) | 75 Me Gusta | 8 Retweets
+Y ahí ya recuperamos el territorio que nos robó Estados Unidos.
+[Permalink](https://twitter.com/fernandeznorona/status/1503080597610237959) | 82 Me Gusta | 21 Retweets

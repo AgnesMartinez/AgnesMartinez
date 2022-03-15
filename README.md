@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 09:56:44
+**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 12:44:00
 *****
-Un nuevo dato del franco sabotaje del @INEMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1503429937767727104) | 15 Me Gusta | 5 Retweets
+Vamos camino a Pueblo quieto.
+[Permalink](https://twitter.com/fernandeznorona/status/1503472034331779074) | 45 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 09:41:18
+**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 11:59:47
 *****
-RT @Luna_Tagg: A los panazis les importa mucho guerra en Ucrania y tienen el descaro de exigir al gobierno federal que envíe armas. Pero no…
-[Permalink](https://twitter.com/fernandeznorona/status/1503426055222136834) | 0 Me Gusta | 18 Retweets
+RT @m_ebrard: Tuve el agrado de recibir al Secretario de Seguridad de los Estados Unidos,Alejandro Mayorkas.
+[Permalink](https://twitter.com/fernandeznorona/status/1503460907409674240) | 0 Me Gusta | 392 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 09:40:54
+**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 11:58:33
 *****
-Pues que ellos se ocupen, yo aquí de metiche.
-[Permalink](https://twitter.com/fernandeznorona/status/1503425953564794881) | 9 Me Gusta | 1 Retweets
+RT @chioreya: #somoscomunicadoresdelpueblo
+[Permalink](https://twitter.com/fernandeznorona/status/1503460593658904576) | 0 Me Gusta | 792 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 09:39:38
+**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 11:58:22
 *****
-Ay leoncito @LeonKrauze, eres lacayo, lacayo del país que habitas. Si eres ciudadano norteamericano se entiende, pero si eres simplemente lambiscón, es lamentable.
-[Permalink](https://twitter.com/fernandeznorona/status/1503425634390867970) | 25 Me Gusta | 4 Retweets
+RT @_VicenteSerrano: ¡Ahí va para que chillen! Le duela a quien le duela y le pese a quien le pese...
+[Permalink](https://twitter.com/fernandeznorona/status/1503460548335353862) | 0 Me Gusta | 255 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 09:24:55
+**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 11:57:27
 *****
-Entró por la puerta trasera y salió por la puerta trasera. No hubo curules voladoras, pesan demasiado. Patadas voladoras si hubo.
-[Permalink](https://twitter.com/fernandeznorona/status/1503421930023444480) | 25 Me Gusta | 3 Retweets
+Tienes razón, es falso. No solo no la promueve, la boicotea. @lorenzocordovav. @INEMexico
+[Permalink](https://twitter.com/fernandeznorona/status/1503460317702983680) | 121 Me Gusta | 36 Retweets

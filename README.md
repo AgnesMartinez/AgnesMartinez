@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 14:44:55
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 21:24:07
 *****
-RT @rturrent: El PRIANRD, el partido de las mujeres:
-[Permalink](https://twitter.com/fernandeznorona/status/1503864851231297545) | 0 Me Gusta | 466 Retweets
+12,373 en Facebook y, 9192 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1503965314450485248) | 21 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 13:38:18
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 21:22:27
 *****
-RT @MAKIALOBO: 2 - 2 
-Los Parlamentos @Europarl_EN y @Europarl_ES hablan de libertad de expresión e hipócritamente  han guardado silencio c…
-[Permalink](https://twitter.com/fernandeznorona/status/1503848085759397888) | 0 Me Gusta | 40 Retweets
+Bello.
+[Permalink](https://twitter.com/fernandeznorona/status/1503964891262062592) | 21 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 13:38:14
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 21:21:56
 *****
-RT @MAKIALOBO: Magnífica intervención del diputado Fernández Noroña en la que expuso la hipocresía y doble moral de los integrantes del Par…
-[Permalink](https://twitter.com/fernandeznorona/status/1503848070190141440) | 0 Me Gusta | 42 Retweets
+La vista, es espectacular. Durango de noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1503964764229148672) | 48 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 13:34:42
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 21:17:37
 *****
-¿Dónde puedo confirmar la veracidad de la noticia?
-[Permalink](https://twitter.com/fernandeznorona/status/1503847180611854338) | 26 Me Gusta | 5 Retweets
+Me dirán que tan antiguo es el hotel.
+[Permalink](https://twitter.com/fernandeznorona/status/1503963675618471936) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 13:28:45
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 19:16:25
 *****
-Y después de la cuarta, no hay quinto malo.
-[Permalink](https://twitter.com/fernandeznorona/status/1503845680820985857) | 24 Me Gusta | 4 Retweets
+RT @alvaro_delgado: Ahora resulta que los referentes del periodismo mexicano son @latinus_us, propiedad del priista @RobertoMadrazo_, @MXvs…
+[Permalink](https://twitter.com/fernandeznorona/status/1503933176556662785) | 0 Me Gusta | 691 Retweets

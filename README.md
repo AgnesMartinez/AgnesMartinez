@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 09:55:07
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 14:44:55
 *****
-Ahí ⁦@AccionNacional⁩ renegando en la efeméride del aniversario luctuoso de Karl Marx.
-[Permalink](https://twitter.com/fernandeznorona/status/1503791921260634119) | 53 Me Gusta | 9 Retweets
+RT @rturrent: El PRIANRD, el partido de las mujeres:
+[Permalink](https://twitter.com/fernandeznorona/status/1503864851231297545) | 0 Me Gusta | 466 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 09:02:40
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 13:38:18
 *****
-RT @xX_DarkAdria_Xx: @Sandy_4T @Ludwigkerarta @maurojas360 @CulturaNueva @Julianatilano @Pablo_CesarL @Claudiashein @fernandeznorona @lopez…
-[Permalink](https://twitter.com/fernandeznorona/status/1503778720569565189) | 0 Me Gusta | 15 Retweets
+RT @MAKIALOBO: 2 - 2 
+Los Parlamentos @Europarl_EN y @Europarl_ES hablan de libertad de expresión e hipócritamente  han guardado silencio c…
+[Permalink](https://twitter.com/fernandeznorona/status/1503848085759397888) | 0 Me Gusta | 40 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 17:30:42
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 13:38:14
 *****
-8882 en Facebook y, 12,427 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1503544185043013632) | 43 Me Gusta | 6 Retweets
+RT @MAKIALOBO: Magnífica intervención del diputado Fernández Noroña en la que expuso la hipocresía y doble moral de los integrantes del Par…
+[Permalink](https://twitter.com/fernandeznorona/status/1503848070190141440) | 0 Me Gusta | 42 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 12:44:00
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 13:34:42
 *****
-Vamos camino a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1503472034331779074) | 56 Me Gusta | 5 Retweets
+¿Dónde puedo confirmar la veracidad de la noticia?
+[Permalink](https://twitter.com/fernandeznorona/status/1503847180611854338) | 26 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-03-2022 a las 11:59:47
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 13:28:45
 *****
-RT @m_ebrard: Tuve el agrado de recibir al Secretario de Seguridad de los Estados Unidos,Alejandro Mayorkas.
-[Permalink](https://twitter.com/fernandeznorona/status/1503460907409674240) | 0 Me Gusta | 553 Retweets
+Y después de la cuarta, no hay quinto malo.
+[Permalink](https://twitter.com/fernandeznorona/status/1503845680820985857) | 24 Me Gusta | 4 Retweets

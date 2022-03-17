@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2022 a las 14:43:57
+**Fernández Noroña** (**@fernandeznorona**) • 16-03-2022 a las 21:31:12
 *****
-RT @heber_noti121ed: Platico en vivo en #Noti12 con @fernandeznorona y @AGonzaloYanez 
+RT @Julianatilano: Mañana #SeñalTlatelolco estará buenísimo.
 
 
-▶️
-[Permalink](https://twitter.com/fernandeznorona/status/1504226997072891904) | 0 Me Gusta | 10 Retweets
+Hablaremos sobre la carta que envió AMLO al Parlamento Europeo. Sobre todo an…
+[Permalink](https://twitter.com/fernandeznorona/status/1504329483800752129) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 21:24:07
+**Fernández Noroña** (**@fernandeznorona**) • 16-03-2022 a las 21:28:42
 *****
-12,373 en Facebook y, 9192 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1503965314450485248) | 56 Me Gusta | 4 Retweets
+Dip. Gerardo Fernandez Noroña on European Parliament Resolution
+[Permalink](https://twitter.com/fernandeznorona/status/1504328854139199489) | 9 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 21:22:27
+**Fernández Noroña** (**@fernandeznorona**) • 16-03-2022 a las 21:06:05
 *****
-Bello.
-[Permalink](https://twitter.com/fernandeznorona/status/1503964891262062592) | 62 Me Gusta | 8 Retweets
+Hubiéramos querido esa herramienta democrática para destituirte cuando usurpaste la presidencia #tomandabteborolas alias @felipecalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1504323161361375232) | 89 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 21:21:56
+**Fernández Noroña** (**@fernandeznorona**) • 16-03-2022 a las 20:59:19
 *****
-La vista, es espectacular. Durango de noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1503964764229148672) | 118 Me Gusta | 5 Retweets
+Apenas en casa. Mañana empezaré temprano.
+[Permalink](https://twitter.com/fernandeznorona/status/1504321458952151046) | 60 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2022 a las 21:17:37
+**Fernández Noroña** (**@fernandeznorona**) • 16-03-2022 a las 20:46:45
 *****
-Me dirán que tan antiguo es el hotel.
-[Permalink](https://twitter.com/fernandeznorona/status/1503963675618471936) | 54 Me Gusta | 4 Retweets
+¡Se te paga para que seas menos que un hombre”. Henry David Thoreau, en “Una vida sin principios”.
+[Permalink](https://twitter.com/fernandeznorona/status/1504318295570358275) | 19 Me Gusta | 4 Retweets

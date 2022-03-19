@@ -1,27 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 14:21:41
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 22:05:38
 *****
-Ixtapaluca.
-[Permalink](https://twitter.com/fernandeznorona/status/1504946167473442820) | 39 Me Gusta | 7 Retweets
+Lo terminé. “Una vida sin principios” y “Esclavitud en Massachusetts” son espléndidos.
+[Permalink](https://twitter.com/fernandeznorona/status/1505062925911867401) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 14:06:53
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 21:54:28
 *****
-Ya en Ixtapaluca. Estuvo horrible el tráfico. Lo bueno es que salimos con buen tiempo.
-[Permalink](https://twitter.com/fernandeznorona/status/1504942440863703041) | 43 Me Gusta | 6 Retweets
+Apenas en Pueblo quieto.
+[Permalink](https://twitter.com/fernandeznorona/status/1505060112431525893) | 21 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 13:01:51
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 21:07:17
 *****
-¿Quién dio? No diste nada. Ni pusiste, ni organizaste, es el pueblo el que hizo todo, es el pueblo al que paga tu salario y es al pueblo al que traicionas @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1504926074978947079) | 231 Me Gusta | 82 Retweets
+Qué bien que entrevistes al hijo del súper facho venezolano. Te debes sentir muy a gusto Georgie boy @jorgeramosnews.
+[Permalink](https://twitter.com/fernandeznorona/status/1505048238822461440) | 65 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 12:54:50
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 21:01:05
 *****
-Solo te faltó decir que hoy le afectan hasta el 100%. En fin, reforma insuficiente que el Senado detendrá.
-[Permalink](https://twitter.com/fernandeznorona/status/1504924311471149060) | 37 Me Gusta | 6 Retweets
+Ya enTepoztlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1505046680906907650) | 47 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 12:38:05
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 18:29:02
 *****
-RT @Maramensaje: Tarde o temprano llegará el día que Chumel Torres pague todo el daño que hace. 
-Será un gran día.
-[Permalink](https://twitter.com/fernandeznorona/status/1504920096543850500) | 0 Me Gusta | 52 Retweets
+RT @jgnaredo: Hoy le enojó mucho a @ChumelTorres el cartón que le hizo @monerorape. 
+
+
+Muchísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1505008416049225733) | 0 Me Gusta | 921 Retweets

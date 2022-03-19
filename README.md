@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 09:29:55
+*****
+También me las cantaron en Tlalmanalco. Muy cariñosa la gente, estoy muy agradecido.
+[Permalink](https://twitter.com/fernandeznorona/status/1505235129396039681) | 33 Me Gusta | 7 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 09:29:31
+*****
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1505235029487919104) | 16 Me Gusta | 3 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 09:29:00
+*****
+RT @heraldodemexico: #OpinionesCompletas | Son culebras, no borregos
+
+
+El resolutivo emitido hace unos días por el parlamento europeo, es in…
+[Permalink](https://twitter.com/fernandeznorona/status/1505234898231123977) | 0 Me Gusta | 10 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 22:05:38
 *****
 Lo terminé. “Una vida sin principios” y “Esclavitud en Massachusetts” son espléndidos.
-[Permalink](https://twitter.com/fernandeznorona/status/1505062925911867401) | 40 Me Gusta | 1 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1505062925911867401) | 67 Me Gusta | 8 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 21:54:28
 *****
 Apenas en Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1505060112431525893) | 41 Me Gusta | 1 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 21:07:17
-*****
-Qué bien que entrevistes al hijo del súper facho venezolano. Te debes sentir muy a gusto Georgie boy @jorgeramosnews.
-[Permalink](https://twitter.com/fernandeznorona/status/1505048238822461440) | 97 Me Gusta | 16 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 21:01:05
-*****
-Ya enTepoztlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1505046680906907650) | 73 Me Gusta | 3 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 18:29:02
-*****
-RT @jgnaredo: Hoy le enojó mucho a @ChumelTorres el cartón que le hizo @monerorape. 
-
-
-Muchísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1505008416049225733) | 0 Me Gusta | 1,054 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1505060112431525893) | 53 Me Gusta | 3 Retweets

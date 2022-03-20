@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 15:20:33
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 21:05:23
 *****
-Concha nácar.
-[Permalink](https://twitter.com/fernandeznorona/status/1505323371231334407) | 13 Me Gusta | 0 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1505410149510307841) | 36 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 15:18:56
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 21:03:02
 *****
-Es 30 de abril.
-[Permalink](https://twitter.com/fernandeznorona/status/1505322963356237826) | 12 Me Gusta | 1 Retweets
+@pabloaldaco Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1505409558818271238) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 15:18:32
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 20:44:48
 *****
-RT @BibianaViana: Italia retira todas las medidas contra la Pandemia a partir del 31 de Abril de 2022.
-Se suma a los 10 Países que no piden…
-[Permalink](https://twitter.com/fernandeznorona/status/1505322861984108549) | 0 Me Gusta | 56 Retweets
+@Beatriz84981597 Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1505404969243058177) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 15:08:29
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 20:11:44
 *****
-Muchísimas gracias a quienes me han felicitado por mi cumpleaños. Se los agradezco de corazón y les pido su comprensión de no poder responderles uno a uno.
-[Permalink](https://twitter.com/fernandeznorona/status/1505320332965601283) | 218 Me Gusta | 29 Retweets
+¿Has viajado en Europa por avión?
+[Permalink](https://twitter.com/fernandeznorona/status/1505396648343748613) | 29 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 15:05:27
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 20:10:40
 *****
-Se ve que eres aldeano. En todo el mundo los aeropuertos quedan retirados, pero el @mx_aifa tendrá en breve un tren que lo conecte de manera rápida y económica.
-[Permalink](https://twitter.com/fernandeznorona/status/1505319567962349570) | 39 Me Gusta | 12 Retweets
+Ahí te hablan #TomandanteBorolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1505396380218662917) | 50 Me Gusta | 14 Retweets

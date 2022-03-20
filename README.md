@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 09:29:55
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 15:20:33
 *****
-También me las cantaron en Tlalmanalco. Muy cariñosa la gente, estoy muy agradecido.
-[Permalink](https://twitter.com/fernandeznorona/status/1505235129396039681) | 33 Me Gusta | 7 Retweets
+Concha nácar.
+[Permalink](https://twitter.com/fernandeznorona/status/1505323371231334407) | 13 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 09:29:31
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 15:18:56
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1505235029487919104) | 16 Me Gusta | 3 Retweets
+Es 30 de abril.
+[Permalink](https://twitter.com/fernandeznorona/status/1505322963356237826) | 12 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 09:29:00
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 15:18:32
 *****
-RT @heraldodemexico: #OpinionesCompletas | Son culebras, no borregos
-
-
-El resolutivo emitido hace unos días por el parlamento europeo, es in…
-[Permalink](https://twitter.com/fernandeznorona/status/1505234898231123977) | 0 Me Gusta | 10 Retweets
+RT @BibianaViana: Italia retira todas las medidas contra la Pandemia a partir del 31 de Abril de 2022.
+Se suma a los 10 Países que no piden…
+[Permalink](https://twitter.com/fernandeznorona/status/1505322861984108549) | 0 Me Gusta | 56 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 22:05:38
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 15:08:29
 *****
-Lo terminé. “Una vida sin principios” y “Esclavitud en Massachusetts” son espléndidos.
-[Permalink](https://twitter.com/fernandeznorona/status/1505062925911867401) | 67 Me Gusta | 8 Retweets
+Muchísimas gracias a quienes me han felicitado por mi cumpleaños. Se los agradezco de corazón y les pido su comprensión de no poder responderles uno a uno.
+[Permalink](https://twitter.com/fernandeznorona/status/1505320332965601283) | 218 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2022 a las 21:54:28
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2022 a las 15:05:27
 *****
-Apenas en Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1505060112431525893) | 53 Me Gusta | 3 Retweets
+Se ve que eres aldeano. En todo el mundo los aeropuertos quedan retirados, pero el @mx_aifa tendrá en breve un tren que lo conecte de manera rápida y económica.
+[Permalink](https://twitter.com/fernandeznorona/status/1505319567962349570) | 39 Me Gusta | 12 Retweets

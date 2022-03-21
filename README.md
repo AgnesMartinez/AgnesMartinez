@@ -1,27 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 20:40:24
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2022 a las 07:02:53
 *****
-RT @Claudiashein: La construcción del Aeropuerto Internacional “Felipe Ángeles”, en menos de tres años, es un hecho histórico para nuestro…
-[Permalink](https://twitter.com/fernandeznorona/status/1505766250227580931) | 0 Me Gusta | 1,800 Retweets
+RT @Nubia_SCG: No es por molestarlos pero, dos cosas:
+
+
+-El primer vuelo fue a Tabasco (obviamente) para pesar de la oposición.
+
+
+-El primer…
+[Permalink](https://twitter.com/fernandeznorona/status/1505922902767673345) | 0 Me Gusta | 91 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 20:39:09
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2022 a las 07:02:12
 *****
-RT @JornadaEdomex: Para rabia de la derecha se inaugurará @AIFA_MEX: @fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1505765937735155713) | 0 Me Gusta | 16 Retweets
+Eso tardabas de tu casa a @Radio_Formula, pero te haces güey.
+[Permalink](https://twitter.com/fernandeznorona/status/1505922733263237120) | 101 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 20:37:45
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2022 a las 07:00:08
 *****
-RT @Arquithierry: @fernandeznorona
-En Atizapán de Zaragoza
-[Permalink](https://twitter.com/fernandeznorona/status/1505765583404552192) | 0 Me Gusta | 6 Retweets
+La barda, titúlaste mal tu artículo. “La barda más cara del mundo”, ¿Verdad #TomandanteBorolas alias @FelipeCalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1505922211483459587) | 120 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 20:37:00
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2022 a las 06:58:09
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1505765393306107904) | 34 Me Gusta | 5 Retweets
+Xacto
+[Permalink](https://twitter.com/fernandeznorona/status/1505921711744724994) | 59 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 19:30:30
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2022 a las 06:56:14
 *****
-RT @Julianatilano: La mayoría de las "críticas" en contra del AIFA son clasistas. Vengan de donde vengan: gente de la política, la academia…
-[Permalink](https://twitter.com/fernandeznorona/status/1505748658104504329) | 0 Me Gusta | 369 Retweets
+50 minutos saliendo a las 7: 45 desde @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1505921231043837954) | 62 Me Gusta | 9 Retweets

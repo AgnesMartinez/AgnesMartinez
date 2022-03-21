@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 14:22:12
+**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 20:40:24
 *****
-Así va Tlalnepantla.
-[Permalink](https://twitter.com/fernandeznorona/status/1505671072615747592) | 109 Me Gusta | 14 Retweets
+RT @Claudiashein: La construcción del Aeropuerto Internacional “Felipe Ángeles”, en menos de tres años, es un hecho histórico para nuestro…
+[Permalink](https://twitter.com/fernandeznorona/status/1505766250227580931) | 0 Me Gusta | 1,097 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 14:18:07
+**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 20:39:09
 *****
-Así va Tlalnepantla.
-[Permalink](https://twitter.com/fernandeznorona/status/1505670046173044742) | 45 Me Gusta | 2 Retweets
+RT @JornadaEdomex: Para rabia de la derecha se inaugurará @AIFA_MEX: @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1505765937735155713) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 13:23:40
+**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 20:37:45
 *****
-RT @maxcorreah: Ahora en #Atizapan con @fernandeznorona promoviendo la #ReformaElectrica y #RevocacionDeMandato 
-
-
-\#QueSigaAMLO
-[Permalink](https://twitter.com/fernandeznorona/status/1505656342408802315) | 0 Me Gusta | 9 Retweets
+RT @Arquithierry: @fernandeznorona
+En Atizapán de Zaragoza
+[Permalink](https://twitter.com/fernandeznorona/status/1505765583404552192) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 12:10:40
+**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 20:37:00
 *****
-Atizapán.
-[Permalink](https://twitter.com/fernandeznorona/status/1505637970467950592) | 57 Me Gusta | 12 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1505765393306107904) | 25 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 09:40:56
+**Fernández Noroña** (**@fernandeznorona**) • 20-03-2022 a las 19:30:30
 *****
-Villa Nicolás Romero, Estado de México.
-[Permalink](https://twitter.com/fernandeznorona/status/1505600292049625097) | 46 Me Gusta | 11 Retweets
+RT @Julianatilano: La mayoría de las "críticas" en contra del AIFA son clasistas. Vengan de donde vengan: gente de la política, la academia…
+[Permalink](https://twitter.com/fernandeznorona/status/1505748658104504329) | 0 Me Gusta | 339 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 21:19:42
+**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 09:40:38
 *****
-¡Salud! Ay #TomandanteBorolas alias @FelipeCalderon, les importó un demonio las aves y la naturaleza con el aeropuerto en el lago de Texcoco. Son una pandilla de farsantes.
-[Permalink](https://twitter.com/fernandeznorona/status/1506500914101719043) | 234 Me Gusta | 52 Retweets
+Pero esa foto es del aniversario de las Fuerza Aérea Mexicana. La verdad, me pareció incorrecto tomarme otra “selfie” el lunes 21 de marzo del 2022 en el @aifa_aeropuerto.
+[Permalink](https://twitter.com/fernandeznorona/status/1506687376395014149) | 43 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 21:18:17
+**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 09:37:21
 *****
-RT @ebauman70: Dip  Gerardo Fernández Noroña PT - Anniversary of Mexico's Oil Expropriation
-[Permalink](https://twitter.com/fernandeznorona/status/1506500558844137475) | 0 Me Gusta | 13 Retweets
+Me dicen que la cuenta oficial es @aifa_aeropuerto. Si tienen la foto del saludo del compañero presidente a mi persona, compártanla por favor, para evidenciar a los intrigantes.
+[Permalink](https://twitter.com/fernandeznorona/status/1506686550645649411) | 73 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 21:15:10
+**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 09:12:29
 *****
-RT @mlucascir: Como los amparos frívolos a granel ya demostraron no funcionar, entonces a usar a gente del espectáculo. Seguramente sale má…
-[Permalink](https://twitter.com/fernandeznorona/status/1506499773993345024) | 0 Me Gusta | 89 Retweets
+La derecha como siempre, mintiendo: #ezdequeloinoro. Eso lo único que significa es que les súper ardió la recepción que me dio la gente en el @mx_aifa y, la calidez que me dispensó el compañero presidente @lopezobrador_.
+[Permalink](https://twitter.com/fernandeznorona/status/1506680294216241152) | 119 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 21:10:38
+**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 08:36:32
 *****
-Noooo, bueno, en las efemérides de hoy omití la más importante: un día como hoy, hace 81 años, nació mi hermanita María Fernanda Campa Uranga.
-[Permalink](https://twitter.com/fernandeznorona/status/1506498634656804865) | 139 Me Gusta | 22 Retweets
+Nos acaban de entregar las memorias de los foros de Parlamento abierto.
+[Permalink](https://twitter.com/fernandeznorona/status/1506671245265281026) | 48 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 20:02:33
+**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 08:18:44
 *****
-Una hora. Servido pánfilo @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1506481500383940609) | 80 Me Gusta | 10 Retweets
+Pero es muy sencillo, atestiguaron el saludo los gobernadores @RutilioEscandon y @VictorCastroCos. Atrás observaba Carlos Slim. Vaya testigos de calidad que tengo.
+[Permalink](https://twitter.com/fernandeznorona/status/1506666767954808834) | 63 Me Gusta | 6 Retweets

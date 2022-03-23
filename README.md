@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 15:02:15
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 21:19:42
 *****
-Buena reunión en Atzcapotzalco. La diputada @NANCYMARLENNR, con licencia para promover la revocación, hablando.
-[Permalink](https://twitter.com/fernandeznorona/status/1506405928546963460) | 43 Me Gusta | 7 Retweets
+¡Salud! Ay #TomandanteBorolas alias @FelipeCalderon, les importó un demonio las aves y la naturaleza con el aeropuerto en el lago de Texcoco. Son una pandilla de farsantes.
+[Permalink](https://twitter.com/fernandeznorona/status/1506500914101719043) | 140 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 14:19:43
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 21:18:17
 *****
-Azcapotzalco.
-[Permalink](https://twitter.com/fernandeznorona/status/1506395223898812416) | 58 Me Gusta | 9 Retweets
+RT @ebauman70: Dip  Gerardo Fernández Noroña PT - Anniversary of Mexico's Oil Expropriation
+[Permalink](https://twitter.com/fernandeznorona/status/1506500558844137475) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 13:42:42
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 21:15:10
 *****
-Me comentan que llevan un año sin trabajo petroleros transitorios de @Pemex, de la refinería Francisco I. Madero en Ciudad Madero, Tamaulipas.
-[Permalink](https://twitter.com/fernandeznorona/status/1506385907347169280) | 67 Me Gusta | 22 Retweets
+RT @mlucascir: Como los amparos frívolos a granel ya demostraron no funcionar, entonces a usar a gente del espectáculo. Seguramente sale má…
+[Permalink](https://twitter.com/fernandeznorona/status/1506499773993345024) | 0 Me Gusta | 52 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 13:19:39
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 21:10:38
 *****
-En el Ajusco también hay un incendio.
-[Permalink](https://twitter.com/fernandeznorona/status/1506380108008808449) | 28 Me Gusta | 8 Retweets
+Noooo, bueno, en las efemérides de hoy omití la más importante: un día como hoy, hace 81 años, nació mi hermanita María Fernanda Campa Uranga.
+[Permalink](https://twitter.com/fernandeznorona/status/1506498634656804865) | 90 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 12:43:19
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 20:02:33
 *****
-Como siempre, gente jugándosela vida. Se requiere apoyo en el gobierno de Morelos. #tepoztlan.
-[Permalink](https://twitter.com/fernandeznorona/status/1506370962874372101) | 50 Me Gusta | 17 Retweets
+Una hora. Servido pánfilo @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1506481500383940609) | 66 Me Gusta | 10 Retweets

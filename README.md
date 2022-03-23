@@ -1,36 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 09:56:42
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 15:02:15
 *****
-RT @jgnaredo: No seas mentirosa @azucenau.
-
-
-La señora “no se filtró a la sala de llegadas”. 
-
-
-Estaba a un costado del estacionamiento, una…
-[Permalink](https://twitter.com/fernandeznorona/status/1506329033822203908) | 0 Me Gusta | 358 Retweets
+Buena reunión en Atzcapotzalco. La diputada @NANCYMARLENNR, con licencia para promover la revocación, hablando.
+[Permalink](https://twitter.com/fernandeznorona/status/1506405928546963460) | 43 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 09:53:38
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 14:19:43
 *****
-En el jardín Hidalgo.
-[Permalink](https://twitter.com/fernandeznorona/status/1506328259784368135) | 12 Me Gusta | 1 Retweets
+Azcapotzalco.
+[Permalink](https://twitter.com/fernandeznorona/status/1506395223898812416) | 58 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 06:56:56
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 13:42:42
 *****
-Ahí te hablan #TomandanteBorolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1506283791928729608) | 116 Me Gusta | 40 Retweets
+Me comentan que llevan un año sin trabajo petroleros transitorios de @Pemex, de la refinería Francisco I. Madero en Ciudad Madero, Tamaulipas.
+[Permalink](https://twitter.com/fernandeznorona/status/1506385907347169280) | 67 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 06:55:54
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 13:19:39
 *****
-RT @rodriguezmonos: "El Haigapuerto Felipe Calderón"
-@FelipeCalderon #AIFA #AeropuertoFelipeCalderon 
-\#AeropuertoFelipeAngeles #FelipeCalde…
-[Permalink](https://twitter.com/fernandeznorona/status/1506283533450547212) | 0 Me Gusta | 797 Retweets
+En el Ajusco también hay un incendio.
+[Permalink](https://twitter.com/fernandeznorona/status/1506380108008808449) | 28 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 06:53:57
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2022 a las 12:43:19
 *****
-RT @fisgonmonero: ¿Por qué le molesta tanto a la oposición el Aeropuerto Internacional Felipe Ángeles?
-¿Son los negocios?
-¿Es que no es suy…
-[Permalink](https://twitter.com/fernandeznorona/status/1506283044176547843) | 0 Me Gusta | 1,218 Retweets
+Como siempre, gente jugándosela vida. Se requiere apoyo en el gobierno de Morelos. #tepoztlan.
+[Permalink](https://twitter.com/fernandeznorona/status/1506370962874372101) | 50 Me Gusta | 17 Retweets

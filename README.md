@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 13:35:51
+**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 21:20:45
 *****
-Va en la reforma constitucional en materia electoral.
-[Permalink](https://twitter.com/fernandeznorona/status/1506746570284609536) | 32 Me Gusta | 6 Retweets
+RT @chioreya: Mírenlo, le preocupa taaanto  el medio ambiente que viaja en avión privado para contaminar 10 veces más de lo debido……Uy que…
+[Permalink](https://twitter.com/fernandeznorona/status/1506863566229495809) | 0 Me Gusta | 665 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 13:32:34
+**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 21:19:33
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1506745745768005634) | 16 Me Gusta | 2 Retweets
+RT @epigmenioibarra: Los medios más que contrapeso ante un poder corrupto; fueron apoyo irrestricto para el mismo. Más que testigos; cómpli…
+[Permalink](https://twitter.com/fernandeznorona/status/1506863264638111748) | 0 Me Gusta | 1,291 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 12:52:31
+**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 21:05:57
 *****
-RT @Monix139: 🇲🇽🇲🇽🇲🇽🇲🇽Este viernes 25 de marzo @fernandeznorona el #GiganteDeSanLázaro estará en el parque Municipio Libre en Cozumel, Q. R…
-[Permalink](https://twitter.com/fernandeznorona/status/1506735666889166851) | 0 Me Gusta | 21 Retweets
+RT @Luna_Tagg: Somos mucho Pueblo Chingón para tan pocos pinches odiadores. 
+
+
+\#Noroña2024 #ElGigqnteDeSanLázaro
+[Permalink](https://twitter.com/fernandeznorona/status/1506859842446708867) | 0 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 12:51:18
+**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 21:03:45
 *****
-Están poniendo la parte final del video, justo después de que nos habían saludado. Saludaron a @RutilioEscandon -a mi lado izquierdo-, a un servidor y, a @VictorCastroCos -a mi lado derecho-. Estamos rastreando el video para desmantelar esta nueva intriga.
-[Permalink](https://twitter.com/fernandeznorona/status/1506735360218435596) | 41 Me Gusta | 11 Retweets
+Naa, solo con leer el prólogo del libro de @JimenezEspriu queda clara la barbaridad del NAICM. Lo tienes que leer.
+[Permalink](https://twitter.com/fernandeznorona/status/1506859288509177861) | 24 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 09:40:38
+**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 20:35:34
 *****
-Pero esa foto es del aniversario de las Fuerza Aérea Mexicana. La verdad, me pareció incorrecto tomarme otra “selfie” el lunes 21 de marzo del 2022 en el @aifa_aeropuerto.
-[Permalink](https://twitter.com/fernandeznorona/status/1506687376395014149) | 97 Me Gusta | 17 Retweets
+Cita Jiménez Espriú a Marguerite Yourcenar en “Memorias de Adriano”, ‘he buscado la libertad más que el poder y el poder tan sólo porque en parte favorecía la libertad’.
+[Permalink](https://twitter.com/fernandeznorona/status/1506852195924422657) | 43 Me Gusta | 12 Retweets

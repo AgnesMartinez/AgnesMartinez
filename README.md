@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 21:20:45
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 09:03:25
 *****
-RT @chioreya: Mírenlo, le preocupa taaanto  el medio ambiente que viaja en avión privado para contaminar 10 veces más de lo debido……Uy que…
-[Permalink](https://twitter.com/fernandeznorona/status/1506863566229495809) | 0 Me Gusta | 755 Retweets
+Oye @lorenzocordovav y monaguillo @CiroMurayamaINE ¿por qué no hicieron la consulta en domingo de resurrección en vez de en domingo de ramos, ya que se pusieron tan por encima de los dogmas religiosos?
+[Permalink](https://twitter.com/fernandeznorona/status/1507040398765662211) | 104 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 21:19:33
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 08:54:23
 *****
-RT @epigmenioibarra: Los medios más que contrapeso ante un poder corrupto; fueron apoyo irrestricto para el mismo. Más que testigos; cómpli…
-[Permalink](https://twitter.com/fernandeznorona/status/1506863264638111748) | 0 Me Gusta | 1,393 Retweets
+Es que no es cualquier Pérez, es Pérez-Jaén y tú, plebeyo Gutiérrez a secas, te atreves a mocharle el guión. Yo tampoco soy Fernández-Noroña, soy plebeyo, Fernández sin más, jejeje. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1507038125230592007) | 30 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 21:05:57
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 08:49:15
 *****
-RT @Luna_Tagg: Somos mucho Pueblo Chingón para tan pocos pinches odiadores. 
-
-
-\#Noroña2024 #ElGigqnteDeSanLázaro
-[Permalink](https://twitter.com/fernandeznorona/status/1506859842446708867) | 0 Me Gusta | 21 Retweets
+Pero puedes irte a vivir a Ecatepec, donde el epidemiólogo destacado @FerVilchisMx te madrea si no lo usas.
+[Permalink](https://twitter.com/fernandeznorona/status/1507036836811743238) | 25 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 21:03:45
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 08:48:10
 *****
-Naa, solo con leer el prólogo del libro de @JimenezEspriu queda clara la barbaridad del NAICM. Lo tienes que leer.
-[Permalink](https://twitter.com/fernandeznorona/status/1506859288509177861) | 31 Me Gusta | 6 Retweets
+Te recuerdo que el uso de cubrebocas no es obligatorio en México, al margen de su nula eficacia. Por otra parte, mientras el mundo retira medidas de restricción sanitaria, ustedes se empeñan en vivir y morir embozados.
+[Permalink](https://twitter.com/fernandeznorona/status/1507036563909361674) | 27 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2022 a las 20:35:34
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 08:43:39
 *****
-Cita Jiménez Espriú a Marguerite Yourcenar en “Memorias de Adriano”, ‘he buscado la libertad más que el poder y el poder tan sólo porque en parte favorecía la libertad’.
-[Permalink](https://twitter.com/fernandeznorona/status/1506852195924422657) | 52 Me Gusta | 14 Retweets
+RT @jairocalixto: Tan honestos, comprometidos y humanistas que se veían! No lo puedo creer! Seguro lo redactó Armando Hoyos 🤓😏😏😏🤓 #DéjenseA…
+[Permalink](https://twitter.com/fernandeznorona/status/1507035423759085575) | 0 Me Gusta | 175 Retweets

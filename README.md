@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 15:49:16
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 21:48:01
 *****
-Oigan @HSBC_MX, ábranle una cuenta para que justifiquen llamarle 64 veces.
-[Permalink](https://twitter.com/fernandeznorona/status/1507142536695009298) | 5 Me Gusta | 3 Retweets
+RT @Vegasaez_:
+[Permalink](https://twitter.com/fernandeznorona/status/1507232816572125184) | 0 Me Gusta | 52 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 15:47:14
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 21:46:12
 *****
-Otro desmentido del @INEMexico: “Es falso que @lorenzocordovav y su monaguillo @CiroMurayamaINE sean panistas. Todavía no se han afiliado, son externos”.
-[Permalink](https://twitter.com/fernandeznorona/status/1507142024297951232) | 66 Me Gusta | 19 Retweets
+RT @LOVREGA: Oigan señores derechosos, ¿Qué atributos observan en Chumel que se ha vuelto su guía?
+
+
+No es muy inteligente que digamos, tamp…
+[Permalink](https://twitter.com/fernandeznorona/status/1507232358973460506) | 0 Me Gusta | 110 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 15:41:05
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 21:45:13
 *****
-Estoy feliz. Mientras más intrigan, más claro queda que voy muy bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1507140475786080256) | 95 Me Gusta | 15 Retweets
+26.
+[Permalink](https://twitter.com/fernandeznorona/status/1507232115158573060) | 7 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 15:18:54
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 21:44:32
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1507134891934240771) | 42 Me Gusta | 14 Retweets
+Ya me voy a dormir porque acá va a ser la una y debo iniciar temprano mañana.
+[Permalink](https://twitter.com/fernandeznorona/status/1507231941241753609) | 58 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 15:16:06
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 21:22:33
 *****
-Debe ser porque te dejas llevar por la apabullante propaganda que hay en contra. Pero Rusia tiene amigos ciertamente. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1507134189149339651) | 23 Me Gusta | 8 Retweets
+11,980 en Facebook y, 8635 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1507226407017099298) | 21 Me Gusta | 4 Retweets

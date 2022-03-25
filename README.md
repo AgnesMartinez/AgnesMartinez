@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 09:03:25
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 15:49:16
 *****
-Oye @lorenzocordovav y monaguillo @CiroMurayamaINE ¿por qué no hicieron la consulta en domingo de resurrección en vez de en domingo de ramos, ya que se pusieron tan por encima de los dogmas religiosos?
-[Permalink](https://twitter.com/fernandeznorona/status/1507040398765662211) | 104 Me Gusta | 28 Retweets
+Oigan @HSBC_MX, ábranle una cuenta para que justifiquen llamarle 64 veces.
+[Permalink](https://twitter.com/fernandeznorona/status/1507142536695009298) | 5 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 08:54:23
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 15:47:14
 *****
-Es que no es cualquier Pérez, es Pérez-Jaén y tú, plebeyo Gutiérrez a secas, te atreves a mocharle el guión. Yo tampoco soy Fernández-Noroña, soy plebeyo, Fernández sin más, jejeje. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1507038125230592007) | 30 Me Gusta | 6 Retweets
+Otro desmentido del @INEMexico: “Es falso que @lorenzocordovav y su monaguillo @CiroMurayamaINE sean panistas. Todavía no se han afiliado, son externos”.
+[Permalink](https://twitter.com/fernandeznorona/status/1507142024297951232) | 66 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 08:49:15
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 15:41:05
 *****
-Pero puedes irte a vivir a Ecatepec, donde el epidemiólogo destacado @FerVilchisMx te madrea si no lo usas.
-[Permalink](https://twitter.com/fernandeznorona/status/1507036836811743238) | 25 Me Gusta | 5 Retweets
+Estoy feliz. Mientras más intrigan, más claro queda que voy muy bien.
+[Permalink](https://twitter.com/fernandeznorona/status/1507140475786080256) | 95 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 08:48:10
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 15:18:54
 *****
-Te recuerdo que el uso de cubrebocas no es obligatorio en México, al margen de su nula eficacia. Por otra parte, mientras el mundo retira medidas de restricción sanitaria, ustedes se empeñan en vivir y morir embozados.
-[Permalink](https://twitter.com/fernandeznorona/status/1507036563909361674) | 27 Me Gusta | 0 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1507134891934240771) | 42 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 08:43:39
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2022 a las 15:16:06
 *****
-RT @jairocalixto: Tan honestos, comprometidos y humanistas que se veían! No lo puedo creer! Seguro lo redactó Armando Hoyos 🤓😏😏😏🤓 #DéjenseA…
-[Permalink](https://twitter.com/fernandeznorona/status/1507035423759085575) | 0 Me Gusta | 175 Retweets
+Debe ser porque te dejas llevar por la apabullante propaganda que hay en contra. Pero Rusia tiene amigos ciertamente. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1507134189149339651) | 23 Me Gusta | 8 Retweets

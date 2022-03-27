@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 22:00:14
+**Fernández Noroña** (**@fernandeznorona**) • 27-03-2022 a las 07:52:03
 *****
-RT @Patriciomonero: Problemillas...
-[Permalink](https://twitter.com/fernandeznorona/status/1507960668116369408) | 0 Me Gusta | 281 Retweets
+Leí hasta los anexos. Sólo con leer  los surte anexos del libro, económico social y ambiental monstruoso que el NAICM representó. Cualquier  cretino que llore por el aeropuerto en el lago de Texcoco debe por lo menos leer estos anexos.
+[Permalink](https://twitter.com/fernandeznorona/status/1508109603980075020) | 84 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 22:00:03
+**Fernández Noroña** (**@fernandeznorona**) • 27-03-2022 a las 07:48:39
 *****
-Y tú que ni siquiera sabes lo que es la libertad, pazguato @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1507960623002497027) | 43 Me Gusta | 11 Retweets
+Aterrizamos en Durango.
+[Permalink](https://twitter.com/fernandeznorona/status/1508108749755592710) | 32 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 21:57:04
+**Fernández Noroña** (**@fernandeznorona**) • 27-03-2022 a las 06:26:13
 *****
-@chioreya Dizque.
-[Permalink](https://twitter.com/fernandeznorona/status/1507959870930268161) | 5 Me Gusta | 0 Retweets
+Salimos rumbo a Durango con @Aeromexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1508088002022678530) | 42 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 21:56:01
+**Fernández Noroña** (**@fernandeznorona**) • 27-03-2022 a las 05:45:36
 *****
-Con un daño patrimonial, ambiental, social y con un saqueo monstruoso.
-[Permalink](https://twitter.com/fernandeznorona/status/1507959608316416001) | 112 Me Gusta | 12 Retweets
+RT @andreitav92: No tenían piedad para saquearnos los del PRIAN 
+Aquí está otra obra inconclusa, de Peña Nieto: Planta coquizadora de Tula,…
+[Permalink](https://twitter.com/fernandeznorona/status/1508077782038888456) | 0 Me Gusta | 357 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 21:56:01
+**Fernández Noroña** (**@fernandeznorona**) • 27-03-2022 a las 05:39:31
 *****
-Cretino, lee este libro y discúlpate. En 2018 NO habían terminado ni las pistas del NAIM. Construyeron 20% y NUNCA pasaron del piso. En 2024 seguiría sin concluir.
-[Permalink](https://twitter.com/fernandeznorona/status/1507959605204340736) | 93 Me Gusta | 21 Retweets
+RT @arroyolegaspi: Siiii, buena idea ¡Fuera máscaras!.
+Ya revelen quien es quien en la guerra.
+[Permalink](https://twitter.com/fernandeznorona/status/1508076251134713860) | 0 Me Gusta | 19 Retweets

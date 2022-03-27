@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 14:03:44
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 22:00:14
 *****
-Cancún.
-[Permalink](https://twitter.com/fernandeznorona/status/1507840755070607361) | 60 Me Gusta | 10 Retweets
+RT @Patriciomonero: Problemillas...
+[Permalink](https://twitter.com/fernandeznorona/status/1507960668116369408) | 0 Me Gusta | 247 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 11:16:58
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 22:00:03
 *****
-Qué gusto verte ya activo de nuevo, recuperado. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1507798784922865667) | 34 Me Gusta | 4 Retweets
+Y tú que ni siquiera sabes lo que es la libertad, pazguato @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1507960623002497027) | 16 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2022 a las 18:27:34
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 21:57:04
 *****
-Ni yo que soy chilango me como las dizque tortillas “Tía Rosa”, son espantosas.
-[Permalink](https://twitter.com/fernandeznorona/status/1507544762324332547) | 73 Me Gusta | 14 Retweets
+@chioreya Dizque.
+[Permalink](https://twitter.com/fernandeznorona/status/1507959870930268161) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2022 a las 18:25:04
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 21:56:01
 *****
-RT @save__alejandro: Amlo @lopezobrador_ no solo saludó a Noroña @fernandeznorona, si me apuran fue hasta de los que más tiempo duró saluda…
-[Permalink](https://twitter.com/fernandeznorona/status/1507544131068993540) | 0 Me Gusta | 108 Retweets
+Con un daño patrimonial, ambiental, social y con un saqueo monstruoso.
+[Permalink](https://twitter.com/fernandeznorona/status/1507959608316416001) | 32 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2022 a las 17:43:56
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2022 a las 21:56:01
 *****
-Tú eres lacaya del gobierno de Estados Unidos, nosotros no.
-[Permalink](https://twitter.com/fernandeznorona/status/1507533781749710856) | 278 Me Gusta | 69 Retweets
+Cretino, lee este libro y discúlpate. En 2018 NO habían terminado ni las pistas del NAIM. Construyeron 20% y NUNCA pasaron del piso. En 2024 seguiría sin concluir.
+[Permalink](https://twitter.com/fernandeznorona/status/1507959605204340736) | 33 Me Gusta | 7 Retweets

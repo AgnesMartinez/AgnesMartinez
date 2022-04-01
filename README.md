@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 15:44:36
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 19:01:02
 *****
-Homúnculo, ni a hombre llegas @BryanToriz1
-[Permalink](https://twitter.com/fernandeznorona/status/1509678075314941957) | 38 Me Gusta | 12 Retweets
+Ahora hazle un reconocimiento a @g_quadri.
+[Permalink](https://twitter.com/fernandeznorona/status/1509727509738369025) | 65 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 15:42:49
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 18:59:53
 *****
-Debes ser hijo de @g_quadri. Parece que para ser paniaguado hay que ser homófobo. @AccionNacional mira tus cuadros.
-[Permalink](https://twitter.com/fernandeznorona/status/1509677629082902528) | 48 Me Gusta | 16 Retweets
+Aquí les hablan a los que quieren seguirse vacunando.
+[Permalink](https://twitter.com/fernandeznorona/status/1509727219882639360) | 53 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 15:39:58
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 18:56:10
 *****
-Muy pero muy bien @cynthialopezc1.
-[Permalink](https://twitter.com/fernandeznorona/status/1509676912171491330) | 84 Me Gusta | 28 Retweets
+Lamentable con una precisión: lo que llevan no son alimentos.
+[Permalink](https://twitter.com/fernandeznorona/status/1509726287409160197) | 61 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 15:33:07
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 18:53:30
 *****
-La verdad es que @g_quadri es un imbécil monumental. Ofender en el pleno de la @Mx_Diputados a una diputada trans el día internacional de la visibilidad de las personas Trans. Se necesita tener el cerebro en las patas para hacer algo así.
-[Permalink](https://twitter.com/fernandeznorona/status/1509675186550939651) | 389 Me Gusta | 100 Retweets
+Si no hice mal la cuenta tengo 34.2 millones de vistas a mis intervenciones. No sé cuál sea el histórico en este momento. Cuando estaba en 60 millones yo tenía 20 millones de vistas y sólo de la pasada legislatura.
+[Permalink](https://twitter.com/fernandeznorona/status/1509725616429543428) | 62 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 14:12:49
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 18:22:09
 *****
-Que impulses la agenda despolitizadora de la derecha y hasta @CiroMurayamaINE no te acompañe en ella, acredita lo perdido que andas.
-[Permalink](https://twitter.com/fernandeznorona/status/1509654977941233665) | 25 Me Gusta | 4 Retweets
+Contra mi costumbre cené una ensalada. Ahora sí necesito ir a los tacos.
+[Permalink](https://twitter.com/fernandeznorona/status/1509717725618262017) | 122 Me Gusta | 12 Retweets

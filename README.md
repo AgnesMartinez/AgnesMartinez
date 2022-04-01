@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 10:07:34
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 15:44:36
 *****
-Ya me preocupó estar de acuerdo con el monaguillo @CiroMurayamaINE. Pero en esto si tiene razón.
-[Permalink](https://twitter.com/fernandeznorona/status/1509593258015412224) | 6 Me Gusta | 2 Retweets
+Homúnculo, ni a hombre llegas @BryanToriz1
+[Permalink](https://twitter.com/fernandeznorona/status/1509678075314941957) | 38 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 10:05:54
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 15:42:49
 *****
-¡Día del Taco! ¿A qué tacos ir en tan emblemática fecha?
-[Permalink](https://twitter.com/fernandeznorona/status/1509592838048137216) | 8 Me Gusta | 1 Retweets
+Debes ser hijo de @g_quadri. Parece que para ser paniaguado hay que ser homófobo. @AccionNacional mira tus cuadros.
+[Permalink](https://twitter.com/fernandeznorona/status/1509677629082902528) | 48 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 10:03:18
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 15:39:58
 *****
-RT @lopezobrador_: Miren la defensa de la gente al Tren Maya. Me llena de orgullo saber que nos queremos y compartimos los mismos sentimien…
-[Permalink](https://twitter.com/fernandeznorona/status/1509592185376673795) | 0 Me Gusta | 1,787 Retweets
+Muy pero muy bien @cynthialopezc1.
+[Permalink](https://twitter.com/fernandeznorona/status/1509676912171491330) | 84 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 09:54:55
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 15:33:07
 *****
-RT @JesusRCuevas: El Tren Maya no afectará cenotes ni ríos subterráneos. Sí hay estudios ambientales. Indígenas mayas del ejido Jacinto Pat…
-[Permalink](https://twitter.com/fernandeznorona/status/1509590077164249088) | 0 Me Gusta | 718 Retweets
+La verdad es que @g_quadri es un imbécil monumental. Ofender en el pleno de la @Mx_Diputados a una diputada trans el día internacional de la visibilidad de las personas Trans. Se necesita tener el cerebro en las patas para hacer algo así.
+[Permalink](https://twitter.com/fernandeznorona/status/1509675186550939651) | 389 Me Gusta | 100 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 09:51:30
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 14:12:49
 *****
-Estás diciendo tonterías doctor Chapatín. No sólo se seguirá promoviendo la instalación de paneles solares, se incluirá al sector social para que pueda generar electricidad. Esto es, cooperativas,barrios, comunidades, ejidos, empresas sociales, entre otros.
-[Permalink](https://twitter.com/fernandeznorona/status/1509589214265937930) | 47 Me Gusta | 11 Retweets
+Que impulses la agenda despolitizadora de la derecha y hasta @CiroMurayamaINE no te acompañe en ella, acredita lo perdido que andas.
+[Permalink](https://twitter.com/fernandeznorona/status/1509654977941233665) | 25 Me Gusta | 4 Retweets

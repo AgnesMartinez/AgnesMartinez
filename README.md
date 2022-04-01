@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 19:01:02
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 09:43:13
 *****
-Ahora hazle un reconocimiento a @g_quadri.
-[Permalink](https://twitter.com/fernandeznorona/status/1509727509738369025) | 74 Me Gusta | 17 Retweets
+Eso sin duda.
+[Permalink](https://twitter.com/fernandeznorona/status/1509949518535610370) | 14 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 18:59:53
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 09:41:51
 *****
-Aquí les hablan a los que quieren seguirse vacunando.
-[Permalink](https://twitter.com/fernandeznorona/status/1509727219882639360) | 60 Me Gusta | 27 Retweets
+Hace un rato que aterrizamos en Monterrey, pero va para largo el descenso. El aeropuerto está saturado. ¿También será culpa del @aifa_aeropuerto o solo de @lopezobrador_?
+[Permalink](https://twitter.com/fernandeznorona/status/1509949173050785794) | 52 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 18:56:10
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 08:00:19
 *****
-Lamentable con una precisión: lo que llevan no son alimentos.
-[Permalink](https://twitter.com/fernandeznorona/status/1509726287409160197) | 68 Me Gusta | 13 Retweets
+Relájate, fue una sesión intensa la de ayer. @MARIACLEMENTEMX estaba legítimamente indignada. Ella es @PartidoMorenaMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1509923622101655559) | 19 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 18:53:30
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 07:59:05
 *****
-Si no hice mal la cuenta tengo 34.2 millones de vistas a mis intervenciones. No sé cuál sea el histórico en este momento. Cuando estaba en 60 millones yo tenía 20 millones de vistas y sólo de la pasada legislatura.
-[Permalink](https://twitter.com/fernandeznorona/status/1509725616429543428) | 68 Me Gusta | 15 Retweets
+RT @ildottorechairo: Putin anuncia el comienzo del fin del dólar como moneda de reserva y dice que el mundo avanza hacia "reservas reales"…
+[Permalink](https://twitter.com/fernandeznorona/status/1509923312763379721) | 0 Me Gusta | 573 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2022 a las 18:22:09
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 07:56:48
 *****
-Contra mi costumbre cené una ensalada. Ahora sí necesito ir a los tacos.
-[Permalink](https://twitter.com/fernandeznorona/status/1509717725618262017) | 130 Me Gusta | 12 Retweets
+Siempre hay un enorme tiempo de espera para despegar en @AICM_mx, pero lo prefieren a mudarse al @aifa_aeropuerto. No hay cosa más terca que la realidad y terminarán mudándose.
+[Permalink](https://twitter.com/fernandeznorona/status/1509922740379263000) | 74 Me Gusta | 15 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 19:15:56
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 08:08:21
 *****
-@cabohealth Sip
-[Permalink](https://twitter.com/fernandeznorona/status/1510093647534075907) | 1 Me Gusta | 0 Retweets
+Vale, muchas gracias.
+[Permalink](https://twitter.com/fernandeznorona/status/1510288033492393988) | 18 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 18:56:54
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 07:57:22
 *****
-“Cambia el formato a entretenimiento”, ay peneque, deberían contratarte para que entretengas a los visitantes @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1510088859652136963) | 41 Me Gusta | 9 Retweets
+Apenas vamos rumbo a Cuatro Ciénagas.
+[Permalink](https://twitter.com/fernandeznorona/status/1510285269077012486) | 43 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 18:29:46
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 06:52:26
 *****
-Concesionando  guarderías a familiares, como en el gobierno usurpador del #tomandanteborolas alias @FelipeCalderon y la Guardería ABC en Hermosillo ¿Verdad @Mzavalagc?
-[Permalink](https://twitter.com/fernandeznorona/status/1510082028674465795) | 66 Me Gusta | 22 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1510268926894170115) | 32 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 18:27:43
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 06:51:47
 *****
-RT @rubengluengas: Quiero aclarar que seguiré haciendo un programa semanal que se seguirá llamando En Contexto en YouTube de la @laoctavadi…
-[Permalink](https://twitter.com/fernandeznorona/status/1510081515358769152) | 0 Me Gusta | 96 Retweets
+Pues no genio, todo revocatorio que no revoca, ratifica. Ay @jorgeramosnews, ahora resulta que estás en contra de instrumentos democráticos de revocación que quedarán como una institución permanente para el país. #eldizquedemocrata.
+[Permalink](https://twitter.com/fernandeznorona/status/1510268763211452418) | 67 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 18:26:21
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 06:49:39
 *****
-¡Qué lástima! @laoctavadigital sigue perdiendo a espléndidos periodistas. Abrazote @rubengluengas y mucho éxito a donde te lleve la vida.
-[Permalink](https://twitter.com/fernandeznorona/status/1510081169035042819) | 51 Me Gusta | 14 Retweets
+A pesar de que tengo siete hernias en la columna vertebral, ya estoy listo para salir a Cuatro Ciénegas.
+[Permalink](https://twitter.com/fernandeznorona/status/1510268229108781063) | 403 Me Gusta | 55 Retweets

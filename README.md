@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 11:58:22
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 19:15:56
 *****
-Ya en el Four Seasons. Me da la impresión que la convocatoria la prensa no se hizo. Veremos.
-[Permalink](https://twitter.com/fernandeznorona/status/1509983532487168006) | 44 Me Gusta | 6 Retweets
+@cabohealth Sip
+[Permalink](https://twitter.com/fernandeznorona/status/1510093647534075907) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 10:21:15
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 18:56:54
 *****
-Naa, ya corrigió. @MARIACLEMENTEMX es compañera del movimiento y seguirá siéndolo siempre.
-[Permalink](https://twitter.com/fernandeznorona/status/1509959091397009408) | 48 Me Gusta | 10 Retweets
+“Cambia el formato a entretenimiento”, ay peneque, deberían contratarte para que entretengas a los visitantes @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1510088859652136963) | 38 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 10:19:57
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 18:29:46
 *****
-Ya vamos al aeropuerto de Monterrey a Saltillo. Ahí daremos una rueda de prensa a las dos de la tarde.
-[Permalink](https://twitter.com/fernandeznorona/status/1509958762135760902) | 44 Me Gusta | 8 Retweets
+Concesionando  guarderías a familiares, como en el gobierno usurpador del #tomandanteborolas alias @FelipeCalderon y la Guardería ABC en Hermosillo ¿Verdad @Mzavalagc?
+[Permalink](https://twitter.com/fernandeznorona/status/1510082028674465795) | 59 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 09:43:13
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 18:27:43
 *****
-Eso sin duda.
-[Permalink](https://twitter.com/fernandeznorona/status/1509949518535610370) | 23 Me Gusta | 3 Retweets
+RT @rubengluengas: Quiero aclarar que seguiré haciendo un programa semanal que se seguirá llamando En Contexto en YouTube de la @laoctavadi…
+[Permalink](https://twitter.com/fernandeznorona/status/1510081515358769152) | 0 Me Gusta | 84 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 09:41:51
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2022 a las 18:26:21
 *****
-Hace un rato que aterrizamos en Monterrey, pero va para largo el descenso. El aeropuerto está saturado. ¿También será culpa del @aifa_aeropuerto o solo de @lopezobrador_?
-[Permalink](https://twitter.com/fernandeznorona/status/1509949173050785794) | 141 Me Gusta | 24 Retweets
+¡Qué lástima! @laoctavadigital sigue perdiendo a espléndidos periodistas. Abrazote @rubengluengas y mucho éxito a donde te lleve la vida.
+[Permalink](https://twitter.com/fernandeznorona/status/1510081169035042819) | 45 Me Gusta | 12 Retweets

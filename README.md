@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 14:56:17
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 19:52:04
 *****
-Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1510390692593422340) | 27 Me Gusta | 4 Retweets
+A pesar de qué tengo siete hernias en la columna vertebral, mañana deberé viajar de Cuatro Ciénegas a Ramos Arizpe y después, de Ramos Arizpe a Torreón. Y de ahí al D.F. por avión.
+[Permalink](https://twitter.com/fernandeznorona/status/1510465127610568704) | 223 Me Gusta | 42 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 11:48:34
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 19:48:28
 *****
-Así vamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1510343451715547140) | 49 Me Gusta | 11 Retweets
+Eso no decías cuando gobernaba tu partido, el @PRI_Nacional. Y eso que en ese tiempo el presidente se imponía a los otros dos poderes, F A R S A N T E. @dvalades farsante.
+[Permalink](https://twitter.com/fernandeznorona/status/1510464222882406402) | 56 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 11:31:57
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 19:12:04
 *****
-Cuatro Ciénagas.
-[Permalink](https://twitter.com/fernandeznorona/status/1510339270023819267) | 71 Me Gusta | 14 Retweets
+Siempre lo ha sido.
+[Permalink](https://twitter.com/fernandeznorona/status/1510455063449382914) | 32 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 08:08:21
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 19:05:58
 *****
-Vale, muchas gracias.
-[Permalink](https://twitter.com/fernandeznorona/status/1510288033492393988) | 32 Me Gusta | 4 Retweets
+No te metas con mi cucú.
+[Permalink](https://twitter.com/fernandeznorona/status/1510453527319134213) | 32 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 07:57:22
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2022 a las 19:05:40
 *****
-Apenas vamos rumbo a Cuatro Ciénagas.
-[Permalink](https://twitter.com/fernandeznorona/status/1510285269077012486) | 75 Me Gusta | 7 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1510453450924077061) | 26 Me Gusta | 3 Retweets

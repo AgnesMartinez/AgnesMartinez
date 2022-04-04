@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-04-2022 a las 15:14:21
+**Fernández Noroña** (**@fernandeznorona**) • 03-04-2022 a las 22:05:17
 *****
-RT @LOVREGA: Dicen los fachos que tenían la intención de salír a marchar, pero sus siete hernias les impidieron asistir. Hay días malos, ho…
-[Permalink](https://twitter.com/fernandeznorona/status/1510757629244710917) | 0 Me Gusta | 160 Retweets
+Pues sigue sin salir ninguna maleta, de plano reclamaremos después la caja con pan de pulque. Peor que nunca @AICM_mx ¿Sabotaje o qué pasa ahí @SCT_mx? Hora y media sin que salga una sola maleta del vuelo @viajaVolaris de Torreón al D.F. Era 9:25 PM y aquí sigo en el aeropuerto.
+[Permalink](https://twitter.com/fernandeznorona/status/1510861041286234114) | 12 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-04-2022 a las 15:11:20
+**Fernández Noroña** (**@fernandeznorona**) • 03-04-2022 a las 21:54:57
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1510756869089988614) | 18 Me Gusta | 1 Retweets
+Más de una hora sin que salga una maleta. ⁦@viajaVolaris⁩ ⁦@AICM_mx⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1510858442134765573) | 11 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-04-2022 a las 15:09:10
+**Fernández Noroña** (**@fernandeznorona**) • 03-04-2022 a las 21:48:47
 *****
-Yo creo que transmitiré a las siete de la noche desde el aeropuerto de Torreón. Todavía vamos en carretera.
-[Permalink](https://twitter.com/fernandeznorona/status/1510756322521886728) | 56 Me Gusta | 5 Retweets
+No ha salido una puta maleta del vuelo @viajaVolaris de Torreón al D.F. Va para una hora y ni una maleta. @AICM_mx.
+[Permalink](https://twitter.com/fernandeznorona/status/1510856889663377408) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-04-2022 a las 15:08:37
+**Fernández Noroña** (**@fernandeznorona**) • 03-04-2022 a las 21:41:29
 *****
-Me dio gusto ver a mi amigo y compañero de lucha @DiegodelBosqueV.
-[Permalink](https://twitter.com/fernandeznorona/status/1510756183497445380) | 39 Me Gusta | 9 Retweets
+Es inconcebible, aquí sigo en el aeropuerto sin poderme ir. Por eso no me gusta documentar. Es una pesadilla.
+[Permalink](https://twitter.com/fernandeznorona/status/1510855051597783040) | 32 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-04-2022 a las 13:44:23
+**Fernández Noroña** (**@fernandeznorona**) • 03-04-2022 a las 21:37:58
 *****
-RT @rocionahle: Miles de veracruzanos nos concentramos ayer  en la plaza Lerdo en Xalapa, en apoyo a nuestro Presidente ⁦@lopezobrador_⁩  .…
-[Permalink](https://twitter.com/fernandeznorona/status/1510734986357391369) | 0 Me Gusta | 3,590 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1510854168617099270) | 26 Me Gusta | 2 Retweets

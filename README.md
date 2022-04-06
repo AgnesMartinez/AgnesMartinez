@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 07:28:38
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 13:48:48
 *****
-RT @Enrique73352495: No MMS! Ayer me dijo una compañera de trabajo: "yo no voy a ir a votar por qué se reeliga López por 6 años más!"
--Que?…
-[Permalink](https://twitter.com/fernandeznorona/status/1511365202045984771) | 0 Me Gusta | 18 Retweets
+No bueno, @El_Universal_Mx diciendo que solicito ayuda por amenaza de cancelar visas. Ahí la llevan. Exijo respeto a nuestra tarea institucional, ninguna ayuda.
+[Permalink](https://twitter.com/fernandeznorona/status/1511460872455180299) | 154 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 07:24:27
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 11:35:20
 *****
-Tu ideólogo, el que ni a divulgador llega, @EnriqueKrauze. ¡Ay zopenco, ni cómo ayudarte, @SergioSarmiento!
-[Permalink](https://twitter.com/fernandeznorona/status/1511364149904871439) | 53 Me Gusta | 19 Retweets
+No, no la gente imperialista. La vida de todo ser humano es valiosa. Pero a los paniaguados, sólo les interesa cuando el imperio estadounidense se los ordena.
+[Permalink](https://twitter.com/fernandeznorona/status/1511427286112907270) | 68 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 07:22:20
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 11:33:51
 *****
-Adiós, adiós. Vale más el ejercicio de la libertad. Protesté en la Torre Trump, a días de que Trump tomará protesta como presidente de EEUU, sabiendo que podían cancelar mi visa. Viste lo que me preocupó, zopenco.
-[Permalink](https://twitter.com/fernandeznorona/status/1511363617236656135) | 67 Me Gusta | 15 Retweets
+“Pro-rusos”, ahora resulta que atender tu tarea institucional de la creación de grupos de amistad es una actividad prorrusa. Lo menos que deberías hacer es realizar tu tarea de periodista ¿o eres pro-yanqui?
+[Permalink](https://twitter.com/fernandeznorona/status/1511426912287182857) | 177 Me Gusta | 50 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 07:18:51
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 11:13:13
 *****
-RT @JesusRCuevas: De acuerdo con la encuesta publicada hoy por @ElFinanciero_Mx sobre la #RevocacionDeMandato , el 67% de los participantes…
-[Permalink](https://twitter.com/fernandeznorona/status/1511362740119552011) | 0 Me Gusta | 655 Retweets
+Es al revés, gaznápiro, evitas que después de servir a la Patria, se vayan en su contra como tu amado #TomandanteBorolas alias @FelipeCalderon. Aunque hay que reconocer que el usurpador nunca sirvió a la Patria, @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1511421718702788615) | 70 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 07:11:47
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 11:06:42
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1511360960283521025) | 54 Me Gusta | 8 Retweets
+RT @LJyDMX: El Diputado @fernandeznorona, informó el lamentable fallecimiento de José Arturo López Cándido, quien fuera Legislador por el P…
+[Permalink](https://twitter.com/fernandeznorona/status/1511420078209781761) | 0 Me Gusta | 21 Retweets

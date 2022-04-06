@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 20:35:01
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2022 a las 10:04:27
 *****
-Oye subnormal, tu héroe @RepGonzalez pide que le retiren la visa a un ex diputado ya fallecido -Raúl Sánchez Barrales- y a por lo menos diez exlegisladores de la LXIV legislatura. ¡Brillante como tú!
-[Permalink](https://twitter.com/fernandeznorona/status/1511563100440383490) | 57 Me Gusta | 19 Retweets
+Nunca me han intimidado ese tipo de represalias e injerencia majadera que tú celebras. Como tú estás acostumbrado a ser un juguete del gobierno de Estados Unidos crees que todos funcionamos de la misma manera, triste y lamentable ser.
+[Permalink](https://twitter.com/fernandeznorona/status/1511766803575459847) | 22 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 20:29:23
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2022 a las 10:04:27
 *****
-Por fin terminé de regresar todas las llamadas de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1511561684271386624) | 70 Me Gusta | 2 Retweets
+Naa, acudí a la torre Trump a protestar contra el muro que pretendía construir éste. Él tomó protesta el 20 de enero de 2017 y yo le protesté el cinco del mismo mes, a riesgo de que me cancelaran la visa. No tenía cargo ni respaldo alguno.
+[Permalink](https://twitter.com/fernandeznorona/status/1511766800505126917) | 13 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 19:19:49
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2022 a las 09:59:33
 *****
-Resulta que @RepGonzalez es un subnormal.
-[Permalink](https://twitter.com/fernandeznorona/status/1511544175573012485) | 65 Me Gusta | 13 Retweets
+Se llama a corrupción, chayote es un eufemismo para no decirle a las cosas por su nombre.
+[Permalink](https://twitter.com/fernandeznorona/status/1511765570756218883) | 11 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 19:19:48
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2022 a las 09:52:50
 *****
-Oye @DoliaEstevez, la lista que difundes tiene por lo menos diez exdiputados federales, Uno de ellos ya falleció, Raúl Sánchez Barrales. Hasta aún prófugo y se fue al PRI incluyen, le dicen Huacas pero es Huacus. Podría ser Huacalas, aunque se escribe guácalas. @RepGonzalez
-[Permalink](https://twitter.com/fernandeznorona/status/1511544173819740161) | 177 Me Gusta | 62 Retweets
+Oye botijón, no sabía que además de ser monero eras ideólogo y asesor político. Eres un as no valorado por la derecha mexicana. Deberías lanzarte como su candidato a la presidencia de la República, @CartonCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1511763876953604101) | 37 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 19:16:33
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2022 a las 09:48:56
 *****
-Oye @RepGonzalez, la lista que le enviaste a @SecBlinken incluye a no menos de 10 ex diputados federales, dentro de ellos a un compañero que ya falleció, Raúl Sánchez Barrales. Tu torpeza es solo del tamaño de tu ignorancia: inconmensurable.
-[Permalink](https://twitter.com/fernandeznorona/status/1511543352679931904) | 189 Me Gusta | 41 Retweets
+Ya sólo falta que desde Estados Unidos  nos amenacen a los legisladores que votaremos en favor de la reforma constitucional en materia eléctrica. Parece que no se han enterado que somos una nación independiente y soberana.
+[Permalink](https://twitter.com/fernandeznorona/status/1511762896472182806) | 208 Me Gusta | 57 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 13:48:48
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 20:35:01
 *****
-No bueno, @El_Universal_Mx diciendo que solicito ayuda por amenaza de cancelar visas. Ahí la llevan. Exijo respeto a nuestra tarea institucional, ninguna ayuda.
-[Permalink](https://twitter.com/fernandeznorona/status/1511460872455180299) | 154 Me Gusta | 37 Retweets
+Oye subnormal, tu héroe @RepGonzalez pide que le retiren la visa a un ex diputado ya fallecido -Raúl Sánchez Barrales- y a por lo menos diez exlegisladores de la LXIV legislatura. ¡Brillante como tú!
+[Permalink](https://twitter.com/fernandeznorona/status/1511563100440383490) | 46 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 11:35:20
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 20:29:23
 *****
-No, no la gente imperialista. La vida de todo ser humano es valiosa. Pero a los paniaguados, sólo les interesa cuando el imperio estadounidense se los ordena.
-[Permalink](https://twitter.com/fernandeznorona/status/1511427286112907270) | 68 Me Gusta | 15 Retweets
+Por fin terminé de regresar todas las llamadas de hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1511561684271386624) | 57 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 11:33:51
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 19:19:49
 *****
-“Pro-rusos”, ahora resulta que atender tu tarea institucional de la creación de grupos de amistad es una actividad prorrusa. Lo menos que deberías hacer es realizar tu tarea de periodista ¿o eres pro-yanqui?
-[Permalink](https://twitter.com/fernandeznorona/status/1511426912287182857) | 177 Me Gusta | 50 Retweets
+Resulta que @RepGonzalez es un subnormal.
+[Permalink](https://twitter.com/fernandeznorona/status/1511544175573012485) | 53 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 11:13:13
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 19:19:48
 *****
-Es al revés, gaznápiro, evitas que después de servir a la Patria, se vayan en su contra como tu amado #TomandanteBorolas alias @FelipeCalderon. Aunque hay que reconocer que el usurpador nunca sirvió a la Patria, @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1511421718702788615) | 70 Me Gusta | 26 Retweets
+Oye @DoliaEstevez, la lista que difundes tiene por lo menos diez exdiputados federales, Uno de ellos ya falleció, Raúl Sánchez Barrales. Hasta aún prófugo y se fue al PRI incluyen, le dicen Huacas pero es Huacus. Podría ser Huacalas, aunque se escribe guácalas. @RepGonzalez
+[Permalink](https://twitter.com/fernandeznorona/status/1511544173819740161) | 138 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 11:06:42
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2022 a las 19:16:33
 *****
-RT @LJyDMX: El Diputado @fernandeznorona, informó el lamentable fallecimiento de José Arturo López Cándido, quien fuera Legislador por el P…
-[Permalink](https://twitter.com/fernandeznorona/status/1511420078209781761) | 0 Me Gusta | 21 Retweets
+Oye @RepGonzalez, la lista que le enviaste a @SecBlinken incluye a no menos de 10 ex diputados federales, dentro de ellos a un compañero que ya falleció, Raúl Sánchez Barrales. Tu torpeza es solo del tamaño de tu ignorancia: inconmensurable.
+[Permalink](https://twitter.com/fernandeznorona/status/1511543352679931904) | 173 Me Gusta | 39 Retweets

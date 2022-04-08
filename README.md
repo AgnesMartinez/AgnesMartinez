@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 20:24:21
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 08:44:58
 *****
-RT @NachoMierV: Quiero informarles que desafortunadamente he sido víctima de hackeo en mi celular terminación 2800. Les pido ignorar cualqu…
-[Permalink](https://twitter.com/fernandeznorona/status/1512285192580317191) | 0 Me Gusta | 56 Retweets
+Ahora el que andas apeñado eres tú. La chimoltrufia eres tú,  o la @SCJN. La ley es constitucional, aunque no te guste. @SergioSarmiento no entiende, que alguien le explique.
+[Permalink](https://twitter.com/fernandeznorona/status/1512471576079486976) | 52 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 20:23:13
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 08:42:25
 *****
-RT @Omar_Guante: Un día como hoy 7 de abril, pero de hace 17 años, se realizaba uno de los actos que más han dañado a nuestra democracia, d…
-[Permalink](https://twitter.com/fernandeznorona/status/1512284909234180099) | 0 Me Gusta | 17 Retweets
+La señora @iberdrola ha hablado. @Mzavalagc es de una desvergüenza monumental.
+[Permalink](https://twitter.com/fernandeznorona/status/1512470933382090752) | 109 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 20:02:40
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 08:35:25
 *****
-RT @Helioflores_mex: CARTÓN DEL RECUERDO 
-Publicado en El Universal el 23 de febrero de 2021, con el título “Visitante “
-[Permalink](https://twitter.com/fernandeznorona/status/1512279737770680324) | 0 Me Gusta | 554 Retweets
+Creo que haré un poco de Home Office.
+[Permalink](https://twitter.com/fernandeznorona/status/1512469173326295050) | 47 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 20:02:15
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 08:35:03
 *****
-RT @Claudiashein: A 17 años del desafuero seguimos diciendo: Sí, es un honor… 🙌🏼
-[Permalink](https://twitter.com/fernandeznorona/status/1512279632694984714) | 0 Me Gusta | 3,120 Retweets
+RT @manuel_rdgn: En 2021 presenté ante el pleno de la @Mx_Diputados el dictamen de la iniciativa de Ley de la Industria Eléctrica (#LIE).…
+[Permalink](https://twitter.com/fernandeznorona/status/1512469078627307522) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 19:58:09
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 08:34:33
 *****
-Francamente no comparto la percepción de quienes celebran la decisión de la @SCJN. Cuatro valientes frente a una pandilla de canallas. Ese es el resultado de la votación pospuesta para permitir mayor cabildeo de las empresas privadas extranjeras. Donde dice cabildeo, léase compra
-[Permalink](https://twitter.com/fernandeznorona/status/1512278597528334337) | 244 Me Gusta | 70 Retweets
+@tmrogelio Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1512468954127732745) | 0 Me Gusta | 0 Retweets

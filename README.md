@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 16:31:46
+**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 20:24:21
 *****
-8886 en Facebook y, 11, 175 en YouTube
-[Permalink](https://twitter.com/fernandeznorona/status/1512226659230957569) | 11 Me Gusta | 0 Retweets
+RT @NachoMierV: Quiero informarles que desafortunadamente he sido víctima de hackeo en mi celular terminación 2800. Les pido ignorar cualqu…
+[Permalink](https://twitter.com/fernandeznorona/status/1512285192580317191) | 0 Me Gusta | 54 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 12:05:20
+**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 20:23:13
 *****
-Por fin lo logramos: pasando Semana Santa van al pleno iniciativas de prohibir el uso de trailers de doble remolque y cancelar el horario de verano.
-[Permalink](https://twitter.com/fernandeznorona/status/1512159609083023371) | 1,983 Me Gusta | 573 Retweets
+RT @Omar_Guante: Un día como hoy 7 de abril, pero de hace 17 años, se realizaba uno de los actos que más han dañado a nuestra democracia, d…
+[Permalink](https://twitter.com/fernandeznorona/status/1512284909234180099) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 06:55:29
+**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 20:02:40
 *****
-Iba a ir a caminar a la montaña, pero tengo siete hernias en las cervicales. Hay malos días, hoy fue uno de ellos. Y eso que todavía es de mañana, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1512081633087614995) | 547 Me Gusta | 55 Retweets
+RT @Helioflores_mex: CARTÓN DEL RECUERDO 
+Publicado en El Universal el 23 de febrero de 2021, con el título “Visitante “
+[Permalink](https://twitter.com/fernandeznorona/status/1512279737770680324) | 0 Me Gusta | 454 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-04-2022 a las 20:05:18
+**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 20:02:15
 *****
-A dormir, me vine a Pueblo quieto y mañana deberé regresar a @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1511918012248600580) | 149 Me Gusta | 16 Retweets
+RT @Claudiashein: A 17 años del desafuero seguimos diciendo: Sí, es un honor… 🙌🏼
+[Permalink](https://twitter.com/fernandeznorona/status/1512279632694984714) | 0 Me Gusta | 2,826 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-04-2022 a las 19:33:23
+**Fernández Noroña** (**@fernandeznorona**) • 07-04-2022 a las 19:58:09
 *****
-RT @Nubia_SCG: “Que se oiga lejos y que se oiga fuerte: Somos una nación soberana independiente y no aceptamos ninguna presión del gobierno…
-[Permalink](https://twitter.com/fernandeznorona/status/1511909977291644930) | 0 Me Gusta | 100 Retweets
+Francamente no comparto la percepción de quienes celebran la decisión de la @SCJN. Cuatro valientes frente a una pandilla de canallas. Ese es el resultado de la votación pospuesta para permitir mayor cabildeo de las empresas privadas extranjeras. Donde dice cabildeo, léase compra
+[Permalink](https://twitter.com/fernandeznorona/status/1512278597528334337) | 200 Me Gusta | 56 Retweets

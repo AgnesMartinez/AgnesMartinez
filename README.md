@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 08:44:58
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 16:20:18
 *****
-Ahora el que andas apeñado eres tú. La chimoltrufia eres tú,  o la @SCJN. La ley es constitucional, aunque no te guste. @SergioSarmiento no entiende, que alguien le explique.
-[Permalink](https://twitter.com/fernandeznorona/status/1512471576079486976) | 52 Me Gusta | 18 Retweets
+16,048 en Facebook y, 11,175 en YouTube. No le hallo la manera de hacer captura de pantalla en Motorola.
+[Permalink](https://twitter.com/fernandeznorona/status/1512586162153603077) | 14 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 08:42:25
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 14:33:06
 *****
-La señora @iberdrola ha hablado. @Mzavalagc es de una desvergüenza monumental.
-[Permalink](https://twitter.com/fernandeznorona/status/1512470933382090752) | 109 Me Gusta | 29 Retweets
+RT @manuel_rdgn: ¡MÉXICO ES PRIMERO! 🇲🇽
+
+
+Juntos estamos haciendo historia, seguimos avanzando para aprobar la #ReformaEléctrica. Lograremos…
+[Permalink](https://twitter.com/fernandeznorona/status/1512559186999230481) | 0 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 08:35:25
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 14:32:40
 *****
-Creo que haré un poco de Home Office.
-[Permalink](https://twitter.com/fernandeznorona/status/1512469173326295050) | 47 Me Gusta | 4 Retweets
+RT @Archi_Traveler: Istanbul, Turkey 🇹🇷
+[Permalink](https://twitter.com/fernandeznorona/status/1512559075967574018) | 0 Me Gusta | 74 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 08:35:03
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 14:26:50
 *****
-RT @manuel_rdgn: En 2021 presenté ante el pleno de la @Mx_Diputados el dictamen de la iniciativa de Ley de la Industria Eléctrica (#LIE).…
-[Permalink](https://twitter.com/fernandeznorona/status/1512469078627307522) | 0 Me Gusta | 12 Retweets
+¿Cómo va tu servilismo con EEUU?
+[Permalink](https://twitter.com/fernandeznorona/status/1512557606484721665) | 49 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 08:34:33
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 14:23:25
 *****
-@tmrogelio Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1512468954127732745) | 0 Me Gusta | 0 Retweets
+Siempre les platicaba de “Bichos”.
+[Permalink](https://twitter.com/fernandeznorona/status/1512556750771216389) | 26 Me Gusta | 8 Retweets

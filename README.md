@@ -1,27 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 18:54:37
+**Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 09:57:25
 *****
-RT @SinLinea_Mx: Vaya troleada de @Claudiashein a Margarita Zavala 😂
-"Está muy preocupada porque esta ley (eléctrica) no la redactó Iberdro…
-[Permalink](https://twitter.com/fernandeznorona/status/1512624996824326151) | 0 Me Gusta | 984 Retweets
+RT @betocadiz: Con dedicatoria especial para todos aquellos que tienen el cinismo de presumir su voto en contra del interés de la patria.
+H…
+[Permalink](https://twitter.com/fernandeznorona/status/1512852193920970752) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 18:24:57
+**Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 09:56:54
 *****
-RT @brunosgarzini: Robo y pillaje; la Unión Europea "congeló" $32 mil millones en activos de personas y empresas rusas. Se incautó barcos,…
-[Permalink](https://twitter.com/fernandeznorona/status/1512617531634335749) | 0 Me Gusta | 2,595 Retweets
+Erario, y todo erario es público.
+[Permalink](https://twitter.com/fernandeznorona/status/1512852064509960192) | 12 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 18:21:31
+**Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 09:55:55
 *****
-El señor tlacuache, Lala Lala Lala….
-[Permalink](https://twitter.com/fernandeznorona/status/1512616666894589960) | 93 Me Gusta | 5 Retweets
+@rubengluengas @laoctavadigital Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1512851817830379522) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 18:20:43
+**Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 07:01:34
 *****
-Aquí se ve mejor el señor tlacuache.
-[Permalink](https://twitter.com/fernandeznorona/status/1512616466306244608) | 158 Me Gusta | 10 Retweets
+Se amargó @c_cardenas_s.
+[Permalink](https://twitter.com/fernandeznorona/status/1512807941140672512) | 52 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2022 a las 18:20:03
+**Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 07:00:45
 *****
-El tlacuache cenando.
-[Permalink](https://twitter.com/fernandeznorona/status/1512616298194296834) | 56 Me Gusta | 3 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1512807735959572489) | 70 Me Gusta | 13 Retweets

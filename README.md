@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 08:58:01
+*****
+RT @ComunicacionPS: "Somos una nación independiente y soberana [...] Y ningún legislador, ni gobierno extranjero, nos va a venir a decir có…
+[Permalink](https://twitter.com/fernandeznorona/status/1513199633216028682) | 0 Me Gusta | 18 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 08:55:44
+*****
+RT @kolectiVOZ: #ATENCION | ¡JORGE GLAS EN LIBERTAD!
+Por la señal en vivo de @kolectiVOZ pudimos apreciar emocionantes muestras de cariño a…
+[Permalink](https://twitter.com/fernandeznorona/status/1513199062106976258) | 0 Me Gusta | 75 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 07:40:06
+*****
+Un éxito la consulta. Quise votar en la casilla especial de Cuernavaca y hay como cuatro horas de fila. Iré a votar a mi casilla.
+[Permalink](https://twitter.com/fernandeznorona/status/1513180026073722884) | 807 Me Gusta | 147 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 06:46:39
+*****
+“La democracia… se trata de la correlación entre la libertad y el compromiso”. “La democracia implica, siempre, un compromiso”. Willy Brandt.
+[Permalink](https://twitter.com/fernandeznorona/status/1513166573342580736) | 59 Me Gusta | 12 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 19:57:17
 *****
 Pero me equivoqué, es @MotorolaMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1513003158020124675) | 23 Me Gusta | 2 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 19:31:32
-*****
-Me equivoqué. Una disculpa al @INEMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1512996674817331205) | 253 Me Gusta | 38 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 19:31:09
-*****
-Ubica tu casilla. Le ofrezco una disculpa al ⁦@INEMexico⁩. En mi descargo, no vi bien el número de la sección electoral.
-[Permalink](https://twitter.com/fernandeznorona/status/1512996578704863234) | 65 Me Gusta | 15 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 16:13:21
-*****
-9724 en Facebook y 10,125 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1512946801925509121) | 48 Me Gusta | 4 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 12:27:26
-*****
-RT @rubengluengas: DECADENCIA Y DEPRAVACIÓN DE OCCIDENTE | ¿POR QUÉ TANTO ODIO A PUTIN?
-[Permalink](https://twitter.com/fernandeznorona/status/1512889947769901057) | 0 Me Gusta | 70 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1513003158020124675) | 31 Me Gusta | 4 Retweets

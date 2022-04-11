@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 08:58:01
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 16:14:46
 *****
-RT @ComunicacionPS: "Somos una nación independiente y soberana [...] Y ningún legislador, ni gobierno extranjero, nos va a venir a decir có…
-[Permalink](https://twitter.com/fernandeznorona/status/1513199633216028682) | 0 Me Gusta | 18 Retweets
+Otro que con el pretexto de la consulta, confunde la plaza de Leandro Valle con estacionamiento ⁦@UCS_GCDMX⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1513309544943808519) | 31 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 08:55:44
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 16:12:25
 *****
-RT @kolectiVOZ: #ATENCION | ¡JORGE GLAS EN LIBERTAD!
-Por la señal en vivo de @kolectiVOZ pudimos apreciar emocionantes muestras de cariño a…
-[Permalink](https://twitter.com/fernandeznorona/status/1513199062106976258) | 0 Me Gusta | 75 Retweets
+RT @jgnaredo: ¿Se atreverán @lorenzocordovav y sus aliados a anular el ejercicio de #RevocaciónDeMandato, que resultó una fiesta democrátic…
+[Permalink](https://twitter.com/fernandeznorona/status/1513308956181020674) | 0 Me Gusta | 529 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 07:40:06
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 16:05:34
 *****
-Un éxito la consulta. Quise votar en la casilla especial de Cuernavaca y hay como cuatro horas de fila. Iré a votar a mi casilla.
-[Permalink](https://twitter.com/fernandeznorona/status/1513180026073722884) | 807 Me Gusta | 147 Retweets
+42,478 en Facebook y, 19,007 en YouTube. Extraordinarios números.
+[Permalink](https://twitter.com/fernandeznorona/status/1513307231684603907) | 53 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 06:46:39
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 14:55:15
 *****
-“La democracia… se trata de la correlación entre la libertad y el compromiso”. “La democracia implica, siempre, un compromiso”. Willy Brandt.
-[Permalink](https://twitter.com/fernandeznorona/status/1513166573342580736) | 59 Me Gusta | 12 Retweets
+RT @ItzelHermida: 🔥 Listos para iniciar el proceso de #RevocacionDeMandato, acá desde el Distrito Federal 4 en #Iztapalapa representado por…
+[Permalink](https://twitter.com/fernandeznorona/status/1513289536180170752) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-04-2022 a las 19:57:17
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 14:32:53
 *****
-Pero me equivoqué, es @MotorolaMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1513003158020124675) | 31 Me Gusta | 4 Retweets
+RT @FedericoArreola: Impresionante la participación en la consulta de revocación en un municipio de Sinaloa
+[Permalink](https://twitter.com/fernandeznorona/status/1513283908732801026) | 0 Me Gusta | 880 Retweets

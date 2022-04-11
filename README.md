@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 19:22:55
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 09:51:23
 *****
-Más del 90% apoya la permanencia del compañero presidente @lopezobrador_. Digan misa derechosos, porque en realidad arden de rabia. Su estrategia de hacer el vacío fracaso estrepitosamente.
-[Permalink](https://twitter.com/fernandeznorona/status/1513356898061504512) | 1,136 Me Gusta | 226 Retweets
+RT @KyleSkynet: Después de ayer se confirma que el @INEMexico les hace ganar las elecciones a la derecha.
+Esto desde 2006.
+Urge eliminarlo…
+[Permalink](https://twitter.com/fernandeznorona/status/1513575453763813382) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 19:02:39
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 09:51:13
 *****
-No me extrañan los comentarios de los medios, me extrañaría que por una vez en su vida hablaran con verdad.
-[Permalink](https://twitter.com/fernandeznorona/status/1513351794411376640) | 428 Me Gusta | 72 Retweets
+Y sí.
+[Permalink](https://twitter.com/fernandeznorona/status/1513575409853636621) | 12 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 19:01:57
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 09:50:47
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1513351620528160775) | 79 Me Gusta | 8 Retweets
+No creo. De hecho pretenden presentar como un fracaso a favor del día de ayer, la hazaña realizada por nuestro pueblo.
+[Permalink](https://twitter.com/fernandeznorona/status/1513575300642349056) | 19 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 19:01:16
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 09:46:26
 *****
-RT @IvanFrancoV: Con el luchador social más grande que admiro. Un hombre realmente de izquierda y patriota.
-
-
-\#NoroñaPresidente #Noroña2024…
-[Permalink](https://twitter.com/fernandeznorona/status/1513351447689187328) | 0 Me Gusta | 30 Retweets
+Ahí te hablan @Mzavalagc.
+[Permalink](https://twitter.com/fernandeznorona/status/1513574206801334277) | 42 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 19:00:59
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 09:45:46
 *****
-RT @Navegaciones: Se debe contrastar el 18% de participación que reporta el  @INEMexico con el 33% de cobertura que permitieron sus casilla…
-[Permalink](https://twitter.com/fernandeznorona/status/1513351376880996358) | 0 Me Gusta | 3,477 Retweets
+RT @KyleSkynet: El partido la que hay que vencer es al @INEMexico es lo único que le queda a los paniaguados
+\#INEcorruptisimo
+[Permalink](https://twitter.com/fernandeznorona/status/1513574041310973955) | 0 Me Gusta | 8 Retweets

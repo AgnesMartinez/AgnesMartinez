@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 16:14:46
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 19:22:55
 *****
-Otro que con el pretexto de la consulta, confunde la plaza de Leandro Valle con estacionamiento ⁦@UCS_GCDMX⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1513309544943808519) | 31 Me Gusta | 7 Retweets
+Más del 90% apoya la permanencia del compañero presidente @lopezobrador_. Digan misa derechosos, porque en realidad arden de rabia. Su estrategia de hacer el vacío fracaso estrepitosamente.
+[Permalink](https://twitter.com/fernandeznorona/status/1513356898061504512) | 982 Me Gusta | 197 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 16:12:25
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 19:02:39
 *****
-RT @jgnaredo: ¿Se atreverán @lorenzocordovav y sus aliados a anular el ejercicio de #RevocaciónDeMandato, que resultó una fiesta democrátic…
-[Permalink](https://twitter.com/fernandeznorona/status/1513308956181020674) | 0 Me Gusta | 529 Retweets
+No me extrañan los comentarios de los medios, me extrañaría que por una vez en su vida hablaran con verdad.
+[Permalink](https://twitter.com/fernandeznorona/status/1513351794411376640) | 378 Me Gusta | 63 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 16:05:34
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 19:01:57
 *****
-42,478 en Facebook y, 19,007 en YouTube. Extraordinarios números.
-[Permalink](https://twitter.com/fernandeznorona/status/1513307231684603907) | 53 Me Gusta | 3 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1513351620528160775) | 73 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 14:55:15
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 19:01:16
 *****
-RT @ItzelHermida: 🔥 Listos para iniciar el proceso de #RevocacionDeMandato, acá desde el Distrito Federal 4 en #Iztapalapa representado por…
-[Permalink](https://twitter.com/fernandeznorona/status/1513289536180170752) | 0 Me Gusta | 9 Retweets
+RT @IvanFrancoV: Con el luchador social más grande que admiro. Un hombre realmente de izquierda y patriota.
+
+
+\#NoroñaPresidente #Noroña2024…
+[Permalink](https://twitter.com/fernandeznorona/status/1513351447689187328) | 0 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 14:32:53
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2022 a las 19:00:59
 *****
-RT @FedericoArreola: Impresionante la participación en la consulta de revocación en un municipio de Sinaloa
-[Permalink](https://twitter.com/fernandeznorona/status/1513283908732801026) | 0 Me Gusta | 880 Retweets
+RT @Navegaciones: Se debe contrastar el 18% de participación que reporta el  @INEMexico con el 33% de cobertura que permitieron sus casilla…
+[Permalink](https://twitter.com/fernandeznorona/status/1513351376880996358) | 0 Me Gusta | 2,973 Retweets

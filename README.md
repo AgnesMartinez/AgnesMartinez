@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 09:51:23
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 16:02:27
 *****
-RT @KyleSkynet: Después de ayer se confirma que el @INEMexico les hace ganar las elecciones a la derecha.
-Esto desde 2006.
-Urge eliminarlo…
-[Permalink](https://twitter.com/fernandeznorona/status/1513575453763813382) | 0 Me Gusta | 9 Retweets
+27,628 en Facebook y, 12,679 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1513668833743151115) | 27 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 09:51:13
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 13:11:20
 *****
-Y sí.
-[Permalink](https://twitter.com/fernandeznorona/status/1513575409853636621) | 12 Me Gusta | 3 Retweets
+El mundo al revés: la oposición vota en contra de que se incluyan sus 12 puntos en las reservas promovidas por nosotros.
+[Permalink](https://twitter.com/fernandeznorona/status/1513625773403484173) | 278 Me Gusta | 64 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 09:50:47
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 13:06:59
 *****
-No creo. De hecho pretenden presentar como un fracaso a favor del día de ayer, la hazaña realizada por nuestro pueblo.
-[Permalink](https://twitter.com/fernandeznorona/status/1513575300642349056) | 19 Me Gusta | 4 Retweets
+… invirtieron 880,000 millones de pesos, de lo cual ya recuperaron la mitad y sólo invirtieron en realidad una cuarta parte. Con ello, pretenden quedarse con un mercado nacional de 6 billones 300,000 millones de pesos y una @CFEmx qué vale 7 billones 400,000 millones de pesos.
+[Permalink](https://twitter.com/fernandeznorona/status/1513624676089618440) | 56 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 09:46:26
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 13:06:58
 *****
-Ahí te hablan @Mzavalagc.
-[Permalink](https://twitter.com/fernandeznorona/status/1513574206801334277) | 42 Me Gusta | 15 Retweets
+Naa, defienden que sigan sangrando el país con 490,000 millones de pesos al año, con una @CFEmx descuartizada. Con mentiras como que generan energías limpias y que invierten en el país. Generan el 56% del bióxido de carbono, el 83% de su energía con petrolíferos y…
+[Permalink](https://twitter.com/fernandeznorona/status/1513624673619255296) | 82 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 09:45:46
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 13:01:03
 *****
-RT @KyleSkynet: El partido la que hay que vencer es al @INEMexico es lo único que le queda a los paniaguados
-\#INEcorruptisimo
-[Permalink](https://twitter.com/fernandeznorona/status/1513574041310973955) | 0 Me Gusta | 8 Retweets
+Nop. Ya presentamos las reservas. Están firmadas por nosotros y no por la oposición. Incluido el tema de la autonomía de la CRE, con lo cual por cierto no estoy de acuerdo
+[Permalink](https://twitter.com/fernandeznorona/status/1513623185538830344) | 41 Me Gusta | 13 Retweets

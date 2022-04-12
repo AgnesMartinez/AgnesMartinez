@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 16:02:27
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 20:04:04
 *****
-27,628 en Facebook y, 12,679 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1513668833743151115) | 27 Me Gusta | 2 Retweets
+Es una diputada del @PRDMexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1513729638983512068) | 145 Me Gusta | 73 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 13:11:20
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 19:56:45
 *****
-El mundo al revés: la oposición vota en contra de que se incluyan sus 12 puntos en las reservas promovidas por nosotros.
-[Permalink](https://twitter.com/fernandeznorona/status/1513625773403484173) | 278 Me Gusta | 64 Retweets
+Ya ni les dije pero desde hace una hora llegué a Pueblo quieto.
+[Permalink](https://twitter.com/fernandeznorona/status/1513727796962603010) | 115 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 13:06:59
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 17:27:53
 *****
-… invirtieron 880,000 millones de pesos, de lo cual ya recuperaron la mitad y sólo invirtieron en realidad una cuarta parte. Con ello, pretenden quedarse con un mercado nacional de 6 billones 300,000 millones de pesos y una @CFEmx qué vale 7 billones 400,000 millones de pesos.
-[Permalink](https://twitter.com/fernandeznorona/status/1513624676089618440) | 56 Me Gusta | 23 Retweets
+Precaria no, somos amplísima mayoría.
+[Permalink](https://twitter.com/fernandeznorona/status/1513690336190767109) | 94 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 13:06:58
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 17:24:48
 *****
-Naa, defienden que sigan sangrando el país con 490,000 millones de pesos al año, con una @CFEmx descuartizada. Con mentiras como que generan energías limpias y que invierten en el país. Generan el 56% del bióxido de carbono, el 83% de su energía con petrolíferos y…
-[Permalink](https://twitter.com/fernandeznorona/status/1513624673619255296) | 82 Me Gusta | 34 Retweets
+Mañana transmitiré a las seis de la tarde desde Pueblo quieto. De hecho, en este momento salgo para allá.
+[Permalink](https://twitter.com/fernandeznorona/status/1513689559313305602) | 69 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 13:01:03
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 17:23:10
 *****
-Nop. Ya presentamos las reservas. Están firmadas por nosotros y no por la oposición. Incluido el tema de la autonomía de la CRE, con lo cual por cierto no estoy de acuerdo
-[Permalink](https://twitter.com/fernandeznorona/status/1513623185538830344) | 41 Me Gusta | 13 Retweets
+Digo lo anterior porque la discusión de la reforma constitucional en materia eléctrica será el domingo 17 de abril a las 11 de la mañana. La sesión de publicidad será a las 10 de la mañana del mismo domingo.
+[Permalink](https://twitter.com/fernandeznorona/status/1513689148833554433) | 131 Me Gusta | 32 Retweets

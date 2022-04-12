@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 20:04:04
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2022 a las 09:49:03
 *****
-Es una diputada del @PRDMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1513729638983512068) | 182 Me Gusta | 91 Retweets
+RT @Navegaciones: Antes, los buitres energéticos transnacionales tenían a @FelipeCalderon y a Peña Nieto como cabilderos titulares. Hoy man…
+[Permalink](https://twitter.com/fernandeznorona/status/1513937254594584577) | 0 Me Gusta | 406 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 19:56:45
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2022 a las 09:43:34
 *****
-Ya ni les dije pero desde hace una hora llegué a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1513727796962603010) | 142 Me Gusta | 12 Retweets
+¡Acusan raro! Un cabildero italiano con @EdnaDiazMx, ocupando éste, orondamente una curul.
+[Permalink](https://twitter.com/fernandeznorona/status/1513935872617558031) | 33 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 17:27:53
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2022 a las 09:41:30
 *****
-Precaria no, somos amplísima mayoría.
-[Permalink](https://twitter.com/fernandeznorona/status/1513690336190767109) | 99 Me Gusta | 22 Retweets
+RT @chioreya: EL INE solo gasta millones y NO TRABAJA por la democracia !
+[Permalink](https://twitter.com/fernandeznorona/status/1513935352209285124) | 0 Me Gusta | 82 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 17:24:48
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2022 a las 09:40:14
 *****
-Mañana transmitiré a las seis de la tarde desde Pueblo quieto. De hecho, en este momento salgo para allá.
-[Permalink](https://twitter.com/fernandeznorona/status/1513689559313305602) | 73 Me Gusta | 10 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1513935036755726339) | 30 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2022 a las 17:23:10
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2022 a las 09:38:51
 *****
-Digo lo anterior porque la discusión de la reforma constitucional en materia eléctrica será el domingo 17 de abril a las 11 de la mañana. La sesión de publicidad será a las 10 de la mañana del mismo domingo.
-[Permalink](https://twitter.com/fernandeznorona/status/1513689148833554433) | 153 Me Gusta | 37 Retweets
+Catrina.
+[Permalink](https://twitter.com/fernandeznorona/status/1513934684773826561) | 14 Me Gusta | 0 Retweets

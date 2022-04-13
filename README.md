@@ -1,26 +1,33 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2022 a las 19:02:03
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 09:59:06
 *****
-Miren aquellos vagos.
-[Permalink](https://twitter.com/fernandeznorona/status/1514076421345497094) | 74 Me Gusta | 7 Retweets
+Me da la impresión que el fuego ya se les salió de control @SSESdeSSYPC
+[Permalink](https://twitter.com/fernandeznorona/status/1514302170149052418) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2022 a las 18:46:03
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 09:59:06
 *****
-RT @tequixquiac: #ReformaElectricaVa #ReformaElectrica
-[Permalink](https://twitter.com/fernandeznorona/status/1514072393148514304) | 0 Me Gusta | 41 Retweets
+Prendieron fuego en la carretera Cuernavaca-México del lado izquierdo justo antes de llegar a la Pera y en la México-Cuernavaca, del lado derecho justo antes de llegar a la Pera.
+[Permalink](https://twitter.com/fernandeznorona/status/1514302169046003720) | 20 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2022 a las 18:43:42
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 06:59:00
 *****
-Debería darte mucha tristeza ser tan miserable y tan embustero.
-[Permalink](https://twitter.com/fernandeznorona/status/1514071802590511107) | 204 Me Gusta | 29 Retweets
+Lo terminé. Muy bueno, muy recomendable.
+[Permalink](https://twitter.com/fernandeznorona/status/1514256846210715648) | 57 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2022 a las 16:40:20
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 06:17:40
 *****
-19,471 en Facebook y, 15,928 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1514040755710566400) | 47 Me Gusta | 11 Retweets
+RT @rosendomarind: Gerardo Fernández Noroña
+@fernandeznorona en #Chalco
+Viernes 29 de abril
+16 hrs. Palacio Municipal
+El movimiento avanza…
+[Permalink](https://twitter.com/fernandeznorona/status/1514246443632111622) | 0 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2022 a las 14:45:35
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 06:15:19
 *****
-Naa, los abogados pueden defender un punto y su contrario, pero en este caso no tienes razón. Saludos.
-[Permalink](https://twitter.com/fernandeznorona/status/1514011880599261193) | 54 Me Gusta | 9 Retweets
+RT @abrahamendieta: Confirma la empresa que efectivamente, el cabildero de ENEL asesora al PRI, PAN, PRD. 
+
+
+Un tipo que cobra de la empresa…
+[Permalink](https://twitter.com/fernandeznorona/status/1514245855355805700) | 0 Me Gusta | 3,897 Retweets

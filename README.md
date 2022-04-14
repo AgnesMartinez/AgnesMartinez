@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 16:26:16
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 20:00:47
 *****
-23,410 en Facebook y, 18,416 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1514399603684257792) | 21 Me Gusta | 3 Retweets
+Ya estoy en Pueblo quieto. A dormir, que mañana quiero ir a la montaña.
+[Permalink](https://twitter.com/fernandeznorona/status/1514453588440928269) | 66 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 10:55:23
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 19:53:06
 *****
-Tuve que venir al defectuoso para ir al dentista.
-[Permalink](https://twitter.com/fernandeznorona/status/1514316332787019781) | 73 Me Gusta | 5 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1514451653566644227) | 37 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 09:59:06
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 19:52:46
 *****
-Me da la impresión que el fuego ya se les salió de control @SSESdeSSYPC
-[Permalink](https://twitter.com/fernandeznorona/status/1514302170149052418) | 26 Me Gusta | 6 Retweets
+Ahí te hablan @EdnaDiazMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1514451571236556811) | 87 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 09:59:06
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 19:52:17
 *****
-Prendieron fuego en la carretera Cuernavaca-México del lado izquierdo justo antes de llegar a la Pera y en la México-Cuernavaca, del lado derecho justo antes de llegar a la Pera.
-[Permalink](https://twitter.com/fernandeznorona/status/1514302169046003720) | 61 Me Gusta | 23 Retweets
+¿Lo de lesiva reforma eléctrica lo dice @Paolo_Salerno, @EdnaDiazMx?
+[Permalink](https://twitter.com/fernandeznorona/status/1514451451073998855) | 35 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 06:59:00
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 19:48:04
 *****
-Lo terminé. Muy bueno, muy recomendable.
-[Permalink](https://twitter.com/fernandeznorona/status/1514256846210715648) | 72 Me Gusta | 14 Retweets
+RT @abrahamendieta: @EdnaDiazMx Falso, aquí está el oficio que demuestra que ustedes lo metieron, para “asistirte” personalmente a ti: http…
+[Permalink](https://twitter.com/fernandeznorona/status/1514450388728135684) | 0 Me Gusta | 3,097 Retweets

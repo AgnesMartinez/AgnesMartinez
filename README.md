@@ -1,26 +1,31 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 20:00:47
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 09:58:02
 *****
-Ya estoy en Pueblo quieto. A dormir, que mañana quiero ir a la montaña.
-[Permalink](https://twitter.com/fernandeznorona/status/1514453588440928269) | 76 Me Gusta | 4 Retweets
+RT @epigmenioibarra: Cuando se trata de los intereses de la Nación no hay medias tintas. A quien da la espalda a las mayorías y convierte l…
+[Permalink](https://twitter.com/fernandeznorona/status/1514664289960927233) | 0 Me Gusta | 2,168 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 19:53:06
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 09:54:31
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1514451653566644227) | 44 Me Gusta | 5 Retweets
+RT @EVIDEGARAY: Sorprendidos de Twitter: 
+ 
+-El PRI me parece una mierda 
+-Los demás partidos también 
+-Siempre he sido de izquierda 
+-He v…
+[Permalink](https://twitter.com/fernandeznorona/status/1514663404543348736) | 0 Me Gusta | 320 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 19:52:46
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 09:53:52
 *****
-Ahí te hablan @EdnaDiazMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1514451571236556811) | 103 Me Gusta | 41 Retweets
+RT @jorgemoralesoax: Comparte 👇
+[Permalink](https://twitter.com/fernandeznorona/status/1514663243398135818) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 19:52:17
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 09:24:29
 *****
-¿Lo de lesiva reforma eléctrica lo dice @Paolo_Salerno, @EdnaDiazMx?
-[Permalink](https://twitter.com/fernandeznorona/status/1514451451073998855) | 40 Me Gusta | 8 Retweets
+Aunque las notas al pie de página dicen que la frase es de William Shakespeare: “Los cobardes mueren muchas veces antes; los valientes prueban la muerte solo una vez”, en Julio César.
+[Permalink](https://twitter.com/fernandeznorona/status/1514655847644815371) | 20 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2022 a las 19:48:04
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 09:18:04
 *****
-RT @abrahamendieta: @EdnaDiazMx Falso, aquí está el oficio que demuestra que ustedes lo metieron, para “asistirte” personalmente a ti: http…
-[Permalink](https://twitter.com/fernandeznorona/status/1514450388728135684) | 0 Me Gusta | 3,491 Retweets
+“El cobarde muere mil veces; el valiente, una sola vez”. Dryden citado por Borges.
+[Permalink](https://twitter.com/fernandeznorona/status/1514654230304509952) | 25 Me Gusta | 7 Retweets

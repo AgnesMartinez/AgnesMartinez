@@ -1,31 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 09:58:02
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 16:23:36
 *****
-RT @epigmenioibarra: Cuando se trata de los intereses de la Nación no hay medias tintas. A quien da la espalda a las mayorías y convierte l…
-[Permalink](https://twitter.com/fernandeznorona/status/1514664289960927233) | 0 Me Gusta | 2,168 Retweets
+¡Qué grave @UCS_GCDMX!
+[Permalink](https://twitter.com/fernandeznorona/status/1514761320134066178) | 5 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 09:54:31
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 16:22:58
 *****
-RT @EVIDEGARAY: Sorprendidos de Twitter: 
- 
--El PRI me parece una mierda 
--Los demás partidos también 
--Siempre he sido de izquierda 
--He v…
-[Permalink](https://twitter.com/fernandeznorona/status/1514663404543348736) | 0 Me Gusta | 320 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1514761162541473793) | 18 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 09:53:52
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 16:19:38
 *****
-RT @jorgemoralesoax: Comparte 👇
-[Permalink](https://twitter.com/fernandeznorona/status/1514663243398135818) | 0 Me Gusta | 8 Retweets
+Es compañero @mario_delgado y como cualquiera de nosotros tiene sus aciertos y sus errores. De cualquier manera lee el libro “La cancelación” de @JimenezEspriu.
+[Permalink](https://twitter.com/fernandeznorona/status/1514760321612791811) | 6 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 09:24:29
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 16:18:42
 *****
-Aunque las notas al pie de página dicen que la frase es de William Shakespeare: “Los cobardes mueren muchas veces antes; los valientes prueban la muerte solo una vez”, en Julio César.
-[Permalink](https://twitter.com/fernandeznorona/status/1514655847644815371) | 20 Me Gusta | 5 Retweets
+@Arman_doCA @lauralun03 @rikiricardof Votó.
+[Permalink](https://twitter.com/fernandeznorona/status/1514760085855166466) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 09:18:04
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 16:18:27
 *****
-“El cobarde muere mil veces; el valiente, una sola vez”. Dryden citado por Borges.
-[Permalink](https://twitter.com/fernandeznorona/status/1514654230304509952) | 25 Me Gusta | 7 Retweets
+@lauralun03 @rikiricardof @Arman_doCA Ha coqueteado.
+[Permalink](https://twitter.com/fernandeznorona/status/1514760025591451648) | 1 Me Gusta | 0 Retweets

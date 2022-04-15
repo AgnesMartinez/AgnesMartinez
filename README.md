@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 16:23:36
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 19:23:01
 *****
-¡Qué grave @UCS_GCDMX!
-[Permalink](https://twitter.com/fernandeznorona/status/1514761320134066178) | 5 Me Gusta | 4 Retweets
+Sería curioso: ¿me podrían decir en qué parte del presupuesto están destinado recursos para sus fideicomisos? @INEMexico
+[Permalink](https://twitter.com/fernandeznorona/status/1514806474731532297) | 100 Me Gusta | 70 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 16:22:58
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 19:18:34
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1514761162541473793) | 18 Me Gusta | 10 Retweets
+Me parece que la medición es incorrecta pues debería incluir la alianza PRI PAN PRD.
+[Permalink](https://twitter.com/fernandeznorona/status/1514805354936242180) | 25 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 16:19:38
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 19:13:38
 *****
-Es compañero @mario_delgado y como cualquiera de nosotros tiene sus aciertos y sus errores. De cualquier manera lee el libro “La cancelación” de @JimenezEspriu.
-[Permalink](https://twitter.com/fernandeznorona/status/1514760321612791811) | 6 Me Gusta | 3 Retweets
+Jejeje. Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1514804112092635141) | 17 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 16:18:42
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 19:01:42
 *****
-@Arman_doCA @lauralun03 @rikiricardof Votó.
-[Permalink](https://twitter.com/fernandeznorona/status/1514760085855166466) | 3 Me Gusta | 0 Retweets
+¿O es rata de campo?
+[Permalink](https://twitter.com/fernandeznorona/status/1514801109008674826) | 40 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 16:18:27
+**Fernández Noroña** (**@fernandeznorona**) • 14-04-2022 a las 18:57:32
 *****
-@lauralun03 @rikiricardof @Arman_doCA Ha coqueteado.
-[Permalink](https://twitter.com/fernandeznorona/status/1514760025591451648) | 1 Me Gusta | 0 Retweets
+Pobrecito tlacuache.
+[Permalink](https://twitter.com/fernandeznorona/status/1514800059585425409) | 20 Me Gusta | 4 Retweets

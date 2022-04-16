@@ -1,31 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2022 a las 18:40:43
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2022 a las 08:39:40
 *****
-RT @SupsipS: Otra vez una tragedia de un trailer y una caseta... @fernandeznorona no solo debe tratarse el tema de dobles remolques. Varias…
-[Permalink](https://twitter.com/fernandeznorona/status/1515158213854961668) | 0 Me Gusta | 22 Retweets
+Tu ideólogo, el honorabilídimo #TomandanteIberdrola alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1515369343865044995) | 30 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2022 a las 18:38:23
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2022 a las 08:38:02
 *****
-RT @LOVREGA: La investidura exige que las creencias religiosas se guarden en el cajón de los asuntos personales.
-[Permalink](https://twitter.com/fernandeznorona/status/1515157629852692481) | 0 Me Gusta | 40 Retweets
+Será curioso: ¿ya te dieron algún papelito, aunque sea para algún comercial, @RamirezClaudia_?
+[Permalink](https://twitter.com/fernandeznorona/status/1515368932034625537) | 25 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2022 a las 18:18:54
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2022 a las 08:30:28
 *****
-RT @rosendomarind: Gerardo Fernández Noroña (@fernandeznorona) en
-Neza
-Sábado 30 de abril
-12 hrs
-Parque del Pueblo
-(San Estebán esq. Glorie…
-[Permalink](https://twitter.com/fernandeznorona/status/1515152726497402890) | 0 Me Gusta | 39 Retweets
+Me informan que murió una giganta: doña Rosario Ibarra de Piedra. Amiga y compañera de lucha. Mi solidaridad para familiares y amigos. Un abrazo a @RosarioPiedraIb. Lamentabilísima pérdida, una guerrera.
+[Permalink](https://twitter.com/fernandeznorona/status/1515367030647668736) | 195 Me Gusta | 43 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2022 a las 16:53:52
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2022 a las 08:19:47
 *****
-Traidores al pueblo.
-[Permalink](https://twitter.com/fernandeznorona/status/1515131324029456389) | 285 Me Gusta | 140 Retweets
+Lo terminé. Es una curiosidad. A pesar de que Taracena adora a Vasconcelos, éste sale muy mal parado. Reaccionario, racista, prejuicioso. Creo que lo amargó el fraude electoral de 1929.
+[Permalink](https://twitter.com/fernandeznorona/status/1515364338785300481) | 31 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2022 a las 14:48:12
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2022 a las 06:57:56
 *****
-RT @rubengluengas: La policía ucraniana sigue mostrando sus métodos medievales de castigo: sin pruebas, sin juicio, ni condena, sin apelaci…
-[Permalink](https://twitter.com/fernandeznorona/status/1515099701498028034) | 0 Me Gusta | 304 Retweets
+RT @abrahamendieta: Desde que @alitomorenoc está al frente del PRI no solo no han ganado ninguna gubernatura, sino que han perdido 8, y en…
+[Permalink](https://twitter.com/fernandeznorona/status/1515343743834112012) | 0 Me Gusta | 1,750 Retweets

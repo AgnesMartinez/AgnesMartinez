@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 15:53:00
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 22:02:30
 *****
-En unos 10 minutos haré la video charla.
-[Permalink](https://twitter.com/fernandeznorona/status/1515840785970720770) | 343 Me Gusta | 39 Retweets
+Desecha.
+[Permalink](https://twitter.com/fernandeznorona/status/1515933771110961159) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 15:28:45
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 22:01:18
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1515834682155405318) | 128 Me Gusta | 25 Retweets
+RT @Sergeluna_S: He recibido iniciativa del Presidente @lopezobrador_ para reformar la Ley Minera, en donde se reconoce que el #Litio es pa…
+[Permalink](https://twitter.com/fernandeznorona/status/1515933471528652803) | 0 Me Gusta | 1,154 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 15:13:39
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 22:00:03
 *****
-Es tu opinión, yo tengo otros datos. Abur.
-[Permalink](https://twitter.com/fernandeznorona/status/1515830880752836608) | 120 Me Gusta | 15 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1515933155680825345) | 64 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 14:39:27
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 21:59:20
 *****
-@AmandaLPNorman @ferdelarosac Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1515822274254979078) | 1 Me Gusta | 0 Retweets
+Nuevamente vuelves a ser inexacta. Faltó una diputada del @PRDMexico. Para lo único que no eres inexacta es para servir a las empresas extranjeras de electricidad @Mzavalagc. Gracias a nuestra decencia pudiste estar en el debate y votar en contra de la patria.
+[Permalink](https://twitter.com/fernandeznorona/status/1515932974172315653) | 66 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 14:39:14
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 21:55:41
 *****
-Adelante.
-[Permalink](https://twitter.com/fernandeznorona/status/1515822221410934785) | 60 Me Gusta | 6 Retweets
+@xX_DarkAdria_Xx Dizque.
+[Permalink](https://twitter.com/fernandeznorona/status/1515932055980449792) | 3 Me Gusta | 0 Retweets

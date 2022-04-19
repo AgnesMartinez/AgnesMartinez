@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 16:24:17
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 20:53:46
 *****
-47,420 en Facebook y, 23,500 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1516211044988956673) | 57 Me Gusta | 9 Retweets
+¡Se me antojaron!
+[Permalink](https://twitter.com/fernandeznorona/status/1516278863168520192) | 66 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 14:52:49
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 20:50:24
 *****
-RT @rubengluengas: He aquí las palabras del diputado @fernandeznorona dirigidas a una opo$ición comprada.
-[Permalink](https://twitter.com/fernandeznorona/status/1516188027986628610) | 0 Me Gusta | 74 Retweets
+RT @chioreya: A estos traidores vendidos les debemos que la Reforma Eléctrica no haya pasado ……
+[Permalink](https://twitter.com/fernandeznorona/status/1516278013717012480) | 0 Me Gusta | 386 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 13:40:25
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 20:32:22
 *****
-Es decir, se pegó un tiro en la cabeza. Porque tienen en la cabeza en los pies.
-[Permalink](https://twitter.com/fernandeznorona/status/1516169806658953218) | 175 Me Gusta | 33 Retweets
+RT @snmaiznohaypai: ⁦@MovCiudadanoMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1516273478621663235) | 0 Me Gusta | 97 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 13:37:23
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 20:31:58
 *****
-RT @CanalCongreso: 🔴Con 298 votos a favor y 197 abstenciones, la Cámara de Diputados aprueba en lo general la #LeyMinera 
-
-
-🔸Continúa su dis…
-[Permalink](https://twitter.com/fernandeznorona/status/1516169043882897408) | 0 Me Gusta | 41 Retweets
+RT @AntonioAttolini: Esta es la cara de quien se burló de los coahuilenses, los engañó y estafó y ahora desde la Cámara de Diputados decidi…
+[Permalink](https://twitter.com/fernandeznorona/status/1516273375714463744) | 0 Me Gusta | 401 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 13:29:53
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 20:29:41
 *****
-Pues no tienen palabra, porque si votaron. @AccionNacional, @PRI_Nacional y @PRDMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1516167156605497344) | 82 Me Gusta | 17 Retweets
+Tiene el tiempo suficiente para sacarlo en comisiones y llevarlo al pleno.
+[Permalink](https://twitter.com/fernandeznorona/status/1516272800167866369) | 35 Me Gusta | 8 Retweets

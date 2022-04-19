@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 07:07:42
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 16:24:17
 *****
-RT @Monix139: Lo que la sektA desdeñó en 2021. 😔 @fernandeznorona llamó a votar por la coalición Juntos Hacemos Historia para que más curul…
-[Permalink](https://twitter.com/fernandeznorona/status/1516070973807726592) | 0 Me Gusta | 32 Retweets
+47,420 en Facebook y, 23,500 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1516211044988956673) | 57 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 22:02:30
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 14:52:49
 *****
-Desecha.
-[Permalink](https://twitter.com/fernandeznorona/status/1515933771110961159) | 63 Me Gusta | 7 Retweets
+RT @rubengluengas: He aquí las palabras del diputado @fernandeznorona dirigidas a una opo$ición comprada.
+[Permalink](https://twitter.com/fernandeznorona/status/1516188027986628610) | 0 Me Gusta | 74 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 22:01:18
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 13:40:25
 *****
-RT @Sergeluna_S: He recibido iniciativa del Presidente @lopezobrador_ para reformar la Ley Minera, en donde se reconoce que el #Litio es pa…
-[Permalink](https://twitter.com/fernandeznorona/status/1515933471528652803) | 0 Me Gusta | 2,593 Retweets
+Es decir, se pegó un tiro en la cabeza. Porque tienen en la cabeza en los pies.
+[Permalink](https://twitter.com/fernandeznorona/status/1516169806658953218) | 175 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 22:00:03
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 13:37:23
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1515933155680825345) | 241 Me Gusta | 47 Retweets
+RT @CanalCongreso: 🔴Con 298 votos a favor y 197 abstenciones, la Cámara de Diputados aprueba en lo general la #LeyMinera 
+
+
+🔸Continúa su dis…
+[Permalink](https://twitter.com/fernandeznorona/status/1516169043882897408) | 0 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2022 a las 21:59:20
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 13:29:53
 *****
-Nuevamente vuelves a ser inexacta. Faltó una diputada del @PRDMexico. Para lo único que no eres inexacta es para servir a las empresas extranjeras de electricidad @Mzavalagc. Gracias a nuestra decencia pudiste estar en el debate y votar en contra de la patria.
-[Permalink](https://twitter.com/fernandeznorona/status/1515932974172315653) | 273 Me Gusta | 73 Retweets
+Pues no tienen palabra, porque si votaron. @AccionNacional, @PRI_Nacional y @PRDMexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1516167156605497344) | 82 Me Gusta | 17 Retweets

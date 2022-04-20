@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 16:26:51
+**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 21:09:08
 *****
-32,074 en Facebook y, 18,247 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1516574079733710853) | 28 Me Gusta | 6 Retweets
+RT @vifex: La cara de los que sirven a intereses ajenos a la patria!!! Que no se nos olviden sus caras!!!
+[Permalink](https://twitter.com/fernandeznorona/status/1516645118073315335) | 0 Me Gusta | 52 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 14:46:15
+**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 20:57:34
 *****
-Muchas felicidades por su cumpleaños a @abrahamendieta. Un mexicano que le dio su chingada gana nacer en España, por más que le arda a la derecha.
-[Permalink](https://twitter.com/fernandeznorona/status/1516548759894708224) | 1,549 Me Gusta | 261 Retweets
+RT @rocioss: ⁦@alexisgaminomx⁩ #TraidoraAlaPatria
+[Permalink](https://twitter.com/fernandeznorona/status/1516642205796028417) | 0 Me Gusta | 467 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 14:44:46
+**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 20:53:24
 *****
-RT @Nubia_SCG: Mañana el #DesperdiciodeCurul va a “denunciar” a los responsables de compartir este cartel:
-
-
-Por favor, no lo compartan 🥺😏 c…
-[Permalink](https://twitter.com/fernandeznorona/status/1516548388828815362) | 0 Me Gusta | 327 Retweets
+RT @Archi_Traveler: Istanbul, Turkey 🇹🇷
+[Permalink](https://twitter.com/fernandeznorona/status/1516641157857660928) | 0 Me Gusta | 103 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 14:27:49
+**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 20:52:14
 *****
-Muy bien. Felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1516544122147856390) | 46 Me Gusta | 9 Retweets
+RT @balles72: Aquí la fina dama que sube a tribuna a gritar y manotear, sigue sin entender que YA NO SON LOS TEMPOS DE LA SIMULACIÓN, ya no…
+[Permalink](https://twitter.com/fernandeznorona/status/1516640863526563842) | 0 Me Gusta | 258 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 13:14:36
+**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 20:49:41
 *****
-RT @Helioflores_mex: OPOSICIÓN TRIUNFANTE.
-[Permalink](https://twitter.com/fernandeznorona/status/1516525698973941760) | 0 Me Gusta | 2,013 Retweets
+No.
+[Permalink](https://twitter.com/fernandeznorona/status/1516640223601512453) | 96 Me Gusta | 16 Retweets

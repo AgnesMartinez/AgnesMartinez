@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 09:34:19
+**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 16:26:51
 *****
-Tengo que pasar del modo Pedro Infante al modo Bonzo.
-[Permalink](https://twitter.com/fernandeznorona/status/1516470261607972866) | 78 Me Gusta | 14 Retweets
+32,074 en Facebook y, 18,247 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1516574079733710853) | 28 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 07:46:06
+**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 14:46:15
 *****
-Para que vean que hay civilidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1516443028709593089) | 211 Me Gusta | 33 Retweets
+Muchas felicidades por su cumpleaños a @abrahamendieta. Un mexicano que le dio su chingada gana nacer en España, por más que le arda a la derecha.
+[Permalink](https://twitter.com/fernandeznorona/status/1516548759894708224) | 1,549 Me Gusta | 261 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 20:53:46
+**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 14:44:46
 *****
-¡Se me antojaron!
-[Permalink](https://twitter.com/fernandeznorona/status/1516278863168520192) | 123 Me Gusta | 12 Retweets
+RT @Nubia_SCG: Mañana el #DesperdiciodeCurul va a “denunciar” a los responsables de compartir este cartel:
+
+
+Por favor, no lo compartan 🥺😏 c…
+[Permalink](https://twitter.com/fernandeznorona/status/1516548388828815362) | 0 Me Gusta | 327 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 20:50:24
+**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 14:27:49
 *****
-RT @chioreya: A estos traidores vendidos les debemos que la Reforma Eléctrica no haya pasado ……
-[Permalink](https://twitter.com/fernandeznorona/status/1516278013717012480) | 0 Me Gusta | 1,209 Retweets
+Muy bien. Felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1516544122147856390) | 46 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2022 a las 20:32:22
+**Fernández Noroña** (**@fernandeznorona**) • 19-04-2022 a las 13:14:36
 *****
-RT @snmaiznohaypai: ⁦@MovCiudadanoMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1516273478621663235) | 0 Me Gusta | 648 Retweets
+RT @Helioflores_mex: OPOSICIÓN TRIUNFANTE.
+[Permalink](https://twitter.com/fernandeznorona/status/1516525698973941760) | 0 Me Gusta | 2,013 Retweets

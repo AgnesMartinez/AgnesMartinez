@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 06:57:33
+**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 16:42:09
 *****
-Y te dices priista, tienes alma paniaguada. Qué bueno que demuestren sus francos pensamientos de traición a la patria. @Pemex le dio al país el 40% del presupuesto nacional. Todavía hoy en día le da el 19%. Cualquier privado está años luz de esa contribución, mentecato.
-[Permalink](https://twitter.com/fernandeznorona/status/1516793197288112144) | 153 Me Gusta | 54 Retweets
+RT @diariobasta: #Columna 🖊️
+En exclusiva para Grupo Cantón, te dejamos la opinión en 10 puntos del diputado Gerardo Fernández Noroña (@fer…
+[Permalink](https://twitter.com/fernandeznorona/status/1516940315701219330) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 06:47:20
+**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 16:41:04
 *****
-La oposición es curiosa. Dice que le hizo un bien al pueblo y a la patria al votar en contra de la reforma constitucional en materia eléctrica. Si es así ¿por qué les molesta que se difunda su nombre y su cara?
-[Permalink](https://twitter.com/fernandeznorona/status/1516790627949858828) | 3,814 Me Gusta | 1,547 Retweets
+Por otra parte, son simpáticos. Ustedes realizan campañas canallas de odio en contra nuestra y eso les parece libertad de expresión. Son muy singulares para aplicar criterios.
+[Permalink](https://twitter.com/fernandeznorona/status/1516940045235671040) | 10 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 06:46:11
+**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 16:40:31
 *****
-Oye pelmazo, explícanos por qué es un linchamiento exhibir que votaron en contra de la reforma constitucional en materia eléctrica. ¿No dicen que le hicieron un bien al país y al pueblo, @SergioSarmiento?
-[Permalink](https://twitter.com/fernandeznorona/status/1516790338274402306) | 264 Me Gusta | 100 Retweets
+La gente tiene criterio. Si piensa que no son unos traidores a la patria, piensan que es una idea sin sustento. Asunto resuelto. Y si son traidores a la patria.
+[Permalink](https://twitter.com/fernandeznorona/status/1516939907461271552) | 4 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 06:41:23
+**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 16:38:53
 *****
-Explicación gráfica para los que dice no entender el tema del litio.
-[Permalink](https://twitter.com/fernandeznorona/status/1516789126636396545) | 107 Me Gusta | 43 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1516939496255901696) | 11 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 06:40:46
+**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 16:32:22
 *****
-RT @El_Chamuco: Como debe ser. 
-
-
-Cartón de @monerohernandez en @lajornadaonline.
-[Permalink](https://twitter.com/fernandeznorona/status/1516788974404128774) | 0 Me Gusta | 416 Retweets
+18,848 en Facebook y, 14,501 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1516937854156525570) | 40 Me Gusta | 6 Retweets

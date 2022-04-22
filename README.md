@@ -1,31 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 10:01:55
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 14:10:16
 *****
-RT @AfpFactual: 🇲🇽 Circula un supuesto tuit del legislador 
-@fernandeznorona
- sobre el debate de la reforma energética en México, rechazada…
-[Permalink](https://twitter.com/fernandeznorona/status/1517201982523645955) | 0 Me Gusta | 7 Retweets
+Dicho en otras palabras, absoluta voluntad de construir.
+[Permalink](https://twitter.com/fernandeznorona/status/1517264481994297344) | 68 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 18:46:41
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 14:10:16
 *****
-@agfleury @monerohernandez @YouTube Mezquindad.
-[Permalink](https://twitter.com/fernandeznorona/status/1516971655909847040) | 14 Me Gusta | 0 Retweets
+Tan estamos de acuerdo que ofrecimos integrar nueve de los 12 puntos que plantearon. Seguimos abiertos a presentar una reforma constitucional que rompa el control del capital privado y genere una verdadera competencia entre @CFEmx y los privados. Dicho en otras palabras…
+[Permalink](https://twitter.com/fernandeznorona/status/1517264480060780545) | 92 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 18:24:54
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 14:07:18
 *****
-RT @VikPonce_: Tomaron protesta por Ley actuando en todo momento por el Bienestar de su Pueblo, Y si NO Que La Nación se los Demande..
-Por…
-[Permalink](https://twitter.com/fernandeznorona/status/1516966175430881280) | 0 Me Gusta | 128 Retweets
+Sí, vamos a levantar una denuncia. El problema es que ahora vamos al aeropuerto para viajar a Tijuana, pero la próxima semana lo haremos sin falta. Muchas gracias por tu solidaridad.
+[Permalink](https://twitter.com/fernandeznorona/status/1517263735634624512) | 52 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 18:23:33
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 13:12:41
 *****
-RT @VikPonce_: Tomaron protesta por Ley, y Que La Nación se los Demande..
-Por eso el pueblo se los demanda!!
-\#TRAIDORES_A_LA_PATRIA
-[Permalink](https://twitter.com/fernandeznorona/status/1516965834509406210) | 0 Me Gusta | 116 Retweets
+Esa derrota no era derrota. La oposición se equivocó en redondo al votar en contra de la reforma constitucional en materia eléctrica.
+[Permalink](https://twitter.com/fernandeznorona/status/1517249990082584581) | 110 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2022 a las 18:23:21
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 13:11:06
 *****
-RT @VikPonce_: #TraidoresALaPatria
-[Permalink](https://twitter.com/fernandeznorona/status/1516965785553485825) | 0 Me Gusta | 102 Retweets
+@VikPonce_ @marianagc @PedroFerriz @ONU_es Decisiones.
+[Permalink](https://twitter.com/fernandeznorona/status/1517249592571559936) | 2 Me Gusta | 0 Retweets

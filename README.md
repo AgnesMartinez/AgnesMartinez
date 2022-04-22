@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 14:10:16
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 21:34:46
 *****
-Dicho en otras palabras, absoluta voluntad de construir.
-[Permalink](https://twitter.com/fernandeznorona/status/1517264481994297344) | 68 Me Gusta | 7 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1517376344333504512) | 23 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 14:10:16
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 21:29:16
 *****
-Tan estamos de acuerdo que ofrecimos integrar nueve de los 12 puntos que plantearon. Seguimos abiertos a presentar una reforma constitucional que rompa el control del capital privado y genere una verdadera competencia entre @CFEmx y los privados. Dicho en otras palabras…
-[Permalink](https://twitter.com/fernandeznorona/status/1517264480060780545) | 92 Me Gusta | 19 Retweets
+Aterrizamos en Tijuana. Ya quiero llegar a dormir.
+[Permalink](https://twitter.com/fernandeznorona/status/1517374961102442496) | 97 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 14:07:18
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 17:46:25
 *****
-Sí, vamos a levantar una denuncia. El problema es que ahora vamos al aeropuerto para viajar a Tijuana, pero la próxima semana lo haremos sin falta. Muchas gracias por tu solidaridad.
-[Permalink](https://twitter.com/fernandeznorona/status/1517263735634624512) | 52 Me Gusta | 13 Retweets
+Muy bien, ahora salgan a decirle al pueblo de Hidalgo que no son traidores a la patria, que no es que jodan al pueblo, solo es que piensan diferente, @MarkoCortes.
+[Permalink](https://twitter.com/fernandeznorona/status/1517318876471603201) | 228 Me Gusta | 88 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 13:12:41
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 17:42:55
 *****
-Esa derrota no era derrota. La oposición se equivocó en redondo al votar en contra de la reforma constitucional en materia eléctrica.
-[Permalink](https://twitter.com/fernandeznorona/status/1517249990082584581) | 110 Me Gusta | 22 Retweets
+RT @MemeYamelCA: ¿Me están diciendo que los que llaman nacos, chairos, apestosos, ignorantes, ninis, huevones, pobres porque quieren o acar…
+[Permalink](https://twitter.com/fernandeznorona/status/1517317994782765057) | 0 Me Gusta | 1,914 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 13:11:06
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 17:40:58
 *****
-@VikPonce_ @marianagc @PedroFerriz @ONU_es Decisiones.
-[Permalink](https://twitter.com/fernandeznorona/status/1517249592571559936) | 2 Me Gusta | 0 Retweets
+RT @Ceciliaaaoooo: “Yo por eso propongo, que si se pudiera regresar a la época de la inquisición, yo colgaba a cada uno, no colgaba, quemab…
+[Permalink](https://twitter.com/fernandeznorona/status/1517317507161329664) | 0 Me Gusta | 30 Retweets

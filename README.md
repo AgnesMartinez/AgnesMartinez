@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2022 a las 08:23:59
+*****
+Jejeje. Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1517902112075751425) | 26 Me Gusta | 1 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2022 a las 08:23:20
+*****
+@SaaantiagoGzzs Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1517901948988661760) | 1 Me Gusta | 0 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 21:23:55
 *****
 Gracias
-[Permalink](https://twitter.com/fernandeznorona/status/1517736000067293184) | 23 Me Gusta | 1 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1517736000067293184) | 33 Me Gusta | 1 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 20:55:24
 *****
 Lo peor del caso es que no puedo hacer el reporte de los cargos que me hacen y yo no realicé porque el servicio de atención telefónica termina a las 10 de la noche. @HSBC_MX
-[Permalink](https://twitter.com/fernandeznorona/status/1517728825001472001) | 70 Me Gusta | 9 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1517728825001472001) | 95 Me Gusta | 13 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 20:54:20
 *****
 Naa, es el servicio de mensajería de @HSBC_MX.
-[Permalink](https://twitter.com/fernandeznorona/status/1517728555429339136) | 18 Me Gusta | 1 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 20:51:38
-*****
-Tengo una tarjeta de crédito de @HSBC_MX en la cual pago el crédito que me dieron para comprar la camioneta. Me acaban de informar de un par de cargos por poco más de 5000 pesos, que por supuesto yo no hice.
-[Permalink](https://twitter.com/fernandeznorona/status/1517727877931827200) | 198 Me Gusta | 36 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 19:15:21
-*****
-@xX_DarkAdria_Xx Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1517703644744847360) | 6 Me Gusta | 1 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1517728555429339136) | 26 Me Gusta | 1 Retweets

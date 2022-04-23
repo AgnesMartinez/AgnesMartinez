@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 22:52:23
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 16:03:49
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1517395875852546048) | 118 Me Gusta | 24 Retweets
+13,848 en Facebook y, 9330 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1517655443853570048) | 27 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 22:48:53
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 14:42:58
 *****
-Me comentan que el encuentro de Tecate se canceló.
-[Permalink](https://twitter.com/fernandeznorona/status/1517394995950481408) | 88 Me Gusta | 9 Retweets
+Sufro.
+[Permalink](https://twitter.com/fernandeznorona/status/1517635096961970176) | 334 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 21:34:46
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 14:01:33
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1517376344333504512) | 49 Me Gusta | 7 Retweets
+RT @chioreya: Ojo duranguenses ya saben por quien no votar ! 🤮🤮🤮🤮🤮
+[Permalink](https://twitter.com/fernandeznorona/status/1517624675093819392) | 0 Me Gusta | 2,013 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 21:29:16
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 13:59:50
 *****
-Aterrizamos en Tijuana. Ya quiero llegar a dormir.
-[Permalink](https://twitter.com/fernandeznorona/status/1517374961102442496) | 229 Me Gusta | 14 Retweets
+RT @Sanx415: Alguien 🐾🐾no me deja estudiar
+[Permalink](https://twitter.com/fernandeznorona/status/1517624245395755008) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2022 a las 17:46:25
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 13:50:42
 *****
-Muy bien, ahora salgan a decirle al pueblo de Hidalgo que no son traidores a la patria, que no es que jodan al pueblo, solo es que piensan diferente, @MarkoCortes.
-[Permalink](https://twitter.com/fernandeznorona/status/1517318876471603201) | 279 Me Gusta | 104 Retweets
+No digas tonterías. Enorme tragedia vive el padre como para que sueltes ligerezas.
+[Permalink](https://twitter.com/fernandeznorona/status/1517621946594209792) | 99 Me Gusta | 28 Retweets

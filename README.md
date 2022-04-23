@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 16:03:49
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 21:23:55
 *****
-13,848 en Facebook y, 9330 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1517655443853570048) | 27 Me Gusta | 1 Retweets
+Gracias
+[Permalink](https://twitter.com/fernandeznorona/status/1517736000067293184) | 12 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 14:42:58
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 20:55:24
 *****
-Sufro.
-[Permalink](https://twitter.com/fernandeznorona/status/1517635096961970176) | 334 Me Gusta | 19 Retweets
+Lo peor del caso es que no puedo hacer el reporte de los cargos que me hacen y yo no realicé porque el servicio de atención telefónica termina a las 10 de la noche. @HSBC_MX
+[Permalink](https://twitter.com/fernandeznorona/status/1517728825001472001) | 39 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 14:01:33
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 20:54:20
 *****
-RT @chioreya: Ojo duranguenses ya saben por quien no votar ! 🤮🤮🤮🤮🤮
-[Permalink](https://twitter.com/fernandeznorona/status/1517624675093819392) | 0 Me Gusta | 2,013 Retweets
+Naa, es el servicio de mensajería de @HSBC_MX.
+[Permalink](https://twitter.com/fernandeznorona/status/1517728555429339136) | 13 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 13:59:50
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 20:51:38
 *****
-RT @Sanx415: Alguien 🐾🐾no me deja estudiar
-[Permalink](https://twitter.com/fernandeznorona/status/1517624245395755008) | 0 Me Gusta | 5 Retweets
+Tengo una tarjeta de crédito de @HSBC_MX en la cual pago el crédito que me dieron para comprar la camioneta. Me acaban de informar de un par de cargos por poco más de 5000 pesos, que por supuesto yo no hice.
+[Permalink](https://twitter.com/fernandeznorona/status/1517727877931827200) | 105 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 13:50:42
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2022 a las 19:15:21
 *****
-No digas tonterías. Enorme tragedia vive el padre como para que sueltes ligerezas.
-[Permalink](https://twitter.com/fernandeznorona/status/1517621946594209792) | 99 Me Gusta | 28 Retweets
+@xX_DarkAdria_Xx Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1517703644744847360) | 5 Me Gusta | 1 Retweets

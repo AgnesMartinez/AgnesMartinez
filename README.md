@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 10:01:11
+**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 16:25:14
 *****
-Nada que agradecer. Al contrario.
-[Permalink](https://twitter.com/fernandeznorona/status/1518651349742850048) | 7 Me Gusta | 0 Retweets
+24,039 en Facebook y, 22,091 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1518748000486629376) | 31 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 07:42:09
+**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 10:21:57
 *****
-En el libro de “Lawfare” de @aran_tirado entre lo que se está regalando.
-[Permalink](https://twitter.com/fernandeznorona/status/1518616361030856706) | 100 Me Gusta | 25 Retweets
+@Ilianalimon Sé. Chocolate. Felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1518656575900160003) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 06:50:40
+**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 10:21:35
 *****
-Voy en mi súper Volvo Rojo.
-[Permalink](https://twitter.com/fernandeznorona/status/1518603406192955393) | 665 Me Gusta | 69 Retweets
+RT @jgnaredo: ¿O sea que Carlos Loret tiene un departamento que vale actualmente mas de 120 millones de pesos? 
+
+
+Vaya, vaya, vaya, me imagi…
+[Permalink](https://twitter.com/fernandeznorona/status/1518656481859706880) | 0 Me Gusta | 2,091 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 05:57:20
+**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 10:11:47
 *****
-A las 10 estaré entregando libros en @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1518589982323228674) | 205 Me Gusta | 27 Retweets
+RT @30JR41_: .@elonmusk: Now that you are the big owner of @twitter you can make amazing changes in this cool platform. Clean the @TwitterM…
+[Permalink](https://twitter.com/fernandeznorona/status/1518654018154897409) | 0 Me Gusta | 1,047 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-04-2022 a las 19:19:41
+**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 10:11:03
 *****
-RT @laoctavadigital: #ElOctágono | @fernandeznorona habla de los grandes retos que tiene que superar la Cuarta Transformación. 'Hay violenc…
-[Permalink](https://twitter.com/fernandeznorona/status/1518429514497413120) | 0 Me Gusta | 107 Retweets
+Lo dicho, @Televisa me veta para que pueda acudir en representación del @PTnacionalMX a un debate con @AccionNacional, @PRI_Nacional y @PartidoMorenaMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1518653832737267712) | 1,421 Me Gusta | 596 Retweets

@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 16:25:14
+**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 20:56:20
 *****
-24,039 en Facebook y, 22,091 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1518748000486629376) | 31 Me Gusta | 4 Retweets
+@Narusailor @CarlosLoret @lopezobrador_ Has dicho.
+[Permalink](https://twitter.com/fernandeznorona/status/1518816223278116865) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 10:21:57
+**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 17:23:28
 *****
-@Ilianalimon Sé. Chocolate. Felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1518656575900160003) | 8 Me Gusta | 1 Retweets
+Otro que confunden la Plaza de Leandro Valle con Estacionamiento. ⁦@UCS_GCDMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1518762653300187138) | 72 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 10:21:35
+**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 17:00:13
 *****
-RT @jgnaredo: ¿O sea que Carlos Loret tiene un departamento que vale actualmente mas de 120 millones de pesos? 
-
-
-Vaya, vaya, vaya, me imagi…
-[Permalink](https://twitter.com/fernandeznorona/status/1518656481859706880) | 0 Me Gusta | 2,091 Retweets
+Te has tardado un poco en reaccionar. Desde 2005 tu marido el #TomandanteIberdrola alias @FelipeCalderon ha promovido un feroz discurso de odio y hasta ahora persiste, @Mzavalagc.
+[Permalink](https://twitter.com/fernandeznorona/status/1518756800941670402) | 214 Me Gusta | 76 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 10:11:47
+**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 16:57:59
 *****
-RT @30JR41_: .@elonmusk: Now that you are the big owner of @twitter you can make amazing changes in this cool platform. Clean the @TwitterM…
-[Permalink](https://twitter.com/fernandeznorona/status/1518654018154897409) | 0 Me Gusta | 1,047 Retweets
+RT @m_ebrard: En cuanto a las declaraciones del ex-presidente Trump me consta el patriotismo del Presidente Lopez Obrador en aquellos momen…
+[Permalink](https://twitter.com/fernandeznorona/status/1518756239315980295) | 0 Me Gusta | 4,149 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 10:11:03
+**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 16:57:44
 *****
-Lo dicho, @Televisa me veta para que pueda acudir en representación del @PTnacionalMX a un debate con @AccionNacional, @PRI_Nacional y @PartidoMorenaMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1518653832737267712) | 1,421 Me Gusta | 596 Retweets
+RT @alvaro_delgado: “Falta de seriedad”, de @monerohernandez, en @lajornadaonline
+[Permalink](https://twitter.com/fernandeznorona/status/1518756179161276417) | 0 Me Gusta | 3,478 Retweets

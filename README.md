@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 16:13:05
+**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 19:56:21
 *****
-20,584 en Facebook y, 9730 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1519107328586530821) | 47 Me Gusta | 3 Retweets
+Ni que decir de las acciones afirmativas de mujeres trans o personas con discapacidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1519163514350292992) | 48 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 06:12:53
+**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 19:54:55
 *****
-El tráfico espantoso. Haré lo mismo de San Jerónimo al centro histórico, que de Tepoztlán a este punto.
-[Permalink](https://twitter.com/fernandeznorona/status/1518956283671457792) | 152 Me Gusta | 10 Retweets
+Estás hablando de @AndreaChavezTre, @NachoMierV, @Sergeluna_S, @yeidckol entre otros.
+[Permalink](https://twitter.com/fernandeznorona/status/1519163155045306375) | 90 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 04:54:07
+**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 19:17:24
 *****
-Vine a dormir a Tepoztlán y me convocaron en el D.F. voy de regreso.
-[Permalink](https://twitter.com/fernandeznorona/status/1518936460476432385) | 406 Me Gusta | 39 Retweets
+No se lo pierdan.
+[Permalink](https://twitter.com/fernandeznorona/status/1519153712840597504) | 72 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 20:56:20
+**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 17:49:32
 *****
-@Narusailor @CarlosLoret @lopezobrador_ Has dicho.
-[Permalink](https://twitter.com/fernandeznorona/status/1518816223278116865) | 4 Me Gusta | 0 Retweets
+Gracias.
+[Permalink](https://twitter.com/fernandeznorona/status/1519131600973348876) | 37 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2022 a las 17:23:28
+**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 17:39:39
 *****
-Otro que confunden la Plaza de Leandro Valle con Estacionamiento. ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1518762653300187138) | 99 Me Gusta | 19 Retweets
+Otro que confunde la plaza de Leandro valle con estacionamiento ⁦@UCS_GCDMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1519129113705037825) | 79 Me Gusta | 15 Retweets

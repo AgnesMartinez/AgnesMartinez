@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 19:56:21
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 09:02:38
 *****
-Ni que decir de las acciones afirmativas de mujeres trans o personas con discapacidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1519163514350292992) | 62 Me Gusta | 12 Retweets
+Mañana le pondremos fin al horario de verano. Lo pospusimos un día por unos pequeños ajustes que hay que hacerle a la iniciativa.
+[Permalink](https://twitter.com/fernandeznorona/status/1519361391043436547) | 883 Me Gusta | 260 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 19:54:55
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 07:12:31
 *****
-Estás hablando de @AndreaChavezTre, @NachoMierV, @Sergeluna_S, @yeidckol entre otros.
-[Permalink](https://twitter.com/fernandeznorona/status/1519163155045306375) | 161 Me Gusta | 31 Retweets
+Estaba poniéndoles una chinga en la comisión de la defensa y me entró una llamada. A @Mzavalagc le salió del corazón: “que atienda su llamada”.
+[Permalink](https://twitter.com/fernandeznorona/status/1519333679146885120) | 611 Me Gusta | 105 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 19:17:24
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 06:51:57
 *****
-No se lo pierdan.
-[Permalink](https://twitter.com/fernandeznorona/status/1519153712840597504) | 81 Me Gusta | 19 Retweets
+¿Y sí es?
+[Permalink](https://twitter.com/fernandeznorona/status/1519328501589065729) | 14 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 17:49:32
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 06:36:42
 *****
-Gracias.
-[Permalink](https://twitter.com/fernandeznorona/status/1519131600973348876) | 41 Me Gusta | 1 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1519324665201795073) | 116 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2022 a las 17:39:39
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 06:32:36
 *****
-Otro que confunde la plaza de Leandro valle con estacionamiento ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1519129113705037825) | 93 Me Gusta | 15 Retweets
+RT @alvaro_delgado: “Área de oportunidad”, de ⁦@monerohernandez⁩, en ⁦@lajornadaonline⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1519323633121959938) | 0 Me Gusta | 549 Retweets

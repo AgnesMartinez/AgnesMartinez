@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 09:02:38
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 16:08:37
 *****
-Mañana le pondremos fin al horario de verano. Lo pospusimos un día por unos pequeños ajustes que hay que hacerle a la iniciativa.
-[Permalink](https://twitter.com/fernandeznorona/status/1519361391043436547) | 883 Me Gusta | 260 Retweets
+RT @epigmenioibarra: Bienvenida sea la polarización que a las buenas conciencias tanto espanta; es señal de que estamos vivos. En las circu…
+[Permalink](https://twitter.com/fernandeznorona/status/1519468593829851137) | 0 Me Gusta | 495 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 07:12:31
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 16:05:19
 *****
-Estaba poniéndoles una chinga en la comisión de la defensa y me entró una llamada. A @Mzavalagc le salió del corazón: “que atienda su llamada”.
-[Permalink](https://twitter.com/fernandeznorona/status/1519333679146885120) | 611 Me Gusta | 105 Retweets
+Acaba de tener un percance con unos motociclistas, les pegó. Calzada Zaragoza frente al Motel Pistolas. De hecho hay tres patrullas en la lateral que ni se enteran ⁦@UCS_GCDMX⁩. Creo que se necesita una ambulancia.
+[Permalink](https://twitter.com/fernandeznorona/status/1519467760828436480) | 30 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 06:51:57
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 15:04:47
 *****
-¿Y sí es?
-[Permalink](https://twitter.com/fernandeznorona/status/1519328501589065729) | 14 Me Gusta | 2 Retweets
+La video charla será hoy en la noche, cerca de las 10. Debo salir rumbo a Tenango del Aire.
+[Permalink](https://twitter.com/fernandeznorona/status/1519452526843768832) | 96 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 06:36:42
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 15:01:34
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1519324665201795073) | 116 Me Gusta | 27 Retweets
+Saliendo rumbo a Tenango del aire desde @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1519451718173564934) | 103 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 06:32:36
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2022 a las 13:43:26
 *****
-RT @alvaro_delgado: “Área de oportunidad”, de ⁦@monerohernandez⁩, en ⁦@lajornadaonline⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1519323633121959938) | 0 Me Gusta | 549 Retweets
+@Alexsitobs @Antonio10146 @alitomorenoc ¡Zas!
+[Permalink](https://twitter.com/fernandeznorona/status/1519432057604214784) | 2 Me Gusta | 0 Retweets

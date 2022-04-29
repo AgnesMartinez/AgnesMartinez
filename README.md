@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2022 a las 20:22:42
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 10:08:34
 *****
-Abrazote y muchas felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1519894921603387392) | 33 Me Gusta | 6 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1520102757528748034) | 4 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2022 a las 20:21:56
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 10:03:41
 *****
-Camarada, fuiste pluri. Pero además, no han leído la iniciativa. La representación proporcional se incrementa a 300 diputados. Los que desaparecen son los 300 diputados de mayoría.
-[Permalink](https://twitter.com/fernandeznorona/status/1519894730007629825) | 74 Me Gusta | 26 Retweets
+Lo mismo. Obvio.
+[Permalink](https://twitter.com/fernandeznorona/status/1520101530124312579) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2022 a las 20:20:31
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 10:01:56
 *****
-Compañero, debes leer la iniciativa. Es falso que desaparezca la representación proporcional, de hecho se incrementa a 300. Los que desaparecen son los diputados de mayoría relativa. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1519894375253295109) | 72 Me Gusta | 24 Retweets
+El que no se entera, porque no ha leído la iniciativa es otro. Los que desaparecen son los 300 diputados de mayoría. Los 300 serán pluris.
+[Permalink](https://twitter.com/fernandeznorona/status/1520101088912891904) | 29 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2022 a las 20:18:10
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 09:58:28
 *****
-@vifex Tuitazo.
-[Permalink](https://twitter.com/fernandeznorona/status/1519893780383641601) | 3 Me Gusta | 0 Retweets
+No.
+[Permalink](https://twitter.com/fernandeznorona/status/1520100218204737537) | 8 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2022 a las 20:02:47
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 09:58:17
 *****
-RT @librofilos: #RincónDeLectura
-[Permalink](https://twitter.com/fernandeznorona/status/1519889911633129474) | 0 Me Gusta | 179 Retweets
+Toda mi solidaridad. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1520100172558221313) | 8 Me Gusta | 1 Retweets

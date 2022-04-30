@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 13:51:42
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 19:59:03
 *****
-Xacto. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1520158912057593863) | 203 Me Gusta | 27 Retweets
+Yo creo que seguirán en la parte de atrás de la boleta. Difícil que quepan 40 nombres por ejemplo que le corresponderían al Estado de México. O 22 de la capital del país.
+[Permalink](https://twitter.com/fernandeznorona/status/1520251357860868096) | 34 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 13:45:32
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 19:58:05
 *****
-RT @DiputadosPTmx: 📹#Checa || En el marco de la instalación de la Comisión Permanente, el dip. @fernandeznorona señaló que insistirá en la…
-[Permalink](https://twitter.com/fernandeznorona/status/1520157360165199873) | 0 Me Gusta | 18 Retweets
+RT @CitlaHM: Pues nada, que me acaba de pedir el @INEMexico que baje un tuit como ‘medida cautelar’.
+
+
+¡Increíble la censura!
+[Permalink](https://twitter.com/fernandeznorona/status/1520251116872933376) | 0 Me Gusta | 1,014 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 13:07:12
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 19:52:50
 *****
-El tráfico infame. Esta ciudad es muy difícil. Voy tarde a Chalco.
-[Permalink](https://twitter.com/fernandeznorona/status/1520147715069562881) | 252 Me Gusta | 19 Retweets
+Falso. @Mzavalagc es de mayoría; por otra parte, la reforma enviada por el compañero presidente desaparece los 300 diputados de mayoría. Ahora todos serán pluris que se eligirán por listas estatales.
+[Permalink](https://twitter.com/fernandeznorona/status/1520249793574014978) | 74 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 12:39:01
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 19:48:35
 *****
-No puedo votar en contra de lo que no se propone. Votaré a favor de la reforma constitucional en materia electoral, que, por cierto, propone la desaparición de los 300 diputados de mayoría. Los 300 serán pluris, elegidos en listas estatales.
-[Permalink](https://twitter.com/fernandeznorona/status/1520140621696090112) | 90 Me Gusta | 32 Retweets
+Eso le pasa a mi estimada compañera por no leer la iniciativa. En cuanto al compañero presidente supongo que lo dice porque desaparecen los actuales de las cinco circunscripciones, pero también desaparecen los 300 de mayoría.
+[Permalink](https://twitter.com/fernandeznorona/status/1520248723791822848) | 33 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 12:35:57
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 19:17:12
 *****
-RT @chioreya: Va esta info para los regios que están hartos de la ignominia que azota su estado para q no voten nunca por estos traidores !…
-[Permalink](https://twitter.com/fernandeznorona/status/1520139850820866051) | 0 Me Gusta | 771 Retweets
+Los que decían que el compañero presidente iba a desaparecer a los plurinominales, estoy esperando que me pidan disculpas ahora que pasarán de 200 a 300.
+[Permalink](https://twitter.com/fernandeznorona/status/1520240828349775872) | 534 Me Gusta | 110 Retweets

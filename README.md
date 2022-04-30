@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 10:08:34
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 13:51:42
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1520102757528748034) | 4 Me Gusta | 1 Retweets
+Xacto. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1520158912057593863) | 203 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 10:03:41
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 13:45:32
 *****
-Lo mismo. Obvio.
-[Permalink](https://twitter.com/fernandeznorona/status/1520101530124312579) | 4 Me Gusta | 0 Retweets
+RT @DiputadosPTmx: 📹#Checa || En el marco de la instalación de la Comisión Permanente, el dip. @fernandeznorona señaló que insistirá en la…
+[Permalink](https://twitter.com/fernandeznorona/status/1520157360165199873) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 10:01:56
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 13:07:12
 *****
-El que no se entera, porque no ha leído la iniciativa es otro. Los que desaparecen son los 300 diputados de mayoría. Los 300 serán pluris.
-[Permalink](https://twitter.com/fernandeznorona/status/1520101088912891904) | 29 Me Gusta | 5 Retweets
+El tráfico infame. Esta ciudad es muy difícil. Voy tarde a Chalco.
+[Permalink](https://twitter.com/fernandeznorona/status/1520147715069562881) | 252 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 09:58:28
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 12:39:01
 *****
-No.
-[Permalink](https://twitter.com/fernandeznorona/status/1520100218204737537) | 8 Me Gusta | 2 Retweets
+No puedo votar en contra de lo que no se propone. Votaré a favor de la reforma constitucional en materia electoral, que, por cierto, propone la desaparición de los 300 diputados de mayoría. Los 300 serán pluris, elegidos en listas estatales.
+[Permalink](https://twitter.com/fernandeznorona/status/1520140621696090112) | 90 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 09:58:17
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 12:35:57
 *****
-Toda mi solidaridad. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1520100172558221313) | 8 Me Gusta | 1 Retweets
+RT @chioreya: Va esta info para los regios que están hartos de la ignominia que azota su estado para q no voten nunca por estos traidores !…
+[Permalink](https://twitter.com/fernandeznorona/status/1520139850820866051) | 0 Me Gusta | 771 Retweets

@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 19:59:03
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 09:02:18
 *****
-Yo creo que seguirán en la parte de atrás de la boleta. Difícil que quepan 40 nombres por ejemplo que le corresponderían al Estado de México. O 22 de la capital del país.
-[Permalink](https://twitter.com/fernandeznorona/status/1520251357860868096) | 39 Me Gusta | 11 Retweets
+Miren lo que me acaban de regalar en Neza.
+[Permalink](https://twitter.com/fernandeznorona/status/1520448468208263168) | 86 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 19:58:05
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 08:21:23
 *****
-RT @CitlaHM: Pues nada, que me acaba de pedir el @INEMexico que baje un tuit como ‘medida cautelar’.
-
-
-¡Increíble la censura!
-[Permalink](https://twitter.com/fernandeznorona/status/1520251116872933376) | 0 Me Gusta | 1,123 Retweets
+Me sumo a la cursilería de subir mi foto de niño.
+[Permalink](https://twitter.com/fernandeznorona/status/1520438171376443393) | 499 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 19:52:50
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 08:17:36
 *****
-Falso. @Mzavalagc es de mayoría; por otra parte, la reforma enviada por el compañero presidente desaparece los 300 diputados de mayoría. Ahora todos serán pluris que se eligirán por listas estatales.
-[Permalink](https://twitter.com/fernandeznorona/status/1520249793574014978) | 91 Me Gusta | 29 Retweets
+¿Y luego que te pasó #TomandanteBorolas alias @FelipeCalderon? ¿O prefieres que te llame Tomandante Iberdrola?
+[Permalink](https://twitter.com/fernandeznorona/status/1520437221584736261) | 163 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 19:48:35
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 08:16:37
 *****
-Eso le pasa a mi estimada compañera por no leer la iniciativa. En cuanto al compañero presidente supongo que lo dice porque desaparecen los actuales de las cinco circunscripciones, pero también desaparecen los 300 de mayoría.
-[Permalink](https://twitter.com/fernandeznorona/status/1520248723791822848) | 40 Me Gusta | 11 Retweets
+@poisonJadeVine Has sido.
+[Permalink](https://twitter.com/fernandeznorona/status/1520436971503558656) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2022 a las 19:17:12
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 08:16:20
 *****
-Los que decían que el compañero presidente iba a desaparecer a los plurinominales, estoy esperando que me pidan disculpas ahora que pasarán de 200 a 300.
-[Permalink](https://twitter.com/fernandeznorona/status/1520240828349775872) | 720 Me Gusta | 147 Retweets
+Jajajajejejejijijijojojojujuju. Añoras un #TomandanteBorolas alias @FelipeCalderon. @colosioriojas carga con una tragedia brutal a sus espaldas, que ustedes majaderamente buscan explotar. Solo olvidan el pequeño detalle de que el pueblo ya despertó.
+[Permalink](https://twitter.com/fernandeznorona/status/1520436900670189569) | 61 Me Gusta | 19 Retweets

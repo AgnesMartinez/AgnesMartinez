@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 15:50:10
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 20:06:56
 *****
-A las 9 de la noche, haré una transmisión breve, desde la casa.
-[Permalink](https://twitter.com/fernandeznorona/status/1520551112746704899) | 125 Me Gusta | 18 Retweets
+Leeré un poco y a dormir, pues mañana deberé salir a las 7:30 de la madrugada rumbo a Ixtlahuaca en donde estaré a las 10 de la mañana.
+[Permalink](https://twitter.com/fernandeznorona/status/1520615729095188481) | 149 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 15:49:32
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 20:04:52
 *****
-¡Qué fenómeno más singular! Los dos teléfonos iPhone comer a la misma hora marcaron peligro por exceso de temperatura, de calentamiento. Uno de ellos estuvo expuesto al sol, tendría sentido, pero el otro estaba en mi bolsillo. Terminaré de transmitir hacia las 9 de la noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1520550952314548224) | 54 Me Gusta | 9 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1520615211153215489) | 43 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 12:55:10
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 20:04:21
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1520507074966437888) | 26 Me Gusta | 3 Retweets
+RT @Ceciliaaaoooo: El niño Borolas
+[Permalink](https://twitter.com/fernandeznorona/status/1520615080903249920) | 0 Me Gusta | 248 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 12:54:57
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 20:03:19
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1520507018435563520) | 19 Me Gusta | 2 Retweets
+@cUFmtZx6Is2bjiI @Monix139 Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1520614820369686528) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 12:53:53
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 20:03:03
 *****
-RT @chioreya: Estan listos ?  Para todos aquellos q se burlan, el AIFA es un Aeropuerto de clase mundial con las condiciones más modernas,…
-[Permalink](https://twitter.com/fernandeznorona/status/1520506749693972481) | 0 Me Gusta | 364 Retweets
+RT @Julianatilano: Ponte pedo, ponte león, ponte pedo en Nueva York.
+[Permalink](https://twitter.com/fernandeznorona/status/1520614752942456832) | 0 Me Gusta | 883 Retweets

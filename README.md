@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 20:06:56
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2022 a las 10:03:17
 *****
-Leeré un poco y a dormir, pues mañana deberé salir a las 7:30 de la madrugada rumbo a Ixtlahuaca en donde estaré a las 10 de la mañana.
-[Permalink](https://twitter.com/fernandeznorona/status/1520615729095188481) | 193 Me Gusta | 17 Retweets
+Ixtlahuaca. Muy bien.
+[Permalink](https://twitter.com/fernandeznorona/status/1520826204496015360) | 18 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 20:04:52
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2022 a las 06:35:00
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1520615211153215489) | 52 Me Gusta | 3 Retweets
+Ésta es de la marcha y concentración de apoyo al SME.
+[Permalink](https://twitter.com/fernandeznorona/status/1520773789486915585) | 90 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 20:04:21
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2022 a las 06:33:58
 *****
-RT @Ceciliaaaoooo: El niño Borolas
-[Permalink](https://twitter.com/fernandeznorona/status/1520615080903249920) | 0 Me Gusta | 290 Retweets
+Ésta es de 2009.
+[Permalink](https://twitter.com/fernandeznorona/status/1520773530551472132) | 82 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 20:03:19
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2022 a las 06:33:32
 *****
-@cUFmtZx6Is2bjiI @Monix139 Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1520614820369686528) | 1 Me Gusta | 0 Retweets
+Miren lo que me encontré de 2006.
+[Permalink](https://twitter.com/fernandeznorona/status/1520773419914170371) | 1,602 Me Gusta | 284 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2022 a las 20:03:03
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2022 a las 06:18:30
 *****
-RT @Julianatilano: Ponte pedo, ponte león, ponte pedo en Nueva York.
-[Permalink](https://twitter.com/fernandeznorona/status/1520614752942456832) | 0 Me Gusta | 1,006 Retweets
+Llegaremos 10:00 en punto a Ixtlahuaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1520769636911960064) | 113 Me Gusta | 10 Retweets

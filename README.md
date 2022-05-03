@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2022 a las 09:56:03
+**Fernández Noroña** (**@fernandeznorona**) • 02-05-2022 a las 16:42:11
 *****
-Dentro de los paniaguados. Imagínate cómo estarán de jodidos que sus dos primeras opciones son patéticas.
-[Permalink](https://twitter.com/fernandeznorona/status/1521186770959937538) | 20 Me Gusta | 2 Retweets
+RT @HNoticiasMX: Encuesta por la gubernatura de Aguascalientes, Teresa Jiménez, de Va por México, va a la cabeza, seguida muy de cerca por…
+[Permalink](https://twitter.com/fernandeznorona/status/1521288980561600513) | 0 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2022 a las 09:26:35
+**Fernández Noroña** (**@fernandeznorona**) • 02-05-2022 a las 16:41:44
 *****
-Son contiendas internas. No se vayan a hacer bolas con los números del “acalderonado”.
-[Permalink](https://twitter.com/fernandeznorona/status/1521179355141087232) | 132 Me Gusta | 29 Retweets
+Por fin está funcionando mi sonido @BangOlufsen. Eeeeeeeeeeeeeee
+[Permalink](https://twitter.com/fernandeznorona/status/1521288868015878145) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2022 a las 09:24:37
+**Fernández Noroña** (**@fernandeznorona**) • 02-05-2022 a las 16:33:33
 *****
-Acabo de enviar mi video columna para @sdpnoticias: “Todos seremos pluris”.
-[Permalink](https://twitter.com/fernandeznorona/status/1521178862029352965) | 53 Me Gusta | 14 Retweets
+En el caso de Durango es extraño que reporten empate técnico y luego pregunten quién cree que va a ganar y pongan al PRI muy por delante.
+[Permalink](https://twitter.com/fernandeznorona/status/1521286807480057857) | 11 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2022 a las 08:39:08
+**Fernández Noroña** (**@fernandeznorona**) • 02-05-2022 a las 16:32:31
 *****
-Naa, ninguna caja vacía. Y sí, el tiempo pasa y nos vamos haciendo viejos, doctor Chapatín. @JesusMartinMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1521167415425523712) | 33 Me Gusta | 4 Retweets
+RT @HNoticiasMX: Encuesta por la gubernatura de Oaxaca, el candidato de Morena, Salomón Jara, va que vuela para obtener el triunfo. Ni suma…
+[Permalink](https://twitter.com/fernandeznorona/status/1521286546229317632) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2022 a las 17:28:47
+**Fernández Noroña** (**@fernandeznorona**) • 02-05-2022 a las 16:31:20
 *****
-Vamos saliendo de Almoloya de Juárez para Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1520938320569802753) | 383 Me Gusta | 37 Retweets
+Según la propia página ganó Adán Augusto.
+[Permalink](https://twitter.com/fernandeznorona/status/1521286247766904832) | 14 Me Gusta | 2 Retweets

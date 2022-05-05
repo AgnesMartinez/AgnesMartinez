@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 16:39:53
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 19:56:30
 *****
-Muy grave la agresión de @Pelon_Gomis a @_VicenteSerrano. Cobarde y artera; y luego dicen que los violentos somos nosotros.
-[Permalink](https://twitter.com/fernandeznorona/status/1522013177810198528) | 96 Me Gusta | 37 Retweets
+RT @AntonioAttolini: La verdadera doctrina de los conservadores es la hipocresía. 
+
+
+@PelonGomis
+[Permalink](https://twitter.com/fernandeznorona/status/1522062657494212608) | 0 Me Gusta | 514 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 16:12:08
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 19:55:36
 *****
-13,205 en Facebook y, 8,258 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1522006192079396867) | 42 Me Gusta | 5 Retweets
+Muy grave y cobarde la agresión física de hoy de @pelongomis a @_VicenteSerrano. Hipócritas que siempre nos acusan de violencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1522062430821486593) | 1,026 Me Gusta | 328 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 11:52:51
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 19:53:27
 *****
-RT @mariollergo: En el @senadomexicano con mis compañeros @NachoMierV @fernandeznorona @CarlosPuenteZAC y @Marcos_Rosendo previo a la sesió…
-[Permalink](https://twitter.com/fernandeznorona/status/1521940942424621062) | 0 Me Gusta | 38 Retweets
+RT @QuesaVerdadess: Sigue adelante @fernandeznorona un “sondeito” todo “humilde y chafa” donde 53mil personas han votado, ahí nomas, pa que…
+[Permalink](https://twitter.com/fernandeznorona/status/1522061886866411520) | 0 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 11:23:20
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 19:52:55
 *****
-Sondeos.
-[Permalink](https://twitter.com/fernandeznorona/status/1521933515327213569) | 44 Me Gusta | 6 Retweets
+RT @_VicenteSerrano: Atención: Me acaba de atacar físicamente #HectorSuarezGomiz en Plza Artz de El Pedregal. Me reventó los lentes en la c…
+[Permalink](https://twitter.com/fernandeznorona/status/1522061756637478912) | 0 Me Gusta | 6,781 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 11:20:47
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 19:38:25
 *****
-¡Qué fina! Mi simpatía, apoyo y respaldo al ejercicio de gobierno de @Claudiashein. Intrigas majaderamente y flaco favor le haces a Claudia con tu dizque apoyo.
-[Permalink](https://twitter.com/fernandeznorona/status/1521932872436924418) | 143 Me Gusta | 39 Retweets
+Me vine a echar un limón sevillano en memoria de Balfre Vargas, a la taquería Los Ángeles, en Puebla capital.
+[Permalink](https://twitter.com/fernandeznorona/status/1522058107119038465) | 215 Me Gusta | 22 Retweets

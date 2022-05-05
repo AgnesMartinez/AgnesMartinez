@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 09:27:08
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 16:39:53
 *****
-Con @LulaOficial
-[Permalink](https://twitter.com/fernandeznorona/status/1521904269103874050) | 165 Me Gusta | 31 Retweets
+Muy grave la agresión de @Pelon_Gomis a @_VicenteSerrano. Cobarde y artera; y luego dicen que los violentos somos nosotros.
+[Permalink](https://twitter.com/fernandeznorona/status/1522013177810198528) | 96 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 08:45:22
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 16:12:08
 *****
-¿Cómo va el sondeo?
-[Permalink](https://twitter.com/fernandeznorona/status/1521893759415308289) | 37 Me Gusta | 7 Retweets
+13,205 en Facebook y, 8,258 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1522006192079396867) | 42 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 08:42:40
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 11:52:51
 *****
-Ahí vamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1521893080458092546) | 251 Me Gusta | 39 Retweets
+RT @mariollergo: En el @senadomexicano con mis compañeros @NachoMierV @fernandeznorona @CarlosPuenteZAC y @Marcos_Rosendo previo a la sesió…
+[Permalink](https://twitter.com/fernandeznorona/status/1521940942424621062) | 0 Me Gusta | 38 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 07:33:34
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 11:23:20
 *****
-Un accidente en Insurgentes a punto de cruzarlo, para convertirse en Xola, el @MetrobusCDMX arroyó un Fiat. El accidente bloquea  el paso para cruzar Insurgentes hacia Xola. Media hora de retraso nos generó el incidente.
-[Permalink](https://twitter.com/fernandeznorona/status/1521875690240499716) | 88 Me Gusta | 18 Retweets
+Sondeos.
+[Permalink](https://twitter.com/fernandeznorona/status/1521933515327213569) | 44 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2022 a las 19:38:43
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 11:20:47
 *****
-Ya andan intrigando con lo que dije sobre la línea 12. El comentario completo y en su contexto, lo sostengo.
-[Permalink](https://twitter.com/fernandeznorona/status/1521695794331590656) | 423 Me Gusta | 64 Retweets
+¡Qué fina! Mi simpatía, apoyo y respaldo al ejercicio de gobierno de @Claudiashein. Intrigas majaderamente y flaco favor le haces a Claudia con tu dizque apoyo.
+[Permalink](https://twitter.com/fernandeznorona/status/1521932872436924418) | 143 Me Gusta | 39 Retweets

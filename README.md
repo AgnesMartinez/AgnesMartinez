@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2022 a las 17:45:27
+*****
+Eres un eunuco. Nunca debiste ser parte de nuestro movimiento. @SergioMayerb.
+[Permalink](https://twitter.com/fernandeznorona/status/1522392062921822210) | 630 Me Gusta | 163 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2022 a las 17:30:51
+*****
+Lamento profundamente la muerte de Juan Carlos Mayorga Ruvalcaba. Espléndido médico de @Tu_IMSS. Me salvó de perder la vista de un ojo. Ayer murió de un infarto. Mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1522388392272572418) | 360 Me Gusta | 64 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2022 a las 17:10:39
+*****
+Eso deberías preguntarte frente al espejo, Georgie Boy @jorgeramosnews.
+[Permalink](https://twitter.com/fernandeznorona/status/1522383305168998401) | 112 Me Gusta | 28 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2022 a las 17:02:23
+*****
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1522381224647565313) | 98 Me Gusta | 16 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 05-05-2022 a las 16:29:22
 *****
 14,459 en Facebook y, 16,363 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1522372919384371200) | 22 Me Gusta | 4 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2022 a las 10:30:53
-*****
-RT @Sanx415: Realizamos un concierto en Nov 2021 y el pago sigue en stand by por parte del Festival “Los Fundadores” y que tengamos pacienc…
-[Permalink](https://twitter.com/fernandeznorona/status/1522282701516161031) | 0 Me Gusta | 17 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2022 a las 10:30:00
-*****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1522282481864613891) | 49 Me Gusta | 6 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2022 a las 10:28:20
-*****
-Aquí sigo en Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1522282058592227331) | 308 Me Gusta | 18 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2022 a las 19:56:30
-*****
-RT @AntonioAttolini: La verdadera doctrina de los conservadores es la hipocresía. 
-
-
-@PelonGomis
-[Permalink](https://twitter.com/fernandeznorona/status/1522062657494212608) | 0 Me Gusta | 905 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1522372919384371200) | 121 Me Gusta | 24 Retweets

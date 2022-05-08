@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 16:10:42
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 19:27:15
 *****
-Pues no. Es un ser humano y también se equivoca.
-[Permalink](https://twitter.com/fernandeznorona/status/1523092995234484229) | 21 Me Gusta | 0 Retweets
+RT @LOVREGA: Es cierto, sin unidad dejamos el camino libre para que la derecha avance, pero no se.puede construir la unidad si se exige hom…
+[Permalink](https://twitter.com/fernandeznorona/status/1523142459328507909) | 0 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 16:08:46
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 19:26:45
 *****
-RT @AliteyU: Síganme para más consejos sentimentales 😉
-[Permalink](https://twitter.com/fernandeznorona/status/1523092509882130433) | 0 Me Gusta | 7 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1523142332249698304) | 91 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 16:08:14
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 19:03:03
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1523092376226570245) | 36 Me Gusta | 7 Retweets
+RT @TobiasLatour: No tiren su dinero con Shen Yun; se van a arrepentir
+[Permalink](https://twitter.com/fernandeznorona/status/1523136370742804481) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 16:07:21
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 18:54:14
 *****
-8048 en Facebook y, 7575 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1523092153949462528) | 31 Me Gusta | 5 Retweets
+RT @arroyolegaspi: Desde el inframundo, el PRD "Celebra su 33 aniversario"
+[Permalink](https://twitter.com/fernandeznorona/status/1523134150655442945) | 0 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 13:48:52
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 18:52:00
 *****
-En mi recorrido por Iztapalapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1523057303477436416) | 136 Me Gusta | 22 Retweets
+RT @BibianaViana: Segun la OMS por efecto coVil murió el 0,8% .
+
+
+Pero..... no se cierran los países ni se funden las economías por:
+-Muerte…
+[Permalink](https://twitter.com/fernandeznorona/status/1523133587285250050) | 0 Me Gusta | 29 Retweets

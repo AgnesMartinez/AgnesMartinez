@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 05:42:21
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 16:10:42
 *****
-Ya rumbo a Iztapalapa desde pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1522934864986714112) | 226 Me Gusta | 23 Retweets
+Pues no. Es un ser humano y también se equivoca.
+[Permalink](https://twitter.com/fernandeznorona/status/1523092995234484229) | 21 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2022 a las 19:40:17
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 16:08:46
 *****
-Lo terminé. Bueno a secas.
-[Permalink](https://twitter.com/fernandeznorona/status/1522783351786012672) | 63 Me Gusta | 8 Retweets
+RT @AliteyU: Síganme para más consejos sentimentales 😉
+[Permalink](https://twitter.com/fernandeznorona/status/1523092509882130433) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2022 a las 19:30:14
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 16:08:14
 *****
-@lauralun03 @LJyDMX Ha sido.
-[Permalink](https://twitter.com/fernandeznorona/status/1522780820225855489) | 10 Me Gusta | 2 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1523092376226570245) | 36 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2022 a las 19:29:25
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 16:07:21
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1522780617607368704) | 102 Me Gusta | 12 Retweets
+8048 en Facebook y, 7575 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1523092153949462528) | 31 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2022 a las 19:29:12
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 13:48:52
 *****
-Me sumo a las condolencias para @ErnestoVCPT por la muerte de su señora madre, Genoveva Cantú Lozano.
-[Permalink](https://twitter.com/fernandeznorona/status/1522780563790311431) | 43 Me Gusta | 8 Retweets
+En mi recorrido por Iztapalapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1523057303477436416) | 136 Me Gusta | 22 Retweets

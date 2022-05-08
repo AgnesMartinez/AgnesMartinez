@@ -1,30 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 19:27:15
+**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 10:04:40
 *****
-RT @LOVREGA: Es cierto, sin unidad dejamos el camino libre para que la derecha avance, pero no se.puede construir la unidad si se exige hom…
-[Permalink](https://twitter.com/fernandeznorona/status/1523142459328507909) | 0 Me Gusta | 37 Retweets
+Muy aplicados los agentes de tránsito de la capital del país. Ese auto lleva toda la mañana en la plaza de Leandro Valle ⁦@UCS_GCDMX⁩ ⁦@Claudiashein⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1523363269213270016) | 8 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 19:26:45
+**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 09:11:12
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1523142332249698304) | 104 Me Gusta | 14 Retweets
+RT @jgnaredo: ¿Se imaginan los millones y millones y millones de pesos que se habrían tenido que pagar para trata de que no se inundara el…
+[Permalink](https://twitter.com/fernandeznorona/status/1523349814892589059) | 0 Me Gusta | 841 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 19:03:03
+**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 09:10:45
 *****
-RT @TobiasLatour: No tiren su dinero con Shen Yun; se van a arrepentir
-[Permalink](https://twitter.com/fernandeznorona/status/1523136370742804481) | 0 Me Gusta | 3 Retweets
+Gracias, porque ahí sigue @UCS_GCDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1523349700782534656) | 10 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 18:54:14
+**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 09:09:16
 *****
-RT @arroyolegaspi: Desde el inframundo, el PRD "Celebra su 33 aniversario"
-[Permalink](https://twitter.com/fernandeznorona/status/1523134150655442945) | 0 Me Gusta | 28 Retweets
+Ahí los 227,000 millones de razones del por qué han promovido el pánico en los últimos dos años.
+[Permalink](https://twitter.com/fernandeznorona/status/1523349326239768576) | 109 Me Gusta | 47 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2022 a las 18:52:00
+**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 09:06:22
 *****
-RT @BibianaViana: Segun la OMS por efecto coVil murió el 0,8% .
-
-
-Pero..... no se cierran los países ni se funden las economías por:
--Muerte…
-[Permalink](https://twitter.com/fernandeznorona/status/1523133587285250050) | 0 Me Gusta | 30 Retweets
+Pues no sé el contexto, pero esa generalización me parece majadera. Es muy fácil enriquecer el discurso de la despolitización.
+[Permalink](https://twitter.com/fernandeznorona/status/1523348596292214790) | 10 Me Gusta | 7 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 16:43:54
+**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 19:00:10
 *****
-RT @librofilos: La belleza de los libros
-[Permalink](https://twitter.com/fernandeznorona/status/1523463737394425856) | 0 Me Gusta | 41 Retweets
+…”Benjamin Franklin, con sólo 16 años, compiló por primera vez una lista de sinónimos de borracho en 1722, dio con 19 palabras… quince años después, Pennsylvania Gazette, alcanzó a citar 228…”, mira que interesante dato #TomandanteIberdrola alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1523498030057635853) | 53 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 16:42:42
+**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 18:40:17
 *****
-Jejeje
-[Permalink](https://twitter.com/fernandeznorona/status/1523463438542188544) | 5 Me Gusta | 1 Retweets
+Terminé. Bastante bueno.
+[Permalink](https://twitter.com/fernandeznorona/status/1523493026273783808) | 90 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 16:40:30
+**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 18:04:38
 *****
-Todavía no digiero la muerte de @ancalitos64. Toda mi solidaridad con sus familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1523462884688236544) | 6 Me Gusta | 2 Retweets
+Me gustó mucho, cerró con enorme vigor su ensayo.
+[Permalink](https://twitter.com/fernandeznorona/status/1523484055546712069) | 80 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 16:36:21
+**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 18:04:14
 *****
-¿Te refieres al modelito de usurpador que va a la derecha de @Mzavalagc?
-[Permalink](https://twitter.com/fernandeznorona/status/1523461839841296384) | 21 Me Gusta | 5 Retweets
+“A Juárez ‘lo acompaña el odio hasta después de la tumba’ y lo acompaña porque luchó contra oscuras y poderosas fuerzas. Las mismas que hoy se levantan airadas para enlodar la memoria de su antiguo vencedor”. Hermosísima manera de terminar su ensayo Manuel Gonzalez Ramírez.
+[Permalink](https://twitter.com/fernandeznorona/status/1523483956082999296) | 57 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 16:34:42
+**Fernández Noroña** (**@fernandeznorona**) • 08-05-2022 a las 18:01:38
 *****
-RT @juncalssolano: México 🔝..dejando atrás el vergonzoso "comes y te vas".
-[Permalink](https://twitter.com/fernandeznorona/status/1523461422382198784) | 0 Me Gusta | 294 Retweets
+“… exactamente como Quintiliano lo exigía: ‘ ni debe nadie cuando se discuten cosas de tanto momento, ser demasiado solícito acerca de las palabras’.  Manuel Gonzalez Ramírez.
+[Permalink](https://twitter.com/fernandeznorona/status/1523483299938639873) | 39 Me Gusta | 13 Retweets

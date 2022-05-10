@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 16:40:46
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 17:24:10
 *****
-No más trucos, Tamaulipas merece un hombre comprometido con el pueblo y no un truco. De trucos está harto Tamaulipas.
-[Permalink](https://twitter.com/fernandeznorona/status/1523825336495972353) | 8 Me Gusta | 2 Retweets
+A verdirojo @AccionNacional @PRI_Nacional y @PRDMexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1523836261206831107) | 31 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 16:39:01
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 17:20:59
 *****
-RT @JudithMedrano: Confirma @FiscaliaNL que el cuerpo encontrado en Juárez #NL en un lote baldío es Yolanda Martínez Cadena
-
-
-QEPD
-
-
-@MtyFoll…
-[Permalink](https://twitter.com/fernandeznorona/status/1523824896681267200) | 0 Me Gusta | 32 Retweets
+Primera y naa, no será. @JorgeRoHe.
+[Permalink](https://twitter.com/fernandeznorona/status/1523835457347403776) | 59 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 16:35:41
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 17:16:06
 *****
-RT @julioastillero: Se confirma: dos periodistas asesinadas en #Cosoleacaque, Yessenia Mollinedo Falconi y Sheila Johana García Olivera. Go…
-[Permalink](https://twitter.com/fernandeznorona/status/1523824058223144960) | 0 Me Gusta | 132 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1523834228064108545) | 40 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 16:24:34
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 17:15:40
 *****
-13,140 en Facebook y, 9237 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1523821260244873216) | 17 Me Gusta | 2 Retweets
+Pues resulta que la toma de Berlín por el ejército soviético fue el 2 de mayo de 1945. Fue la derrota definitiva del nazismo. Pero @lamparadiogenes y @FBuenAbad compartieron la foto hoy. Así que me equivoqué.
+[Permalink](https://twitter.com/fernandeznorona/status/1523834121214070784) | 89 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 15:01:27
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 17:09:11
 *****
-Me disculpo públicamente con @YosoyPedrero. Acordamos una entrevista hoy a las cinco de la tarde y se me fue el santo al cielo. Voy llegando y encima no tengo el vínculo. Así que iniciaré mi transmisión de todos los días. La reprogramaremos.
-[Permalink](https://twitter.com/fernandeznorona/status/1523800344337297408) | 261 Me Gusta | 45 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1523832489080328192) | 92 Me Gusta | 30 Retweets

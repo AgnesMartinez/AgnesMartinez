@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 10:09:24
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 16:40:46
 *****
-Naa, es por el cubrebocas. Si tienes dudas, pregúntale al genio de la epidemiología @FerVilchisMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1523726846688305152) | 2 Me Gusta | 2 Retweets
+No más trucos, Tamaulipas merece un hombre comprometido con el pueblo y no un truco. De trucos está harto Tamaulipas.
+[Permalink](https://twitter.com/fernandeznorona/status/1523825336495972353) | 8 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 10:06:02
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 16:39:01
 *****
-Deben tener @ISSSTE_mx.
-[Permalink](https://twitter.com/fernandeznorona/status/1523726000500068352) | 2 Me Gusta | 0 Retweets
+RT @JudithMedrano: Confirma @FiscaliaNL que el cuerpo encontrado en Juárez #NL en un lote baldío es Yolanda Martínez Cadena
+
+
+QEPD
+
+
+@MtyFoll…
+[Permalink](https://twitter.com/fernandeznorona/status/1523824896681267200) | 0 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 10:05:29
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 16:35:41
 *****
-A hacer maromas. Ya me destapó el compañero presidente @lopezobrador_. Yo soy perengano, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1523725859915329536) | 14 Me Gusta | 2 Retweets
+RT @julioastillero: Se confirma: dos periodistas asesinadas en #Cosoleacaque, Yessenia Mollinedo Falconi y Sheila Johana García Olivera. Go…
+[Permalink](https://twitter.com/fernandeznorona/status/1523824058223144960) | 0 Me Gusta | 132 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 09:15:56
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 16:24:34
 *****
-Miren los trabajadores de ⁦@Mx_Diputados⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1523713390312443904) | 49 Me Gusta | 6 Retweets
+13,140 en Facebook y, 9237 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1523821260244873216) | 17 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 09:15:28
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 15:01:27
 *****
-En ⁦@Mx_Diputados⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1523713274943971329) | 27 Me Gusta | 3 Retweets
+Me disculpo públicamente con @YosoyPedrero. Acordamos una entrevista hoy a las cinco de la tarde y se me fue el santo al cielo. Voy llegando y encima no tengo el vínculo. Así que iniciaré mi transmisión de todos los días. La reprogramaremos.
+[Permalink](https://twitter.com/fernandeznorona/status/1523800344337297408) | 261 Me Gusta | 45 Retweets

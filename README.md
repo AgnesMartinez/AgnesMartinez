@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 20:21:22
+**Fernández Noroña** (**@fernandeznorona**) • 11-05-2022 a las 09:53:40
 *****
-RT @sotelo888: Luz Maria Gaytan, una “Mujer del Alba” 🍁
-Tengo el privilegio de conocer a una de las “Mujeres del Alba” a quienes el formida…
-[Permalink](https://twitter.com/fernandeznorona/status/1524243240358014976) | 0 Me Gusta | 4 Retweets
+RT @Navegaciones: Histórico: sigue @LuchoXBolivia el ejemplo de @lopezobrador_ y no irá a la #CumbredelasAmericas a menos que @POTUS incluy…
+[Permalink](https://twitter.com/fernandeznorona/status/1524447662195552256) | 0 Me Gusta | 308 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 20:21:03
+**Fernández Noroña** (**@fernandeznorona**) • 11-05-2022 a las 09:27:26
 *****
-RT @pedrokanche: Anuncia gobernador @CarlosJoaquin que a partir de este 10 de Mayo los cubre bocas son voluntarios…#QRoo #cubrebocas https:…
-[Permalink](https://twitter.com/fernandeznorona/status/1524243162612477954) | 0 Me Gusta | 7 Retweets
+Muchas felicidades a @_VicenteSerrano en su cumpleaños.
+[Permalink](https://twitter.com/fernandeznorona/status/1524441061128609792) | 247 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 20:10:27
+**Fernández Noroña** (**@fernandeznorona**) • 11-05-2022 a las 09:17:35
 *****
-RT @GobiernoMX: El Pdte. @lopezobrador_ declaró que no existe ningún problema con el rediseño del espacio aéreo del Valle de México. 
-Asegu…
-[Permalink](https://twitter.com/fernandeznorona/status/1524240493504204800) | 0 Me Gusta | 126 Retweets
+@LOVREGA Denuestan.
+[Permalink](https://twitter.com/fernandeznorona/status/1524438583624482816) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 19:55:20
+**Fernández Noroña** (**@fernandeznorona**) • 11-05-2022 a las 09:17:25
 *****
-RT @GobiernoMX: Reconociendo la disposición al diálogo del @GobiernoMX, @Aeromexico informa que contribuirá al desarrollo del Sistema Aerop…
-[Permalink](https://twitter.com/fernandeznorona/status/1524236690906300417) | 0 Me Gusta | 144 Retweets
+RT @Helioflores_mex: EMBAJADOR en BAJADA
+[Permalink](https://twitter.com/fernandeznorona/status/1524438542897795072) | 0 Me Gusta | 1,183 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 19:54:58
+**Fernández Noroña** (**@fernandeznorona**) • 11-05-2022 a las 09:17:00
 *****
-Ocho vueltas. En una de esas en la octava ganan. @JorgeRoHe.
-[Permalink](https://twitter.com/fernandeznorona/status/1524236597042065408) | 36 Me Gusta | 5 Retweets
+Naa, no piensas Georgie Boy, eres muñeco de ventrílocuo @jorgeramosnews.
+[Permalink](https://twitter.com/fernandeznorona/status/1524438436983328768) | 87 Me Gusta | 22 Retweets

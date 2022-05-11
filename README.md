@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 17:24:10
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 14:03:06
 *****
-A verdirojo @AccionNacional @PRI_Nacional y @PRDMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1523836261206831107) | 41 Me Gusta | 11 Retweets
+Me dio nostalgia.
+[Permalink](https://twitter.com/fernandeznorona/status/1524148049127391232) | 31 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 17:20:59
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 14:00:36
 *****
-Primera y naa, no será. @JorgeRoHe.
-[Permalink](https://twitter.com/fernandeznorona/status/1523835457347403776) | 87 Me Gusta | 16 Retweets
+Si. La subiré hasta en la noche, porque no tengo fotos a la mano.
+[Permalink](https://twitter.com/fernandeznorona/status/1524147419142922240) | 38 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 17:16:06
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 13:57:53
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1523834228064108545) | 51 Me Gusta | 8 Retweets
+Con mi madre, cuando anuncié que sería candidato independiente de izquierda a la presidencia de la República, en enero de 2016.
+[Permalink](https://twitter.com/fernandeznorona/status/1524146732841549826) | 984 Me Gusta | 91 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 17:15:40
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 13:52:58
 *****
-Pues resulta que la toma de Berlín por el ejército soviético fue el 2 de mayo de 1945. Fue la derrota definitiva del nazismo. Pero @lamparadiogenes y @FBuenAbad compartieron la foto hoy. Así que me equivoqué.
-[Permalink](https://twitter.com/fernandeznorona/status/1523834121214070784) | 119 Me Gusta | 25 Retweets
+Cierto. Yo me sentía soñado con un “Fisher”, con tornamesa y equipo para tocar cartuchos.
+[Permalink](https://twitter.com/fernandeznorona/status/1524145497996472332) | 43 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2022 a las 17:09:11
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 13:51:09
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1523832489080328192) | 137 Me Gusta | 43 Retweets
+RT @Luna_Tagg: #10DeMayo 💜💜💜
+[Permalink](https://twitter.com/fernandeznorona/status/1524145042117517312) | 0 Me Gusta | 8 Retweets

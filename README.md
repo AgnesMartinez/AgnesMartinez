@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 14:03:06
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 20:21:22
 *****
-Me dio nostalgia.
-[Permalink](https://twitter.com/fernandeznorona/status/1524148049127391232) | 31 Me Gusta | 4 Retweets
+RT @sotelo888: Luz Maria Gaytan, una “Mujer del Alba” 🍁
+Tengo el privilegio de conocer a una de las “Mujeres del Alba” a quienes el formida…
+[Permalink](https://twitter.com/fernandeznorona/status/1524243240358014976) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 14:00:36
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 20:21:03
 *****
-Si. La subiré hasta en la noche, porque no tengo fotos a la mano.
-[Permalink](https://twitter.com/fernandeznorona/status/1524147419142922240) | 38 Me Gusta | 9 Retweets
+RT @pedrokanche: Anuncia gobernador @CarlosJoaquin que a partir de este 10 de Mayo los cubre bocas son voluntarios…#QRoo #cubrebocas https:…
+[Permalink](https://twitter.com/fernandeznorona/status/1524243162612477954) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 13:57:53
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 20:10:27
 *****
-Con mi madre, cuando anuncié que sería candidato independiente de izquierda a la presidencia de la República, en enero de 2016.
-[Permalink](https://twitter.com/fernandeznorona/status/1524146732841549826) | 984 Me Gusta | 91 Retweets
+RT @GobiernoMX: El Pdte. @lopezobrador_ declaró que no existe ningún problema con el rediseño del espacio aéreo del Valle de México. 
+Asegu…
+[Permalink](https://twitter.com/fernandeznorona/status/1524240493504204800) | 0 Me Gusta | 91 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 13:52:58
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 19:55:20
 *****
-Cierto. Yo me sentía soñado con un “Fisher”, con tornamesa y equipo para tocar cartuchos.
-[Permalink](https://twitter.com/fernandeznorona/status/1524145497996472332) | 43 Me Gusta | 7 Retweets
+RT @GobiernoMX: Reconociendo la disposición al diálogo del @GobiernoMX, @Aeromexico informa que contribuirá al desarrollo del Sistema Aerop…
+[Permalink](https://twitter.com/fernandeznorona/status/1524236690906300417) | 0 Me Gusta | 114 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 13:51:09
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2022 a las 19:54:58
 *****
-RT @Luna_Tagg: #10DeMayo 💜💜💜
-[Permalink](https://twitter.com/fernandeznorona/status/1524145042117517312) | 0 Me Gusta | 8 Retweets
+Ocho vueltas. En una de esas en la octava ganan. @JorgeRoHe.
+[Permalink](https://twitter.com/fernandeznorona/status/1524236597042065408) | 32 Me Gusta | 3 Retweets

@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 16:48:39
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 21:01:58
 *****
-RT @jairocalixto: Por los tuits de grandes próceres del periodismo, cualquier diría que a la Cumbre de las Américas solo deben acudir a los…
-[Permalink](https://twitter.com/fernandeznorona/status/1524914485919612963) | 0 Me Gusta | 165 Retweets
+En nuestro caso, la paradoja es que somos el partido del cambio. Por eso no podrán ganarnos.
+[Permalink](https://twitter.com/fernandeznorona/status/1524978232659161088) | 26 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 16:48:28
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 21:01:57
 *****
-RT @TobiasLatour: Los costos de operación del @mx_aifa para las líneas aéreas es en promedio 20% mas barato que en en AICM
-[Permalink](https://twitter.com/fernandeznorona/status/1524914439081820164) | 0 Me Gusta | 41 Retweets
+“Es una evidencia de la dinámica política que el partido del cambio siempre está más motivado que el partido del statu quo. Éste último tiene la inercia de su parte, pero la inercia no siempre resiste la presión de la pasión”.  Daniel Okrent. Cierto. En nuestro caso, la paradoja
+[Permalink](https://twitter.com/fernandeznorona/status/1524978230016544769) | 33 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 16:47:45
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 19:33:39
 *****
-RT @alvaro_delgado: Rodeada de agentes ministeriales, y con su hija dentro de su automóvil, @NANCYGOOOOO teme ser desaparecida en Jalisco,…
-[Permalink](https://twitter.com/fernandeznorona/status/1524914259150372875) | 0 Me Gusta | 1,177 Retweets
+Eres un cretino, lo que no encuentras es tu sesera @irmoralesl.
+[Permalink](https://twitter.com/fernandeznorona/status/1524956009315319815) | 75 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 16:45:36
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 19:32:26
 *****
-El esclavo es otro, piensa que es libre y pensándolo bien, ni a esclavo llega. Vil juguete de oligarcas, @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1524913717204471808) | 14 Me Gusta | 7 Retweets
+RT @LOVREGA: ¡Vaya! Regresa la dignidad a Latinoamérica. Me alegra.
+[Permalink](https://twitter.com/fernandeznorona/status/1524955704083234827) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 16:44:09
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 19:30:38
 *****
-RT @LOVREGA: Y yo me pregunto ¿Algún día las autoridades norteamericanas van a arrestar a los capos gringos de la droga?
-
-
-Me refiero a los…
-[Permalink](https://twitter.com/fernandeznorona/status/1524913353600139272) | 0 Me Gusta | 131 Retweets
+RT @Cynthia41129811: @lasparitaristas Y no solo eso eran más de 15 elementos para detenerla !
+[Permalink](https://twitter.com/fernandeznorona/status/1524955250767052808) | 0 Me Gusta | 7 Retweets

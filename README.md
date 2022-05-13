@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 10:01:36
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 16:48:39
 *****
-Pero sigan saboteando al @aifa_aeropuerto. Al margen de que no les creemos sus supuestos incidentes.
-[Permalink](https://twitter.com/fernandeznorona/status/1524812048147746816) | 24 Me Gusta | 5 Retweets
+RT @jairocalixto: Por los tuits de grandes próceres del periodismo, cualquier diría que a la Cumbre de las Américas solo deben acudir a los…
+[Permalink](https://twitter.com/fernandeznorona/status/1524914485919612963) | 0 Me Gusta | 165 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 09:59:12
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 16:48:28
 *****
-RT @evoespueblo: Las Cumbre de las Américas está a punto de fracasar, no por la falta de voluntad de diálogo de los gobiernos de América La…
-[Permalink](https://twitter.com/fernandeznorona/status/1524811442939039744) | 0 Me Gusta | 4,356 Retweets
+RT @TobiasLatour: Los costos de operación del @mx_aifa para las líneas aéreas es en promedio 20% mas barato que en en AICM
+[Permalink](https://twitter.com/fernandeznorona/status/1524914439081820164) | 0 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 09:58:47
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 16:47:45
 *****
-Primero da a conocer el dictamen, difúndelo, que la gente lo lea para que pueda emitir una opinión. @SergioSarmiento y sus #SondeosPedorros.
-[Permalink](https://twitter.com/fernandeznorona/status/1524811338542813189) | 17 Me Gusta | 4 Retweets
+RT @alvaro_delgado: Rodeada de agentes ministeriales, y con su hija dentro de su automóvil, @NANCYGOOOOO teme ser desaparecida en Jalisco,…
+[Permalink](https://twitter.com/fernandeznorona/status/1524914259150372875) | 0 Me Gusta | 1,177 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 09:56:53
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 16:45:36
 *****
-Pronta recuperación.
-[Permalink](https://twitter.com/fernandeznorona/status/1524810861541396485) | 13 Me Gusta | 2 Retweets
+El esclavo es otro, piensa que es libre y pensándolo bien, ni a esclavo llega. Vil juguete de oligarcas, @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1524913717204471808) | 14 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 09:55:46
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2022 a las 16:44:09
 *****
-Pienso que muestras una ignorancia monstruosa al confundir una fiesta con una cumbre de las Américas. Saludos.
-[Permalink](https://twitter.com/fernandeznorona/status/1524810581529661446) | 40 Me Gusta | 7 Retweets
+RT @LOVREGA: Y yo me pregunto ¿Algún día las autoridades norteamericanas van a arrestar a los capos gringos de la droga?
+
+
+Me refiero a los…
+[Permalink](https://twitter.com/fernandeznorona/status/1524913353600139272) | 0 Me Gusta | 131 Retweets

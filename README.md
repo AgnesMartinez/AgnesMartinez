@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 03:53:36
+**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 08:15:32
 *****
-Ahí vamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1525444213437083648) | 31 Me Gusta | 4 Retweets
+Chicbul.
+[Permalink](https://twitter.com/fernandeznorona/status/1525510130888069122) | 61 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 03:51:57
+**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 08:10:32
 *****
-Hermoso.
-[Permalink](https://twitter.com/fernandeznorona/status/1525443800008622085) | 28 Me Gusta | 2 Retweets
+Chicbul, Campeche.
+[Permalink](https://twitter.com/fernandeznorona/status/1525508873288929282) | 49 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 03:51:15
+**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 05:32:10
 *****
-Amanece en la carretera
-[Permalink](https://twitter.com/fernandeznorona/status/1525443621486460932) | 16 Me Gusta | 2 Retweets
+La hazaña de Dos Bocas.
+[Permalink](https://twitter.com/fernandeznorona/status/1525469020505493507) | 181 Me Gusta | 52 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 03:12:10
+**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 05:31:06
 *****
-Saliendo rumbo a ciudad del Carmen, Campeche desde Villahermosa.
-[Permalink](https://twitter.com/fernandeznorona/status/1525433785067741184) | 81 Me Gusta | 11 Retweets
+Refinería Olmeca.
+[Permalink](https://twitter.com/fernandeznorona/status/1525468748206985220) | 106 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-05-2022 a las 18:41:03
+**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 05:30:06
 *****
-RT @mariollergo: Rumbo a la Refinería de Dos Bocas con mis compañeros diputados @fernandeznorona @manuel_rdgn @KARLARABELO @JanicieContrera…
-[Permalink](https://twitter.com/fernandeznorona/status/1525305160054067202) | 0 Me Gusta | 44 Retweets
+Dos Bocas.
+[Permalink](https://twitter.com/fernandeznorona/status/1525468499333812225) | 123 Me Gusta | 36 Retweets

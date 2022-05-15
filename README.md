@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 08:15:32
+**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 16:49:16
 *****
-Chicbul.
-[Permalink](https://twitter.com/fernandeznorona/status/1525510130888069122) | 61 Me Gusta | 8 Retweets
+En todo el país siempre ha sido voluntario.
+[Permalink](https://twitter.com/fernandeznorona/status/1525639416362016769) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 08:10:32
+**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 16:48:49
 *****
-Chicbul, Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1525508873288929282) | 49 Me Gusta | 8 Retweets
+¿Es sólo ignorancia o es monumental mala fe la tuya?
+[Permalink](https://twitter.com/fernandeznorona/status/1525639302453116929) | 21 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 05:32:10
+**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 16:46:50
 *****
-La hazaña de Dos Bocas.
-[Permalink](https://twitter.com/fernandeznorona/status/1525469020505493507) | 181 Me Gusta | 52 Retweets
+!Se pasan con @Tu_IMSS!
+[Permalink](https://twitter.com/fernandeznorona/status/1525638805893660677) | 17 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 05:31:06
+**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 16:45:30
 *****
-Refinería Olmeca.
-[Permalink](https://twitter.com/fernandeznorona/status/1525468748206985220) | 106 Me Gusta | 21 Retweets
+Mira pseudo periodista, el día que leas el 10% que yo, debatimos el tema que gustes, solo para demostrar que eres el @RicardoAlemanMx del periodismo.
+[Permalink](https://twitter.com/fernandeznorona/status/1525638468801634304) | 43 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 05:30:06
+**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 16:42:59
 *****
-Dos Bocas.
-[Permalink](https://twitter.com/fernandeznorona/status/1525468499333812225) | 123 Me Gusta | 36 Retweets
+Cuando seas capaz de reunir a un centenar de no pensantes como tú, me invitas a que les hable de mi proyecto de país y después, abriré a sus intervenciones con absoluta libertad. Veremos quién es el inculto, ignorante y retrógrada.
+[Permalink](https://twitter.com/fernandeznorona/status/1525637833947590656) | 13 Me Gusta | 4 Retweets

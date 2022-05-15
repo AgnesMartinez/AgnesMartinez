@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 20:06:04
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 08:18:54
 *****
-@edd_lite @BBVA_Mex Transa.
-[Permalink](https://twitter.com/fernandeznorona/status/1525688943433367552) | 4 Me Gusta | 0 Retweets
+Campeche.
+[Permalink](https://twitter.com/fernandeznorona/status/1525873366346915840) | 88 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 20:05:47
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 08:03:24
 *****
-¿Y luego? ¿Qué pretendiste expresar Georgie Boy, @jorgeramosnews?
-[Permalink](https://twitter.com/fernandeznorona/status/1525688869487796224) | 111 Me Gusta | 33 Retweets
+Ya en Campeche.
+[Permalink](https://twitter.com/fernandeznorona/status/1525869467028307969) | 91 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 20:02:22
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 06:41:04
 *****
-Te quise mandar un MD pero no te encontré.
-[Permalink](https://twitter.com/fernandeznorona/status/1525688010724999168) | 23 Me Gusta | 1 Retweets
+Par de cretinos. Han aplaudido a gobiernos represores contumaces, violadores de derechos humanos y asesinos, si no es que genocidas. Son un par de miserables @ClaudioXGG @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1525848746998784001) | 310 Me Gusta | 112 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 19:58:46
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 06:11:55
 *****
-Rosa Rojas Solís, Policía jubilada, con 10 meses en plantón, en Querétaro capital. Iré a verla.
-[Permalink](https://twitter.com/fernandeznorona/status/1525687104268865536) | 69 Me Gusta | 28 Retweets
+No. La organizan y sus juguetes la festinan, Georgie Boy @jorgeramosnews.
+[Permalink](https://twitter.com/fernandeznorona/status/1525841408367673348) | 98 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2022 a las 17:04:11
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 05:51:58
 *****
-Ciudad del Carmen.
-[Permalink](https://twitter.com/fernandeznorona/status/1525643169739726852) | 205 Me Gusta | 38 Retweets
+Salimos de Ciudad del Carmen rumbo a Campeche capital.
+[Permalink](https://twitter.com/fernandeznorona/status/1525836389430005760) | 231 Me Gusta | 20 Retweets

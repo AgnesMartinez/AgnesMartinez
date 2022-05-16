@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 08:18:54
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 16:42:44
 *****
-Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1525873366346915840) | 88 Me Gusta | 13 Retweets
+La Luna Lunera cascabelera.
+[Permalink](https://twitter.com/fernandeznorona/status/1526000160383422464) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 08:03:24
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 16:31:02
 *****
-Ya en Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1525869467028307969) | 91 Me Gusta | 2 Retweets
+Bellísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1525997213482115073) | 14 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 06:41:04
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 16:30:02
 *****
-Par de cretinos. Han aplaudido a gobiernos represores contumaces, violadores de derechos humanos y asesinos, si no es que genocidas. Son un par de miserables @ClaudioXGG @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1525848746998784001) | 310 Me Gusta | 112 Retweets
+Atardecer
+[Permalink](https://twitter.com/fernandeznorona/status/1525996964571226113) | 14 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 06:11:55
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 16:27:47
 *****
-No. La organizan y sus juguetes la festinan, Georgie Boy @jorgeramosnews.
-[Permalink](https://twitter.com/fernandeznorona/status/1525841408367673348) | 98 Me Gusta | 35 Retweets
+Miren este cuadro.
+[Permalink](https://twitter.com/fernandeznorona/status/1525996395794157569) | 18 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 05:51:58
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 16:23:04
 *****
-Salimos de Ciudad del Carmen rumbo a Campeche capital.
-[Permalink](https://twitter.com/fernandeznorona/status/1525836389430005760) | 231 Me Gusta | 20 Retweets
+Ahí estoy en el atardecer.
+[Permalink](https://twitter.com/fernandeznorona/status/1525995212388147200) | 41 Me Gusta | 3 Retweets

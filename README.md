@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 16:42:44
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 19:52:24
 *****
-La Luna Lunera cascabelera.
-[Permalink](https://twitter.com/fernandeznorona/status/1526000160383422464) | 8 Me Gusta | 0 Retweets
+Pasamos a la “Chaya Maya”, a cenar algo.
+[Permalink](https://twitter.com/fernandeznorona/status/1526047892225540096) | 154 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 16:31:02
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 19:27:52
 *****
-Bellísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1525997213482115073) | 14 Me Gusta | 1 Retweets
+Eclipse de Luna.
+[Permalink](https://twitter.com/fernandeznorona/status/1526041717727690752) | 69 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 16:30:02
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 19:11:11
 *****
-Atardecer
-[Permalink](https://twitter.com/fernandeznorona/status/1525996964571226113) | 14 Me Gusta | 1 Retweets
+Eclipse de Luna.
+[Permalink](https://twitter.com/fernandeznorona/status/1526037520542318594) | 85 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 16:27:47
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 18:46:07
 *****
-Miren este cuadro.
-[Permalink](https://twitter.com/fernandeznorona/status/1525996395794157569) | 18 Me Gusta | 2 Retweets
+Muchas gracias amiga y compañera de lucha. Un placer haberte visto. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1526031209280716800) | 126 Me Gusta | 42 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 16:23:04
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2022 a las 18:44:28
 *****
-Ahí estoy en el atardecer.
-[Permalink](https://twitter.com/fernandeznorona/status/1525995212388147200) | 41 Me Gusta | 3 Retweets
+Vamos llegando a Mérida.
+[Permalink](https://twitter.com/fernandeznorona/status/1526030794539552768) | 197 Me Gusta | 9 Retweets

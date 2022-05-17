@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-05-2022 a las 08:21:36
+**Fernández Noroña** (**@fernandeznorona**) • 16-05-2022 a las 16:11:54
 *****
-Deja todo el día, todos los días. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1526236435371675649) | 76 Me Gusta | 11 Retweets
+9891 en Facebook y, 8432 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1526354786265833472) | 36 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-05-2022 a las 08:20:33
+**Fernández Noroña** (**@fernandeznorona**) • 16-05-2022 a las 14:02:55
 *****
-RT @evoespueblo: El exsecretario de Defensa de #EEUU, Mark Esper, admite en su libro "Un juramento sagrado" que propuso a Juan Guaidó asesi…
-[Permalink](https://twitter.com/fernandeznorona/status/1526236171143200769) | 0 Me Gusta | 1,885 Retweets
+Entre los primeros 10 políticos del país.
+[Permalink](https://twitter.com/fernandeznorona/status/1526322329512312833) | 270 Me Gusta | 56 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-05-2022 a las 08:18:32
+**Fernández Noroña** (**@fernandeznorona**) • 16-05-2022 a las 14:01:10
 *****
-@jon_aleman7 @CONEJO_AGAIN Emma. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1526235661602377728) | 9 Me Gusta | 1 Retweets
+Lo bueno es que no tengo ninguna oportunidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1526321887856533505) | 255 Me Gusta | 46 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-05-2022 a las 08:18:06
+**Fernández Noroña** (**@fernandeznorona**) • 16-05-2022 a las 13:29:29
 *****
-@Andres50877148 @Luna_Tagg Tizna.
-[Permalink](https://twitter.com/fernandeznorona/status/1526235552307085314) | 3 Me Gusta | 0 Retweets
+Fui al centro cultural Dante e hice una compra de pánico, de libros, en Mérida. Estoy muy feliz, a mi Mérida, desde muy jovencito, siempre me ha hecho muy feliz.
+[Permalink](https://twitter.com/fernandeznorona/status/1526313915591929861) | 243 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-05-2022 a las 08:14:01
+**Fernández Noroña** (**@fernandeznorona**) • 16-05-2022 a las 11:54:06
 *****
-“Lo que le faltaba a Harding -expresidente de Estados Unidos- era valor para defender sus convicciones; lo cual, a efectos prácticos, era lo mismo que no tener convicciones de ningún tipo”. Okrent.
-[Permalink](https://twitter.com/fernandeznorona/status/1526234525713543169) | 53 Me Gusta | 11 Retweets
+Pues acabé tomando un día de descanso en Mérida, frente a la franca majadería de mis compañeros en Quintana Roo. estoy muy contento, tomando una champola de mango en Sorbetería Colón.
+[Permalink](https://twitter.com/fernandeznorona/status/1526289911422271489) | 597 Me Gusta | 66 Retweets

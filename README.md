@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 09:54:07
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 16:36:43
 *****
-El estacionamiento en la colonia Roma es una pesadilla. Pues encima los restauranteros ya se hagan robaron las zonas de estacionamiento en varios lugares.
-[Permalink](https://twitter.com/fernandeznorona/status/1526622102266290177) | 45 Me Gusta | 11 Retweets
+Me comenta @Ascension528Hz que en YouTube, una persona llamó la atención que quien me defendió de esta última ofensiva generado en mi contra, fue el pueblo. Tiene absoluta razón y debo agradecérselo a la torpeza de la derecha del movimiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1526723420766887936) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 08:59:00
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 16:27:31
 *****
-Xacto. @colosioriojas gobernador de los seis estados en disputa.
-[Permalink](https://twitter.com/fernandeznorona/status/1526608233611132928) | 33 Me Gusta | 4 Retweets
+15,228 en Facebook y, 11,212 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1526721107537154054) | 30 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 08:19:04
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 14:46:22
 *****
-Si fuera cierto, estarías llorando de rabia, en vez de riendo con esa mueca de sonrisa @Mzavalagc.
-[Permalink](https://twitter.com/fernandeznorona/status/1526598185258569729) | 148 Me Gusta | 26 Retweets
+Ahí te hablan Federijo @farreola.
+[Permalink](https://twitter.com/fernandeznorona/status/1526695650179555329) | 33 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 08:16:03
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 14:37:30
 *****
-RT @LOVREGA: Señores fachos, ya que están en contra de que en México trabajen médicos de otros países. ¿Por qué no piden que corran a los f…
-[Permalink](https://twitter.com/fernandeznorona/status/1526597426571780097) | 0 Me Gusta | 523 Retweets
+Ahí están los tres cabrones, nos faltan cuatro.
+[Permalink](https://twitter.com/fernandeznorona/status/1526693421057855490) | 56 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 08:15:39
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 14:36:21
 *****
-@Aniveth_Caro_E Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1526597323706482688) | 5 Me Gusta | 0 Retweets
+La Manuelita, el Nieve y la Silvestra detrás.
+[Permalink](https://twitter.com/fernandeznorona/status/1526693130023538688) | 56 Me Gusta | 6 Retweets

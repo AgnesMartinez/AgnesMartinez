@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 16:36:43
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 19:58:50
 *****
-Me comenta @Ascension528Hz que en YouTube, una persona llamó la atención que quien me defendió de esta última ofensiva generado en mi contra, fue el pueblo. Tiene absoluta razón y debo agradecérselo a la torpeza de la derecha del movimiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1526723420766887936) | 0 Me Gusta | 0 Retweets
+La Luna.
+[Permalink](https://twitter.com/fernandeznorona/status/1526774284600889344) | 105 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 16:27:31
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 19:10:25
 *****
-15,228 en Facebook y, 11,212 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1526721107537154054) | 30 Me Gusta | 4 Retweets
+RT @GobiernoMX: Con una población de 9.2 millones de habitantes, en la Ciudad de México todos los delitos de alto impacto tienen tendencia…
+[Permalink](https://twitter.com/fernandeznorona/status/1526762100139298816) | 0 Me Gusta | 174 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 14:46:22
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 19:09:35
 *****
-Ahí te hablan Federijo @farreola.
-[Permalink](https://twitter.com/fernandeznorona/status/1526695650179555329) | 33 Me Gusta | 5 Retweets
+Aquí te hablan @JRCossio.
+[Permalink](https://twitter.com/fernandeznorona/status/1526761891162300416) | 33 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 14:37:30
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 19:08:38
 *****
-Ahí están los tres cabrones, nos faltan cuatro.
-[Permalink](https://twitter.com/fernandeznorona/status/1526693421057855490) | 56 Me Gusta | 3 Retweets
+¿Y para ser un vividor ex ministro de la Corte, que se necesita, @JRCossio?
+[Permalink](https://twitter.com/fernandeznorona/status/1526761653156532224) | 193 Me Gusta | 71 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 14:36:21
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 19:04:58
 *****
-La Manuelita, el Nieve y la Silvestra detrás.
-[Permalink](https://twitter.com/fernandeznorona/status/1526693130023538688) | 56 Me Gusta | 6 Retweets
+Jejeje
+[Permalink](https://twitter.com/fernandeznorona/status/1526760729721700353) | 18 Me Gusta | 2 Retweets

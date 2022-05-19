@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 20:55:30
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 10:08:29
 *****
-RT @alvaro_delgado: “Santo remedio”, de @monerohernandez, en @lajornadaonline
-[Permalink](https://twitter.com/fernandeznorona/status/1527150934064775170) | 0 Me Gusta | 1,996 Retweets
+Pero peor es que encima, además de no atenderla, la traten de sacar con la policía. @zoerobledo. A menos que la policía se haya cercado a darle primeros auxilios -obvia ironía-.
+[Permalink](https://twitter.com/fernandeznorona/status/1527350494225747968) | 26 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 20:53:01
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 10:08:28
 *****
-Muchas gracias.
-[Permalink](https://twitter.com/fernandeznorona/status/1527150308194910210) | 61 Me Gusta | 13 Retweets
+Es absurdo que una mujer, que va sola desde Villa Nicolás Romero A la clínica 58 de Santa Mónica, les dice que tiene dificultades para respirar, no sea atendida bajo el argumento que pase médico está mal hecho. @Tu_IMSS ¿es auto sabotaje? Pero peor es que
+[Permalink](https://twitter.com/fernandeznorona/status/1527350492720173056) | 42 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 20:51:27
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 10:04:17
 *****
-Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1527149913389338624) | 76 Me Gusta | 12 Retweets
+RT @AnaMendoza1989: @fernandeznorona @Tu_IMSS @zoerobledo Diputado, también está el caso de José Jaime
+[Permalink](https://twitter.com/fernandeznorona/status/1527349438213419008) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 17:33:43
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 10:03:36
 *****
-Les agradezco, porque ya no respetan el que esa plaza no es estacionamiento. @UCS_GCDMX
-[Permalink](https://twitter.com/fernandeznorona/status/1527100155635417089) | 49 Me Gusta | 11 Retweets
+La paciente es mujer, va sola y tiene dificultades para respirar. Ustedes en vez de atenderla, le echan encima a la policía. @Tu_IMSS, @zoerobledo esto sucede en la clínica 58 de Santa Mónica.
+[Permalink](https://twitter.com/fernandeznorona/status/1527349265206431753) | 45 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 17:31:33
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 10:02:11
 *****
-Parece que los dueños de los autos se les cae un huevo si caminan tres pasos, en vez de estacionarse en la plaza de Leandro Valle, ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1527099609906020352) | 53 Me Gusta | 9 Retweets
+Oigan @Tu_IMSS, ¿qué les pasa? Hay una paciente en Santa Mónica que está solicitando atención y ustedes en vez de atenderla, quieren sacarla con la policía por un absurdo trámite burocrático. ¿Qué le han aprendido al compañero presidente? @zoerobledo
+[Permalink](https://twitter.com/fernandeznorona/status/1527348911089672192) | 88 Me Gusta | 30 Retweets

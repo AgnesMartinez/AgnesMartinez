@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 07:10:10
+**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 16:27:54
 *****
-Llegando al @senadomexicano desde Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1526943230780121088) | 192 Me Gusta | 21 Retweets
+11,036 en YouTube pero no alcancé a tomar la foto. Dice Facebook que 2236, me están haciendo trampa. Ya se parecen a los que hacen encuestas para decidir las candidaturas.
+[Permalink](https://twitter.com/fernandeznorona/status/1527083592437866496) | 30 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 19:58:50
+**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 16:26:50
 *****
-La Luna.
-[Permalink](https://twitter.com/fernandeznorona/status/1526774284600889344) | 166 Me Gusta | 19 Retweets
+Ahí sigue la policía ni sus luces. @UCS_GCDMX
+[Permalink](https://twitter.com/fernandeznorona/status/1527083322786074624) | 31 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 19:10:25
+**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 14:57:33
 *****
-RT @GobiernoMX: Con una población de 9.2 millones de habitantes, en la Ciudad de México todos los delitos de alto impacto tienen tendencia…
-[Permalink](https://twitter.com/fernandeznorona/status/1526762100139298816) | 0 Me Gusta | 274 Retweets
+RT @epigmenioibarra: A balazos no ha de ser.
+Vendrán de nuevo -ya se escuchan sus diatribas histéricas- charlatanes y profetas a prometer q…
+[Permalink](https://twitter.com/fernandeznorona/status/1527060851345195009) | 0 Me Gusta | 510 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 19:09:35
+**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 14:50:46
 *****
-Aquí te hablan @JRCossio.
-[Permalink](https://twitter.com/fernandeznorona/status/1526761891162300416) | 43 Me Gusta | 11 Retweets
+RT @JesusRCuevas: Ante la demanda de médicos de ser contratados, el presidente @lopezobrador_ anunció que se darán a conocer las convocator…
+[Permalink](https://twitter.com/fernandeznorona/status/1527059144460615681) | 0 Me Gusta | 551 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2022 a las 19:08:38
+**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 14:50:21
 *****
-¿Y para ser un vividor ex ministro de la Corte, que se necesita, @JRCossio?
-[Permalink](https://twitter.com/fernandeznorona/status/1526761653156532224) | 306 Me Gusta | 118 Retweets
+RT @Helioflores_mex: CORTO DE VISTA.
+[Permalink](https://twitter.com/fernandeznorona/status/1527059039758196738) | 0 Me Gusta | 1,260 Retweets

@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 16:27:54
+**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 20:55:30
 *****
-11,036 en YouTube pero no alcancé a tomar la foto. Dice Facebook que 2236, me están haciendo trampa. Ya se parecen a los que hacen encuestas para decidir las candidaturas.
-[Permalink](https://twitter.com/fernandeznorona/status/1527083592437866496) | 30 Me Gusta | 7 Retweets
+RT @alvaro_delgado: “Santo remedio”, de @monerohernandez, en @lajornadaonline
+[Permalink](https://twitter.com/fernandeznorona/status/1527150934064775170) | 0 Me Gusta | 1,915 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 16:26:50
+**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 20:53:01
 *****
-Ahí sigue la policía ni sus luces. @UCS_GCDMX
-[Permalink](https://twitter.com/fernandeznorona/status/1527083322786074624) | 31 Me Gusta | 10 Retweets
+Muchas gracias.
+[Permalink](https://twitter.com/fernandeznorona/status/1527150308194910210) | 32 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 14:57:33
+**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 20:51:27
 *****
-RT @epigmenioibarra: A balazos no ha de ser.
-Vendrán de nuevo -ya se escuchan sus diatribas histéricas- charlatanes y profetas a prometer q…
-[Permalink](https://twitter.com/fernandeznorona/status/1527060851345195009) | 0 Me Gusta | 510 Retweets
+Xacto
+[Permalink](https://twitter.com/fernandeznorona/status/1527149913389338624) | 52 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 14:50:46
+**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 17:33:43
 *****
-RT @JesusRCuevas: Ante la demanda de médicos de ser contratados, el presidente @lopezobrador_ anunció que se darán a conocer las convocator…
-[Permalink](https://twitter.com/fernandeznorona/status/1527059144460615681) | 0 Me Gusta | 551 Retweets
+Les agradezco, porque ya no respetan el que esa plaza no es estacionamiento. @UCS_GCDMX
+[Permalink](https://twitter.com/fernandeznorona/status/1527100155635417089) | 48 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 14:50:21
+**Fernández Noroña** (**@fernandeznorona**) • 18-05-2022 a las 17:31:33
 *****
-RT @Helioflores_mex: CORTO DE VISTA.
-[Permalink](https://twitter.com/fernandeznorona/status/1527059039758196738) | 0 Me Gusta | 1,260 Retweets
+Parece que los dueños de los autos se les cae un huevo si caminan tres pasos, en vez de estacionarse en la plaza de Leandro Valle, ⁦@UCS_GCDMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1527099609906020352) | 48 Me Gusta | 9 Retweets

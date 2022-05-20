@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 10:08:29
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 16:39:00
 *****
-Pero peor es que encima, además de no atenderla, la traten de sacar con la policía. @zoerobledo. A menos que la policía se haya cercado a darle primeros auxilios -obvia ironía-.
-[Permalink](https://twitter.com/fernandeznorona/status/1527350494225747968) | 26 Me Gusta | 12 Retweets
+¿Cuando dicen que fue atendida se refieren al momento en que la iba a sacar la policía del HGZ de @Tu_IMSS o a la posterior atención médica?
+[Permalink](https://twitter.com/fernandeznorona/status/1527448771856064520) | 5 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 10:08:28
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 16:35:39
 *****
-Es absurdo que una mujer, que va sola desde Villa Nicolás Romero A la clínica 58 de Santa Mónica, les dice que tiene dificultades para respirar, no sea atendida bajo el argumento que pase médico está mal hecho. @Tu_IMSS ¿es auto sabotaje? Pero peor es que
-[Permalink](https://twitter.com/fernandeznorona/status/1527350492720173056) | 42 Me Gusta | 17 Retweets
+RT @aura_fdez: Emilio, el dirigente del Frente  Nacional de Acoso y Solidaridad entre Machos.
+[Permalink](https://twitter.com/fernandeznorona/status/1527447928578662413) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 10:04:17
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 16:30:02
 *****
-RT @AnaMendoza1989: @fernandeznorona @Tu_IMSS @zoerobledo Diputado, también está el caso de José Jaime
-[Permalink](https://twitter.com/fernandeznorona/status/1527349438213419008) | 0 Me Gusta | 5 Retweets
+Seré curioso: ¿y que le haces a lo que aprendes, @SergioSarmiento?
+[Permalink](https://twitter.com/fernandeznorona/status/1527446515278569477) | 35 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 10:03:36
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 16:28:01
 *****
-La paciente es mujer, va sola y tiene dificultades para respirar. Ustedes en vez de atenderla, le echan encima a la policía. @Tu_IMSS, @zoerobledo esto sucede en la clínica 58 de Santa Mónica.
-[Permalink](https://twitter.com/fernandeznorona/status/1527349265206431753) | 45 Me Gusta | 24 Retweets
+RT @aura_fdez: Acompaña a @fernandeznorona el próximo lunes 23 de mayo a las 11hrs, en el Auditorio Rosario Castellanos de la UDG. https://…
+[Permalink](https://twitter.com/fernandeznorona/status/1527446006568206336) | 0 Me Gusta | 68 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 10:02:11
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 16:20:21
 *****
-Oigan @Tu_IMSS, ¿qué les pasa? Hay una paciente en Santa Mónica que está solicitando atención y ustedes en vez de atenderla, quieren sacarla con la policía por un absurdo trámite burocrático. ¿Qué le han aprendido al compañero presidente? @zoerobledo
-[Permalink](https://twitter.com/fernandeznorona/status/1527348911089672192) | 88 Me Gusta | 30 Retweets
+RT @Pajaropolitico: En la conferencia mañanera de este jueves, el presidente @lopezobrador_ anunció aumento salarial para policías, soldado…
+[Permalink](https://twitter.com/fernandeznorona/status/1527444077490364426) | 0 Me Gusta | 6 Retweets

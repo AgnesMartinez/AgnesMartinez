@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 03:01:00
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 10:09:33
 *****
-Si es Punta Chueca, Sonora, ahí estuve hace poco con el pueblo Comca’ac. Claro, yo no soy expresidente.
-[Permalink](https://twitter.com/fernandeznorona/status/1527967689687310337) | 17 Me Gusta | 1 Retweets
+RT @Navegaciones: Esta clase de bajezas no debe ser usada contra nadie.
+Repugnante, el tal conejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1528075539218452480) | 0 Me Gusta | 216 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 02:56:19
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 10:05:22
 *****
-Yo me apoyo a mí mismo rumbo al 2024. Ésa foto es 2017 -finales-, con @RicardoMonrealA precandidato al gobierno del D.F.  por @PartidoMorenaMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1527966511834570753) | 12 Me Gusta | 1 Retweets
+Por otra parte, como no se usó el vuelo de venida de la reservación original, se bloqueó el regreso. De hecho, se había perdido, pues yo no sabía que hay que avisar que sí se va a utilizar el regreso. Pero el personal de @Aeromexico fue muy gentil, solidario y diligente conmigo.
+[Permalink](https://twitter.com/fernandeznorona/status/1528074487681277952) | 6 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 02:54:22
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 10:03:54
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1527966019825946625) | 4 Me Gusta | 1 Retweets
+Ya en el aeropuerto. El vuelo viene retrasado, me hubiera dado tiempo de ver que Libros había y platicar un poco más con la gente. Pero no podía adivinar que el vuelo vendría retrasado.
+[Permalink](https://twitter.com/fernandeznorona/status/1528074117412315136) | 10 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:23:07
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 07:18:21
 *****
-Pero cómo lo defendían los periodistas.
-[Permalink](https://twitter.com/fernandeznorona/status/1527897757771608064) | 93 Me Gusta | 31 Retweets
+RT @Navegaciones: Breve oración para gente que viene de la vieja izquierda:
+
+
+Dios mío que no Existes, sálvame de acabar como Ricardo Pascoe…
+[Permalink](https://twitter.com/fernandeznorona/status/1528032456296759296) | 0 Me Gusta | 186 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:22:47
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 07:17:41
 *****
-Y por si no fuera suficiente, hoy García Luna está preso en Nueva York por vínculos con el Chapo Guzmán.
-[Permalink](https://twitter.com/fernandeznorona/status/1527897676829839360) | 61 Me Gusta | 16 Retweets
+RT @chioreya: Verdad priandejos ???
+[Permalink](https://twitter.com/fernandeznorona/status/1528032288348438528) | 0 Me Gusta | 319 Retweets

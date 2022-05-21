@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:11:58
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 03:01:00
 *****
-@AnaMendoza1989 @fiestainn Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1527894954495836161) | 0 Me Gusta | 0 Retweets
+Si es Punta Chueca, Sonora, ahí estuve hace poco con el pueblo Comca’ac. Claro, yo no soy expresidente.
+[Permalink](https://twitter.com/fernandeznorona/status/1527967689687310337) | 17 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:11:49
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 02:56:19
 *****
-Vete a dormir bebé, ya ni escribes bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1527894914750722053) | 0 Me Gusta | 0 Retweets
+Yo me apoyo a mí mismo rumbo al 2024. Ésa foto es 2017 -finales-, con @RicardoMonrealA precandidato al gobierno del D.F.  por @PartidoMorenaMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1527966511834570753) | 12 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:11:02
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 02:54:22
 *****
-Muy contento de haber estado en Aguascalientes. ⁦@Nora_Ruvalcaba⁩ próxima gobernadora. Ardan derechosos.
-[Permalink](https://twitter.com/fernandeznorona/status/1527894717157056512) | 5 Me Gusta | 1 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1527966019825946625) | 4 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:09:35
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:23:07
 *****
-Me entrevistó ⁦@HernanGomezB⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1527894351959015427) | 7 Me Gusta | 1 Retweets
+Pero cómo lo defendían los periodistas.
+[Permalink](https://twitter.com/fernandeznorona/status/1527897757771608064) | 93 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:09:00
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:22:47
 *****
-En Aguascalientes, con la próxima gobernadora ⁦@Nora_Ruvalcaba⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1527894206294933504) | 5 Me Gusta | 1 Retweets
+Y por si no fuera suficiente, hoy García Luna está preso en Nueva York por vínculos con el Chapo Guzmán.
+[Permalink](https://twitter.com/fernandeznorona/status/1527897676829839360) | 61 Me Gusta | 16 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 15:10:26
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:11:58
 *****
-Reunión vecinal en Aguascalientes con ⁦@Nora_Ruvalcaba⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1527788872138121217) | 109 Me Gusta | 22 Retweets
+@AnaMendoza1989 @fiestainn Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1527894954495836161) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 14:42:13
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:11:49
 *****
-Con la próxima gobernadora de Aguascalientes, ⁦@Nora_Ruvalcaba⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1527781771995119619) | 881 Me Gusta | 200 Retweets
+Vete a dormir bebé, ya ni escribes bien.
+[Permalink](https://twitter.com/fernandeznorona/status/1527894914750722053) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 13:22:39
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:11:02
 *****
-RT @AlmaMacurs: En medio de protestas ciudadanas,el Congreso local, mayoría de diputados panistas,aprobó privatizar el servicio de agua pot…
-[Permalink](https://twitter.com/fernandeznorona/status/1527761748379459584) | 0 Me Gusta | 684 Retweets
+Muy contento de haber estado en Aguascalientes. ⁦@Nora_Ruvalcaba⁩ próxima gobernadora. Ardan derechosos.
+[Permalink](https://twitter.com/fernandeznorona/status/1527894717157056512) | 5 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 13:22:28
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:09:35
 *****
-Si ya estás intrigando contra @Nora_Ruvalcaba es que mi amiga y compañera de lucha será la próxima gobernadora de Aguascalientes. ¡Bien! #Loretito @CarlosLoret.
-[Permalink](https://twitter.com/fernandeznorona/status/1527761702036688900) | 263 Me Gusta | 86 Retweets
+Me entrevistó ⁦@HernanGomezB⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1527894351959015427) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 13:20:29
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 22:09:00
 *****
-De acuerdo. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1527761200104235010) | 25 Me Gusta | 4 Retweets
+En Aguascalientes, con la próxima gobernadora ⁦@Nora_Ruvalcaba⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1527894206294933504) | 5 Me Gusta | 1 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 18:33:56
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 15:10:26
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1527477696795553792) | 32 Me Gusta | 3 Retweets
+Reunión vecinal en Aguascalientes con ⁦@Nora_Ruvalcaba⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1527788872138121217) | 109 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 18:21:20
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 14:42:13
 *****
-Eres un subnormal, que te las des de gente pensante y es miserable que uses el término Ninis, @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1527474523678834701) | 216 Me Gusta | 70 Retweets
+Con la próxima gobernadora de Aguascalientes, ⁦@Nora_Ruvalcaba⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1527781771995119619) | 881 Me Gusta | 200 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 18:16:43
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 13:22:39
 *****
-Es una Tlacuacha y trae una cría en su marsupio.
-[Permalink](https://twitter.com/fernandeznorona/status/1527473361521082369) | 247 Me Gusta | 25 Retweets
+RT @AlmaMacurs: En medio de protestas ciudadanas,el Congreso local, mayoría de diputados panistas,aprobó privatizar el servicio de agua pot…
+[Permalink](https://twitter.com/fernandeznorona/status/1527761748379459584) | 0 Me Gusta | 684 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 18:08:23
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 13:22:28
 *****
-De esto hay que ocuparse, no de las amenazas simplonas de dizque compañeros.
-[Permalink](https://twitter.com/fernandeznorona/status/1527471266378153989) | 203 Me Gusta | 81 Retweets
+Si ya estás intrigando contra @Nora_Ruvalcaba es que mi amiga y compañera de lucha será la próxima gobernadora de Aguascalientes. ¡Bien! #Loretito @CarlosLoret.
+[Permalink](https://twitter.com/fernandeznorona/status/1527761702036688900) | 263 Me Gusta | 86 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2022 a las 18:07:04
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2022 a las 13:20:29
 *****
-La pelea que no fue. Teófilo Stevenson y Muhammad Ali.
-[Permalink](https://twitter.com/fernandeznorona/status/1527470934348771328) | 104 Me Gusta | 26 Retweets
+De acuerdo. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1527761200104235010) | 25 Me Gusta | 4 Retweets

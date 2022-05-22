@@ -1,30 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 10:09:33
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 14:00:03
 *****
-RT @Navegaciones: Esta clase de bajezas no debe ser usada contra nadie.
-Repugnante, el tal conejo.
-[Permalink](https://twitter.com/fernandeznorona/status/1528075539218452480) | 0 Me Gusta | 216 Retweets
+No haré la video charla a las seis de la tarde, no hay manera. Apenas en unos minutos saldré rumbo a Puebla. Daré por la noche, hacia las 9: 30 desde Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1528133548510543872) | 147 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 10:05:22
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 13:38:18
 *****
-Por otra parte, como no se usó el vuelo de venida de la reservación original, se bloqueó el regreso. De hecho, se había perdido, pues yo no sabía que hay que avisar que sí se va a utilizar el regreso. Pero el personal de @Aeromexico fue muy gentil, solidario y diligente conmigo.
-[Permalink](https://twitter.com/fernandeznorona/status/1528074487681277952) | 6 Me Gusta | 1 Retweets
+Salimos tarde de Aguascalientes y casi una hora porque nos tocó posición remota. Pero se niegan a usar el @aifa_aeropuerto. Ya vamos rumbo a Puebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1528128075057180672) | 218 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 10:03:54
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 13:07:21
 *****
-Ya en el aeropuerto. El vuelo viene retrasado, me hubiera dado tiempo de ver que Libros había y platicar un poco más con la gente. Pero no podía adivinar que el vuelo vendría retrasado.
-[Permalink](https://twitter.com/fernandeznorona/status/1528074117412315136) | 10 Me Gusta | 3 Retweets
+RT @MBarbosaMX: Envío mis más sentidas condolencias a la familia, seres queridos y compañeros ante el sensible fallecimiento de la Mtra. Mi…
+[Permalink](https://twitter.com/fernandeznorona/status/1528120285827768321) | 0 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 07:18:21
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 12:17:54
 *****
-RT @Navegaciones: Breve oración para gente que viene de la vieja izquierda:
+RT @lximenezsarro: 🚨 ÚLTIMA HORA 🚨
 
 
-Dios mío que no Existes, sálvame de acabar como Ricardo Pascoe…
-[Permalink](https://twitter.com/fernandeznorona/status/1528032456296759296) | 0 Me Gusta | 186 Retweets
+Después de experimentar un dolor de cabeza intenso, decidí hacerme una prueba PCR. Quiero informarle qu…
+[Permalink](https://twitter.com/fernandeznorona/status/1528107840979673088) | 0 Me Gusta | 325 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 07:17:41
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 12:17:25
 *****
-RT @chioreya: Verdad priandejos ???
-[Permalink](https://twitter.com/fernandeznorona/status/1528032288348438528) | 0 Me Gusta | 319 Retweets
+RT @Julianatilano: ¿Esta es la lección que nos querían dar quienes votaron en contra de Morena en la Cuauhtémoc?
+[Permalink](https://twitter.com/fernandeznorona/status/1528107717352517632) | 0 Me Gusta | 107 Retweets

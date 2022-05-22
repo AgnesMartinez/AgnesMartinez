@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 07:47:24
+*****
+Soy totalmente Palacio…Legislativo.
+[Permalink](https://twitter.com/fernandeznorona/status/1528402153475297282) | 248 Me Gusta | 36 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 07:35:51
+*****
+Nativitas.
+[Permalink](https://twitter.com/fernandeznorona/status/1528399245497221120) | 63 Me Gusta | 11 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 07:34:43
+*****
+No nos parecemos, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1528398960464842752) | 39 Me Gusta | 3 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 07:25:20
+*****
+Reunión desayuno Nopalucan, Tlaxcala. Tocó una orquesta mayoritariamente de niños y jóvenes del lugar. Muy agradecido. Ya vamos camino a la primera asamblea en Nativitas.
+[Permalink](https://twitter.com/fernandeznorona/status/1528396601013719044) | 187 Me Gusta | 28 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 20:32:18
 *****
 8830 en Facebook y, 8729 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1528232258049560577) | 77 Me Gusta | 10 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 18:40:15
-*****
-Vamos saliendo de Puebla rumbo a Tlaxcala.
-[Permalink](https://twitter.com/fernandeznorona/status/1528204062658789376) | 265 Me Gusta | 24 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 18:39:56
-*****
-La videocharla será 10:20 de la noche
-[Permalink](https://twitter.com/fernandeznorona/status/1528203980823793665) | 141 Me Gusta | 17 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 17:10:48
-*****
-De acuerdo.
-[Permalink](https://twitter.com/fernandeznorona/status/1528181548788420608) | 55 Me Gusta | 10 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2022 a las 14:00:03
-*****
-No haré la video charla a las seis de la tarde, no hay manera. Apenas en unos minutos saldré rumbo a Puebla. Daré por la noche, hacia las 9: 30 desde Tlaxcala.
-[Permalink](https://twitter.com/fernandeznorona/status/1528133548510543872) | 287 Me Gusta | 57 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1528232258049560577) | 109 Me Gusta | 15 Retweets

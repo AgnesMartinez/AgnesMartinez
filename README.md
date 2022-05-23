@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 16:24:47
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 20:16:48
 *****
-Salimos de Papalotla rumbo al D.F.
-[Permalink](https://twitter.com/fernandeznorona/status/1528532358579769344) | 60 Me Gusta | 6 Retweets
+Es un irresponsable.
+[Permalink](https://twitter.com/fernandeznorona/status/1528590747640991746) | 79 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 16:05:29
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 20:13:39
 *****
-6600 en Facebook y, 8108 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1528527499902197760) | 44 Me Gusta | 6 Retweets
+Apenas en casa y mañana deberé salir 6:30 de la mañana rumbo al aeropuerto para viajar a Guadalajara. Estaré en el CUSH de la UdeG a las 11 AM. Por cierto, me dijeron que a la misma hora, hay un evento en defensa del @INEMexico en rectoría con @lorenzocordovav.
+[Permalink](https://twitter.com/fernandeznorona/status/1528589952614809600) | 129 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 13:29:42
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 18:34:56
 *****
-Papalotla, Tlax.
-[Permalink](https://twitter.com/fernandeznorona/status/1528488296573288454) | 175 Me Gusta | 33 Retweets
+Sip, buena foto.
+[Permalink](https://twitter.com/fernandeznorona/status/1528565110331121665) | 31 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 13:00:01
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 16:50:31
 *****
-Fortísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1528480826811367425) | 47 Me Gusta | 5 Retweets
+Nativitas, Tlax.
+[Permalink](https://twitter.com/fernandeznorona/status/1528538832529932288) | 162 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 12:58:44
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2022 a las 16:50:00
 *****
-RT @SupsipS: Un tipo en Guadalajara arrojó ácido sobre personas que esperaban el camión.
-Una niña de 5 años tiene quemaduras en el rostro.…
-[Permalink](https://twitter.com/fernandeznorona/status/1528480501677293571) | 0 Me Gusta | 57 Retweets
+Nativitas, Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1528538705547468805) | 55 Me Gusta | 10 Retweets

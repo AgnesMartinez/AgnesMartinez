@@ -1,26 +1,34 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 04:16:22
+**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 06:36:20
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1529073819771555840) | 0 Me Gusta | 0 Retweets
+No sabía que era médico. Gracias por informarnos.
+[Permalink](https://twitter.com/fernandeznorona/status/1529109046048980993) | 89 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 04:15:21
+**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 06:28:26
 *****
-@JBQCometeotl @ZuritaCarpio @ocadi5 @dinomadridmx Has cuestionado.
-[Permalink](https://twitter.com/fernandeznorona/status/1529073564657143808) | 0 Me Gusta | 0 Retweets
+RT @Faitelson_ESPN: Salarios promedio mensuales de futbolistas en México:
+Varones: 640 mil pesos…
+Mujeres: 3,500 pesos…
+[Permalink](https://twitter.com/fernandeznorona/status/1529107058670247938) | 0 Me Gusta | 1,860 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 04:13:32
+**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 06:26:36
 *****
-Solo interna, entre el propio grupo de apoyo. Seguro disputan quién es más puro.
-[Permalink](https://twitter.com/fernandeznorona/status/1529073106857316353) | 3 Me Gusta | 0 Retweets
+RT @lximenezsarro: 🚨EUREKA🚨
+
+
+He descubierto la cura del cáncer. Es muy simple.
+
+
+Hay que evitar que los niños nazcan entre el 21 de junio y…
+[Permalink](https://twitter.com/fernandeznorona/status/1529106594155274240) | 0 Me Gusta | 115 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 04:10:21
+**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 06:20:29
 *****
-‘En Baltimore la cerveza nos llega a la altura de las rodillas. Empiezo a creer en el poder de la oración’, le escribía Mencken Scott Fitzgerald en la década de la prohibición de venta de alcohol en Estados Unidos.
-[Permalink](https://twitter.com/fernandeznorona/status/1529072308760915968) | 2 Me Gusta | 0 Retweets
+Aterrizamos en Los Mochis. En un primer intento, el avión de @viajaVolaris no pudo aterrizar, tuvo que elevarse nuevamente y nadie hace un escándalo de un posible accidente, ni de un rediseño del espacio aéreo. Pandilla de farsantes.
+[Permalink](https://twitter.com/fernandeznorona/status/1529105057135747072) | 664 Me Gusta | 174 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 03:57:55
+**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 04:45:40
 *****
-Hipócrita como tú, se entienden a la perfección @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1529069176903507969) | 31 Me Gusta | 10 Retweets
+A punto de salir de Guadalajara rumbo a  Los Mochis.
+[Permalink](https://twitter.com/fernandeznorona/status/1529081196189143041) | 145 Me Gusta | 14 Retweets

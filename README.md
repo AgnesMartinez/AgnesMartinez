@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-05-2022 a las 10:09:46
+**Fernández Noroña** (**@fernandeznorona**) • 23-05-2022 a las 16:11:12
 *****
-Y Oaxaca. Si el objetivo de @alitomorenoc es desaparecer al @PRI_Nacional, lo está logrando de manera impresionante. ¡Alito, Alito!
-[Permalink](https://twitter.com/fernandeznorona/status/1528800370775973888) | 2 Me Gusta | 1 Retweets
+@ZuritaCarpio @Luna_Tagg Dizque.
+[Permalink](https://twitter.com/fernandeznorona/status/1528891328620220416) | 7 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-05-2022 a las 09:54:12
+**Fernández Noroña** (**@fernandeznorona**) • 23-05-2022 a las 16:10:43
 *****
-Mientras tanto, @lorenzocordovav defiende su sueldo y su militancia paniaguada en la UdeG. @INEMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1528796453161914368) | 63 Me Gusta | 16 Retweets
+9193 en Facebook y, 6998 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1528891207144726528) | 36 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-05-2022 a las 09:53:06
+**Fernández Noroña** (**@fernandeznorona**) • 23-05-2022 a las 13:41:00
 *****
-Ustedes creerían que nunca saldría a Guadalajara, pues no. ⁦@VivaAerobus⁩ saldrá. Tarde y con sueño.
-[Permalink](https://twitter.com/fernandeznorona/status/1528796174731329537) | 25 Me Gusta | 4 Retweets
+@jibarra889 @LizMu1234 @ramooonvqz Mamoncito.
+[Permalink](https://twitter.com/fernandeznorona/status/1528853528940204033) | 6 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-05-2022 a las 09:52:04
+**Fernández Noroña** (**@fernandeznorona**) • 23-05-2022 a las 11:21:58
 *****
-Aleluya, aleluya, aleluya…@VivaAerobus saldrá, aunque usted no lo crea.
-[Permalink](https://twitter.com/fernandeznorona/status/1528795913464041472) | 18 Me Gusta | 4 Retweets
+En el camioncito vip del aeropuerto en Guadalajara.
+[Permalink](https://twitter.com/fernandeznorona/status/1528818538009481222) | 131 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-05-2022 a las 09:49:16
+**Fernández Noroña** (**@fernandeznorona**) • 23-05-2022 a las 11:20:39
 *****
-Ahí lo dice clarísimo, flexibilidad en sus salidas. ⁦@VivaAerobus⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1528795212507762696) | 14 Me Gusta | 1 Retweets
+@JesusRi21432937 Hecho.
+[Permalink](https://twitter.com/fernandeznorona/status/1528818206269382656) | 14 Me Gusta | 0 Retweets

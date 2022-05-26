@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 16:22:54
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 20:57:15
 *****
-Estación Naranjo, Sinaloa de Leyva.
-[Permalink](https://twitter.com/fernandeznorona/status/1529619048866238464) | 50 Me Gusta | 8 Retweets
+Uh.
+[Permalink](https://twitter.com/fernandeznorona/status/1529688089588817920) | 22 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 16:11:04
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 20:56:19
 *****
-9892 en Facebook y, 8088 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1529616069605961731) | 39 Me Gusta | 6 Retweets
+Ya en el hotel, mañana saldremos siete de la mañana rumbo a Culiacán desde Guasave.
+[Permalink](https://twitter.com/fernandeznorona/status/1529687853818576897) | 91 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 12:59:05
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 19:44:41
 *****
-De las 8:00 AM que saldría @VivaAerobus a Guadalajara el pasado lunes salimos a la una de la tarde. No dieron ni agua gratis en el vuelo.
-[Permalink](https://twitter.com/fernandeznorona/status/1529567756596682753) | 64 Me Gusta | 20 Retweets
+Apenas vamos de Sinaloa de Leyva rumbo a Guasave. Saldremos muy temprano rumbo a Culiacán, por ahí de las siete de la mañana.
+[Permalink](https://twitter.com/fernandeznorona/status/1529669828457504769) | 177 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 12:14:48
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 18:08:32
 *****
-Oye pazguato, hoy no es cumpleaños de @Nora_Ruvalcaba. @MarkoCortes.
-[Permalink](https://twitter.com/fernandeznorona/status/1529556608908414982) | 127 Me Gusta | 27 Retweets
+¿Quién dice semejante tontería?
+[Permalink](https://twitter.com/fernandeznorona/status/1529645631073034242) | 46 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 12:11:09
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 18:07:22
 *****
-RT @epigmenioibarra: El PRI y el PRD, partidos en extinción, 
-se juegan en Hidalgo,Oaxaca y Quintana Roo lo que les queda de vida. Perder A…
-[Permalink](https://twitter.com/fernandeznorona/status/1529555694051110913) | 0 Me Gusta | 1,040 Retweets
+Sinaloa de Leyva.
+[Permalink](https://twitter.com/fernandeznorona/status/1529645337337528320) | 70 Me Gusta | 15 Retweets

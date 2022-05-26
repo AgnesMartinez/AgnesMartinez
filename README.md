@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 19:38:34
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 16:22:54
 *****
-Uh, qué dura crítica Georgie Boy @jorgeramosnews. Me imagino que si eso sucediera en México, serías igual en la crítica hacia el compañero presidente @lopezobrador_. Farsante.
-[Permalink](https://twitter.com/fernandeznorona/status/1529305902544658432) | 405 Me Gusta | 125 Retweets
+Estación Naranjo, Sinaloa de Leyva.
+[Permalink](https://twitter.com/fernandeznorona/status/1529619048866238464) | 50 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 19:12:55
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 16:11:04
 *****
-La verdad es que el gobierno de Estados Unidos es muy hipócrita. Es el primero que debería aplicarse lo que la funcionaria dice.
-[Permalink](https://twitter.com/fernandeznorona/status/1529299443912015872) | 120 Me Gusta | 34 Retweets
+9892 en Facebook y, 8088 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1529616069605961731) | 39 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 19:06:55
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 12:59:05
 *****
-¡Qué bueno que tú si eres respetuoso!
-[Permalink](https://twitter.com/fernandeznorona/status/1529297934042341376) | 67 Me Gusta | 13 Retweets
+De las 8:00 AM que saldría @VivaAerobus a Guadalajara el pasado lunes salimos a la una de la tarde. No dieron ni agua gratis en el vuelo.
+[Permalink](https://twitter.com/fernandeznorona/status/1529567756596682753) | 64 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 17:20:39
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 12:14:48
 *****
-Así al inicio en Los Mochis.
-[Permalink](https://twitter.com/fernandeznorona/status/1529271193391480832) | 255 Me Gusta | 50 Retweets
+Oye pazguato, hoy no es cumpleaños de @Nora_Ruvalcaba. @MarkoCortes.
+[Permalink](https://twitter.com/fernandeznorona/status/1529556608908414982) | 127 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2022 a las 17:07:01
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2022 a las 12:11:09
 *****
-Ahome -Los Mochis-, Sinaloa.
-[Permalink](https://twitter.com/fernandeznorona/status/1529267760445935617) | 125 Me Gusta | 23 Retweets
+RT @epigmenioibarra: El PRI y el PRD, partidos en extinción, 
+se juegan en Hidalgo,Oaxaca y Quintana Roo lo que les queda de vida. Perder A…
+[Permalink](https://twitter.com/fernandeznorona/status/1529555694051110913) | 0 Me Gusta | 1,040 Retweets

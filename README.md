@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 12:55:07
+**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 19:34:59
 *****
-El Bonzo | El Heraldo de México. Les comparto mi columna de hoy en ⁦@heraldodemexico⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1529929143172972551) | 30 Me Gusta | 13 Retweets
+7071 en Facebook y, 4646 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1530029774487306242) | 50 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 12:54:22
+**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 17:42:28
 *****
-Vamos saliendo de Badiraguato rumbo al aeropuerto de Culiacán. Una muy agradable sorpresa el alcalde José Paz.
-[Permalink](https://twitter.com/fernandeznorona/status/1529928955561639938) | 211 Me Gusta | 32 Retweets
+Qué bien que nos recuerdas la misma vara. Ahora siéntate a realizar la investigación, monaguillo @CiroMurayamaINE.
+[Permalink](https://twitter.com/fernandeznorona/status/1530001457016999936) | 123 Me Gusta | 43 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 11:50:22
+**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 17:41:01
 *****
-Badiraguato, Sin.
-[Permalink](https://twitter.com/fernandeznorona/status/1529912850801643533) | 75 Me Gusta | 12 Retweets
+Pero si @alitomorenoc no amenazó a nadie. Solo comentó lo que fueron las políticas neoliberales aplicadas en este caso al gremio periodístico. ¿Verdá Alito?
+[Permalink](https://twitter.com/fernandeznorona/status/1530001094939537414) | 131 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 10:35:46
+**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 17:38:57
 *****
-Badiraguato, Sin.
-[Permalink](https://twitter.com/fernandeznorona/status/1529894074987126784) | 112 Me Gusta | 15 Retweets
+Yo. La oposición ganará seis de seis zapaterías electorales.@NachoMierV.
+[Permalink](https://twitter.com/fernandeznorona/status/1530000573898010624) | 52 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 08:47:03
+**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 17:36:54
 *****
-Vamos tarde a Badiraguato saliendo de Culiacán.
-[Permalink](https://twitter.com/fernandeznorona/status/1529866718507520004) | 226 Me Gusta | 19 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1530000059701645317) | 23 Me Gusta | 0 Retweets

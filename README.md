@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 02:52:40
+**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 09:15:28
 *****
-Aquí el mono eres tú, con viruela o sin viruela.
-[Permalink](https://twitter.com/fernandeznorona/status/1530139922040082434) | 71 Me Gusta | 14 Retweets
+En Pinotepa Nacional, apoyando a ⁦@salomonj⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1530236255329521672) | 62 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 02:47:22
+**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 07:34:13
 *****
-Ya en el avión de @VivaAerobus para salir del D.F. a Puerto Escondido. De ahí, por tierra a Pinotepa Nacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1530138588993789952) | 41 Me Gusta | 4 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1530210774429405189) | 52 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 02:11:47
+**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 07:33:02
 *****
-Ya estamos en el @AICM_mx para viajar a Puerto Escondido y de ahí, por tierra, ah Pinotepa Nacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1530129631034195973) | 122 Me Gusta | 16 Retweets
+RT @_BrendaEspinoza: ¿¿Quien me ayuda a llegar a los 15 mil seguidores?? 
+Solo mujeres y hombres morenistas y obradoristas 
+‼️Síganme y los…
+[Permalink](https://twitter.com/fernandeznorona/status/1530210479620165632) | 0 Me Gusta | 55 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 19:34:59
+**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 07:16:42
 *****
-7071 en Facebook y, 4646 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1530029774487306242) | 61 Me Gusta | 9 Retweets
+Ya estoy en Pinotepa Nacional.
+[Permalink](https://twitter.com/fernandeznorona/status/1530206365385428995) | 206 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-05-2022 a las 17:42:28
+**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 04:35:55
 *****
-Qué bien que nos recuerdas la misma vara. Ahora siéntate a realizar la investigación, monaguillo @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1530001457016999936) | 145 Me Gusta | 51 Retweets
+Pues el crimen organizado gobierna Tamaulipas a través de los paniaguados y de cabeza de huevo @fgcabezadevaca. En verdad la oposición son de un cinismo impresionante. @AccionNacional.
+[Permalink](https://twitter.com/fernandeznorona/status/1530165903442300928) | 215 Me Gusta | 77 Retweets

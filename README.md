@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 08:24:42
+*****
+RT @EvaMont30455776: ¡ Reflexión 3 !
+[Permalink](https://twitter.com/fernandeznorona/status/1530585868800512000) | 0 Me Gusta | 17 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 07:40:27
+*****
+Ahí @UCS_GCDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1530574733229674496) | 38 Me Gusta | 8 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 07:22:49
+*****
+Otro que confunde la plaza de Leandro Valle con estacionamiento
+[Permalink](https://twitter.com/fernandeznorona/status/1530570296217985026) | 58 Me Gusta | 9 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 06:17:33
+*****
+RT @MAKIALOBO: @xX_DarkAdria_Xx @CiroMurayamaINE Te va a contestar así. 👇
+[Permalink](https://twitter.com/fernandeznorona/status/1530553870778253312) | 0 Me Gusta | 41 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 19:19:54
 *****
 Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1530388366302273536) | 78 Me Gusta | 9 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 19:17:49
-*****
-Encima posición remota. Saldremos a las 11 de la noche, cuando el vuelo debió haber llegado 7:25 D.F. si hubiéramos viajado por el @aifa_aeropuerto, máximo habría llegado a las nueve de la noche a mi casa.
-[Permalink](https://twitter.com/fernandeznorona/status/1530387840240164865) | 81 Me Gusta | 13 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 19:14:32
-*****
-Aquí seguimos espera y aguarda. La saturación del @AICM_mx ya es por la necedad de las aerolíneas a mover un porcentaje importante de sus vuelos al @aifa_aeropuerto. Hoy esperamos dos horas en un espacio muy reducido en el aeropuerto de Puerto Escondido.
-[Permalink](https://twitter.com/fernandeznorona/status/1530387014465605634) | 82 Me Gusta | 17 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 19:08:16
-*****
-Justo lo que tú promueves, señor Xjr, es la pobreza, la corrupción y la impunidad, farsante. @ClaudioXGG
-[Permalink](https://twitter.com/fernandeznorona/status/1530385437809905667) | 190 Me Gusta | 60 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 19:07:05
-*****
-Insuficiente para contribuir a evitar la saturación del @AICM_mx. Espero volver pronto por el @aifa_aeropuerto.
-[Permalink](https://twitter.com/fernandeznorona/status/1530385139473207301) | 31 Me Gusta | 7 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1530388366302273536) | 96 Me Gusta | 12 Retweets

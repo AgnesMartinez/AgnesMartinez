@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 22:37:11
+*****
+A dormir. Mañana estaré en el cierre de @MarinaVitela_ y @gonzaloyanez en Durango.
+[Permalink](https://twitter.com/fernandeznorona/status/1530800401502683140) | 103 Me Gusta | 15 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 22:35:18
+*****
+Con la precisión que no fue presidente, usurpó la presidencia que es diferente. ¿Verdad Tomandante Iberdrola alias @FelipeCalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1530799929320476672) | 63 Me Gusta | 13 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 22:32:33
+*****
+Naa, no hay tal escasez. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1530799236547223553) | 26 Me Gusta | 1 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 22:28:52
+*****
+En Durango capital.
+[Permalink](https://twitter.com/fernandeznorona/status/1530798311451545600) | 85 Me Gusta | 6 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 19:58:19
 *****
 10,097 en Facebook y, 9687 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1530760423930208256) | 44 Me Gusta | 4 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 17:48:56
-*****
-Ya aterrizamos en Durango.
-[Permalink](https://twitter.com/fernandeznorona/status/1530727861396688903) | 374 Me Gusta | 22 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 16:30:19
-*****
-‘Aquí en la montaña no existe la religión, aquí sólo existe la ayuda mutua; ese es el dios de la montaña’.
-[Permalink](https://twitter.com/fernandeznorona/status/1530708077728743426) | 50 Me Gusta | 10 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 16:15:00
-*****
-No. Estás diciendo simplonerías. Es increíble como compañeros pensantes caen fácilmente en la despolitización.
-[Permalink](https://twitter.com/fernandeznorona/status/1530704220885766144) | 46 Me Gusta | 8 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 16:12:59
-*****
-Por fin saldremos a Durango.
-[Permalink](https://twitter.com/fernandeznorona/status/1530703715065372673) | 108 Me Gusta | 5 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1530760423930208256) | 60 Me Gusta | 4 Retweets

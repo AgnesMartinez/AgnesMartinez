@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 08:24:42
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 16:30:19
 *****
-RT @EvaMont30455776: ¡ Reflexión 3 !
-[Permalink](https://twitter.com/fernandeznorona/status/1530585868800512000) | 0 Me Gusta | 17 Retweets
+‘Aquí en la montaña no existe la religión, aquí sólo existe la ayuda mutua; ese es el dios de la montaña’.
+[Permalink](https://twitter.com/fernandeznorona/status/1530708077728743426) | 11 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 07:40:27
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 16:15:00
 *****
-Ahí @UCS_GCDMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1530574733229674496) | 38 Me Gusta | 8 Retweets
+No. Estás diciendo simplonerías. Es increíble como compañeros pensantes caen fácilmente en la despolitización.
+[Permalink](https://twitter.com/fernandeznorona/status/1530704220885766144) | 13 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 07:22:49
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 16:12:59
 *****
-Otro que confunde la plaza de Leandro Valle con estacionamiento
-[Permalink](https://twitter.com/fernandeznorona/status/1530570296217985026) | 58 Me Gusta | 9 Retweets
+Por fin saldremos a Durango.
+[Permalink](https://twitter.com/fernandeznorona/status/1530703715065372673) | 39 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 06:17:33
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 15:59:18
 *****
-RT @MAKIALOBO: @xX_DarkAdria_Xx @CiroMurayamaINE Te va a contestar así. 👇
-[Permalink](https://twitter.com/fernandeznorona/status/1530553870778253312) | 0 Me Gusta | 41 Retweets
+Comenta el piloto de @Aeromexico que el retraso es debido a que no llega la pipa a abastecer de combustible en @AICM_mx ; que no es imputable a la aerolínea. Si es, porque se niegan a usar el @aifa_aeropuerto a pesar de la bárbara saturación del Benito Juárez.
+[Permalink](https://twitter.com/fernandeznorona/status/1530700271332081664) | 65 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2022 a las 19:19:54
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 15:55:14
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1530388366302273536) | 96 Me Gusta | 12 Retweets
+Ahora llevamos 45 minutos de espera en @AICM_mx porque la pipa no ha cargado de combustible al avión de @Aeromexico. Pero siguen saboteando el @aifa_aeropuerto.
+[Permalink](https://twitter.com/fernandeznorona/status/1530699248328753152) | 168 Me Gusta | 39 Retweets

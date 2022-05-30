@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 08:14:02
+**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 14:59:10
 *****
-RT @danielmterres: Si tu empatía solo alcanza para con los animales, tu empatía es muy pequeñita. Como patología, incluso, se llama misantr…
-[Permalink](https://twitter.com/fernandeznorona/status/1530945572781408258) | 0 Me Gusta | 15 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1531047527121924097) | 95 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 08:10:34
+**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 14:58:47
 *****
-Por que se necesita un avión para volar, no seas pendejo.
-[Permalink](https://twitter.com/fernandeznorona/status/1530944699707580416) | 182 Me Gusta | 26 Retweets
+Porque @PartidoMorenaMx planteó que se fuera separados. Simple. ¿Pregúntale a @mario_delgado? Aún en este marco, yo he llamado a votar por @Nora_Ruvalcaba.
+[Permalink](https://twitter.com/fernandeznorona/status/1531047429415620608) | 64 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 07:32:59
+**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 14:46:51
 *****
-RT @jgnaredo: La candidata del PRIAN en Aguascalientes, @TereJimenezE, se desmoronó: inició campaña con más de 20 puntos arriba de @Nora_Ru…
-[Permalink](https://twitter.com/fernandeznorona/status/1530935240520306697) | 0 Me Gusta | 704 Retweets
+Francamente que el #TomandanreBorolas alias @FelipeCalderon esté en Mónaco y celebre con @SChecoPerez, es insustancial.
+[Permalink](https://twitter.com/fernandeznorona/status/1531044426801369090) | 468 Me Gusta | 73 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 22:37:11
+**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 14:33:18
 *****
-A dormir. Mañana estaré en el cierre de @MarinaVitela_ y @gonzaloyanez en Durango.
-[Permalink](https://twitter.com/fernandeznorona/status/1530800401502683140) | 352 Me Gusta | 43 Retweets
+Lo único que le molesto a tu líder, el #TomandanteBorolas alias @FelipeCalderon, es que la alberca no fuera de champaña.
+[Permalink](https://twitter.com/fernandeznorona/status/1531041018589609989) | 303 Me Gusta | 63 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2022 a las 22:35:18
+**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 14:30:46
 *****
-Con la precisión que no fue presidente, usurpó la presidencia que es diferente. ¿Verdad Tomandante Iberdrola alias @FelipeCalderon?
-[Permalink](https://twitter.com/fernandeznorona/status/1530799929320476672) | 128 Me Gusta | 30 Retweets
+RT @adela_bicha: Si pueden darse una vuelta a Sabino 255 que cada semana tiene volumen de música alto
+[Permalink](https://twitter.com/fernandeznorona/status/1531040380724170752) | 0 Me Gusta | 4 Retweets

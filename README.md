@@ -1,32 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 21:37:30
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 09:02:36
 *****
-RT @PepetonD: Tras 1 y 1/2 hr escuchando grabadora @AM_Escucha esperando se digne contestar un ser humano, la Srita BELEN ESPINOZA informa…
-[Permalink](https://twitter.com/fernandeznorona/status/1531147772367630337) | 0 Me Gusta | 16 Retweets
+Se tardaron, la buena fe se había terminado desde hace mucho. Saludos.
+[Permalink](https://twitter.com/fernandeznorona/status/1531320181133393920) | 163 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 21:37:26
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 08:22:01
 *****
-Se pasa @Aeromexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1531147754940076032) | 37 Me Gusta | 6 Retweets
+RT @lopezobrador_: Recibí a las autoridades de la comunidad wixárika. Estamos ayudando a resolver sus añejos problemas agrarios. Es un asun…
+[Permalink](https://twitter.com/fernandeznorona/status/1531309970167406594) | 0 Me Gusta | 1,849 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 21:24:21
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 08:21:47
 *****
-Naa, la gente no sabe el contexto en el que se dio esa decisión. Fue correcta, sin esa táctica nos hubieran robado la delegación Iztapalapa en 2009.
-[Permalink](https://twitter.com/fernandeznorona/status/1531144463019556870) | 48 Me Gusta | 3 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 21:19:10
-*****
-RT @JulietaRamirezP: Nuestro movimiento es sinónimo de lucha, de trabajo, de unión y de compromiso. 
+RT @LOVREGA: Se llama Ana Michelle Gómez Gómez, está desaparecida.
 
 
-Al PRIAN ya se le acabó su tiempo, el…
-[Permalink](https://twitter.com/fernandeznorona/status/1531143154765910017) | 0 Me Gusta | 36 Retweets
+Ayudemos a encontrarla.
+[Permalink](https://twitter.com/fernandeznorona/status/1531309911568793601) | 0 Me Gusta | 202 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-05-2022 a las 21:17:57
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 08:21:05
 *****
-RT @MarinaVitela_: No podía ser de otra forma: 
-
-
-¡Todo el pueblo reunido esta tarde en la capital duranguense para celebrar la victoria del…
-[Permalink](https://twitter.com/fernandeznorona/status/1531142850699833344) | 0 Me Gusta | 109 Retweets
+Ppffrr.
+[Permalink](https://twitter.com/fernandeznorona/status/1531309733575118849) | 25 Me Gusta | 2 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 08:19:28
+*****
+RT @Marilu86053: 😂😂😂💕🐈💕
+[Permalink](https://twitter.com/fernandeznorona/status/1531309325083414529) | 0 Me Gusta | 6 Retweets

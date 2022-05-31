@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 20:42:39
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 09:46:16
 *****
-“Una causa minoritaria de insumisión puede llegar a ser respetable. Una causa individual, no.” Cristina Morales.
-[Permalink](https://twitter.com/fernandeznorona/status/1531496353926418432) | 58 Me Gusta | 9 Retweets
+Y tú celebras que se use a un indigente para intentar insultar a una persona. Son finísimos, debate de altura la de la señora @LillyTellez. Si yo le respondiera de esa manera, dirían que es violencia política de género. Son profundamente hipócritas.
+[Permalink](https://twitter.com/fernandeznorona/status/1531693558679236608) | 343 Me Gusta | 107 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 20:38:03
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 09:08:21
 *****
-Un abrazote solidario.
-[Permalink](https://twitter.com/fernandeznorona/status/1531495196277592066) | 74 Me Gusta | 5 Retweets
+RT @Arman_doCA: Durante el gob d Teresa Jiménez Esquivel, Aguascalientes hizo compromiso ¡POR 30 AÑOS! con empresa neolonés ‘Next Energy’ p…
+[Permalink](https://twitter.com/fernandeznorona/status/1531684015513772035) | 0 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 20:37:18
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 08:45:17
 *****
-@DanielaLunera @lopezobrador_ Decisión.
-[Permalink](https://twitter.com/fernandeznorona/status/1531495008754454529) | 89 Me Gusta | 1 Retweets
+¡Me preocupa la estrategia de abrazos y no balazos! Y dice apoyar al compañero presidente. Encima, usa en su cuenta una fotografía de hace 20 años, con retoque.
+[Permalink](https://twitter.com/fernandeznorona/status/1531678210282364930) | 44 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 18:02:12
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 08:27:56
 *****
-Si ganarán todas, incluido Aguascalientes y Durango.
-[Permalink](https://twitter.com/fernandeznorona/status/1531455977458962432) | 142 Me Gusta | 31 Retweets
+Te lo encargo. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1531673846495027202) | 44 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 17:43:20
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 07:07:37
 *****
-Qué bueno que carezco de toda oportunidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1531451228370214913) | 153 Me Gusta | 40 Retweets
+¡Hacer una cola para pagar en vez de ellos hacer cola para cobrarte es el colmo de la alienación! Genial Cristina Morales.
+[Permalink](https://twitter.com/fernandeznorona/status/1531653634143944704) | 43 Me Gusta | 13 Retweets

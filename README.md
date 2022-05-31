@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 16:06:32
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 20:42:39
 *****
-9279 en Facebook y, 6888 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1531426868016070658) | 36 Me Gusta | 8 Retweets
+“Una causa minoritaria de insumisión puede llegar a ser respetable. Una causa individual, no.” Cristina Morales.
+[Permalink](https://twitter.com/fernandeznorona/status/1531496353926418432) | 43 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 13:26:33
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 20:38:03
 *****
-Pronta recuperación.
-[Permalink](https://twitter.com/fernandeznorona/status/1531386606879383555) | 40 Me Gusta | 6 Retweets
+Un abrazote solidario.
+[Permalink](https://twitter.com/fernandeznorona/status/1531495196277592066) | 58 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 13:01:02
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 20:37:18
 *****
-RT @Nueva_Nota_Roja: URGE AMBULANCIA, PERSONA INCONSCIENTE AL INTERIOR DE SU DOMICILIO
-Mujer de 23 años en calle Bolívares #233 Colonia Aqu…
-[Permalink](https://twitter.com/fernandeznorona/status/1531380186788274192) | 0 Me Gusta | 18 Retweets
+@DanielaLunera @lopezobrador_ Decisión.
+[Permalink](https://twitter.com/fernandeznorona/status/1531495008754454529) | 62 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 11:51:48
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 18:02:12
 *****
-@biologacarmen Ay
-[Permalink](https://twitter.com/fernandeznorona/status/1531362762324070402) | 20 Me Gusta | 3 Retweets
+Si ganarán todas, incluido Aguascalientes y Durango.
+[Permalink](https://twitter.com/fernandeznorona/status/1531455977458962432) | 129 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 09:02:36
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2022 a las 17:43:20
 *****
-Se tardaron, la buena fe se había terminado desde hace mucho. Saludos.
-[Permalink](https://twitter.com/fernandeznorona/status/1531320181133393920) | 326 Me Gusta | 65 Retweets
+Qué bueno que carezco de toda oportunidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1531451228370214913) | 135 Me Gusta | 35 Retweets

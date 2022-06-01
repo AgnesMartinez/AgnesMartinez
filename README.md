@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 16:53:28
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 20:42:47
 *****
-\#changoleon. Sí soy.
-[Permalink](https://twitter.com/fernandeznorona/status/1531801067431907330) | 11 Me Gusta | 1 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1531858776235593728) | 132 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 16:50:39
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 17:03:47
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1531800359097749504) | 28 Me Gusta | 2 Retweets
+RT @hamlet_almaguer: Gran altura de nuestros aliados de PT y PVEM que cierran filas con @Nora_Ruvalcaba, su candidata @mmarquezags ha decli…
+[Permalink](https://twitter.com/fernandeznorona/status/1531803665069129729) | 0 Me Gusta | 95 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 16:50:15
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 17:01:42
 *****
-Chingón. Un paso definitivo rumbo a la gubernatura de Aguascalientes.   @Nora_Ruvalcaba próxima gobernadora de Aguascalientes.
-[Permalink](https://twitter.com/fernandeznorona/status/1531800256685424640) | 35 Me Gusta | 7 Retweets
+Por cierto, tú fuiste esquirol en contra de una mujer, cuando sacaron del aire a @AristeguiOnline. Sigues en un espacio que nunca te ha pertenecido. Abur @LuisCardenasMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1531803136909840384) | 263 Me Gusta | 95 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 12:08:05
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 17:00:29
 *****
-Otra que celebra que los violentos, se quiten la careta, cuando dicen que no son violentos. ¡Pobres!
-[Permalink](https://twitter.com/fernandeznorona/status/1531729248683180035) | 294 Me Gusta | 89 Retweets
+Promueven la violencia, pero se tiran al piso frente a cada respuesta, diciéndose violentados. En verdad es canalla tu actitud. @LuisCardenasMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1531802831749005312) | 161 Me Gusta | 67 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 11:40:32
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 16:59:30
 *****
-Hoy, las reiteradas provocaciones y majaderías a mi persona en la sesión de la Comisión Permanente, demuestra que las encuestas que trae la derecha rumbo a 2024 les están preocupando en serio y a fondo.
-[Permalink](https://twitter.com/fernandeznorona/status/1531722312864739330) | 2,447 Me Gusta | 587 Retweets
+Yo no he insultado a nadie y es lamentable que te digas periodista y celebres los desplantes racistas y clasistas de tu admirada legisladora.
+[Permalink](https://twitter.com/fernandeznorona/status/1531802583597256705) | 496 Me Gusta | 129 Retweets

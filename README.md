@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 09:46:16
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 16:53:28
 *****
-Y tú celebras que se use a un indigente para intentar insultar a una persona. Son finísimos, debate de altura la de la señora @LillyTellez. Si yo le respondiera de esa manera, dirían que es violencia política de género. Son profundamente hipócritas.
-[Permalink](https://twitter.com/fernandeznorona/status/1531693558679236608) | 343 Me Gusta | 107 Retweets
+\#changoleon. Sí soy.
+[Permalink](https://twitter.com/fernandeznorona/status/1531801067431907330) | 11 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 09:08:21
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 16:50:39
 *****
-RT @Arman_doCA: Durante el gob d Teresa Jiménez Esquivel, Aguascalientes hizo compromiso ¡POR 30 AÑOS! con empresa neolonés ‘Next Energy’ p…
-[Permalink](https://twitter.com/fernandeznorona/status/1531684015513772035) | 0 Me Gusta | 23 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1531800359097749504) | 28 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 08:45:17
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 16:50:15
 *****
-¡Me preocupa la estrategia de abrazos y no balazos! Y dice apoyar al compañero presidente. Encima, usa en su cuenta una fotografía de hace 20 años, con retoque.
-[Permalink](https://twitter.com/fernandeznorona/status/1531678210282364930) | 44 Me Gusta | 11 Retweets
+Chingón. Un paso definitivo rumbo a la gubernatura de Aguascalientes.   @Nora_Ruvalcaba próxima gobernadora de Aguascalientes.
+[Permalink](https://twitter.com/fernandeznorona/status/1531800256685424640) | 35 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 08:27:56
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 12:08:05
 *****
-Te lo encargo. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1531673846495027202) | 44 Me Gusta | 10 Retweets
+Otra que celebra que los violentos, se quiten la careta, cuando dicen que no son violentos. ¡Pobres!
+[Permalink](https://twitter.com/fernandeznorona/status/1531729248683180035) | 294 Me Gusta | 89 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 07:07:37
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 11:40:32
 *****
-¡Hacer una cola para pagar en vez de ellos hacer cola para cobrarte es el colmo de la alienación! Genial Cristina Morales.
-[Permalink](https://twitter.com/fernandeznorona/status/1531653634143944704) | 43 Me Gusta | 13 Retweets
+Hoy, las reiteradas provocaciones y majaderías a mi persona en la sesión de la Comisión Permanente, demuestra que las encuestas que trae la derecha rumbo a 2024 les están preocupando en serio y a fondo.
+[Permalink](https://twitter.com/fernandeznorona/status/1531722312864739330) | 2,447 Me Gusta | 587 Retweets

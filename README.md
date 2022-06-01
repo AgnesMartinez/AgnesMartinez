@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 10:07:13
+*****
+Está tan seguro de ganar Tamaulipas cabeza de huevo, que ya se dio a la fuga. @AccionNacional
+[Permalink](https://twitter.com/fernandeznorona/status/1532061217610600448) | 48 Me Gusta | 15 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 09:46:12
+*****
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1532055927654064129) | 32 Me Gusta | 9 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 09:45:19
+*****
+Llevo un rato diciéndoselos.
+[Permalink](https://twitter.com/fernandeznorona/status/1532055706047741958) | 84 Me Gusta | 22 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 09:44:19
+*****
+RT @farreola: Mi amiga @LillyTellez insultó a @fernandeznorona y hasta se celebra en twitter.  Si él hubiera contestado en el mismo tono a…
+[Permalink](https://twitter.com/fernandeznorona/status/1532055456457404417) | 0 Me Gusta | 47 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 20:42:47
 *****
 Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1531858776235593728) | 202 Me Gusta | 39 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 17:03:47
-*****
-RT @hamlet_almaguer: Gran altura de nuestros aliados de PT y PVEM que cierran filas con @Nora_Ruvalcaba, su candidata @mmarquezags ha decli…
-[Permalink](https://twitter.com/fernandeznorona/status/1531803665069129729) | 0 Me Gusta | 117 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 17:01:42
-*****
-Por cierto, tú fuiste esquirol en contra de una mujer, cuando sacaron del aire a @AristeguiOnline. Sigues en un espacio que nunca te ha pertenecido. Abur @LuisCardenasMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1531803136909840384) | 301 Me Gusta | 110 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 17:00:29
-*****
-Promueven la violencia, pero se tiran al piso frente a cada respuesta, diciéndose violentados. En verdad es canalla tu actitud. @LuisCardenasMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1531802831749005312) | 189 Me Gusta | 80 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 16:59:30
-*****
-Yo no he insultado a nadie y es lamentable que te digas periodista y celebres los desplantes racistas y clasistas de tu admirada legisladora.
-[Permalink](https://twitter.com/fernandeznorona/status/1531802583597256705) | 655 Me Gusta | 163 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1531858776235593728) | 282 Me Gusta | 48 Retweets

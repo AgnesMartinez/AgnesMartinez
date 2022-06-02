@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 16:13:56
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 21:05:55
 *****
-14,668 en Facebook y, 10,332 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1532153506152562690) | 49 Me Gusta | 6 Retweets
+Nadie se ocupa de lo intrascendente.
+[Permalink](https://twitter.com/fernandeznorona/status/1532226985799335938) | 101 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 14:57:13
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 20:59:49
 *****
-Odian al pueblo al que deberían servir, es evidente que no lo sirven.
-[Permalink](https://twitter.com/fernandeznorona/status/1532134200282955777) | 67 Me Gusta | 20 Retweets
+Los medios que siempre han condenado el bloqueo de vialidades y han hablado de que atropellan su derecho a la libre circulación, hoy promueven estas iniciativas que en realidad buscan provocar y, si pueden, descarrilar al gobierno el compañero presidente @lopezobrador_.
+[Permalink](https://twitter.com/fernandeznorona/status/1532225448800837634) | 34 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 14:43:46
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 20:55:17
 *****
-Más bien es un chiste despolitizador. Siguen hablando de la política como si no hubiese un cambio sustancial. Quien tenga ojos para ver que vea.
-[Permalink](https://twitter.com/fernandeznorona/status/1532130814208638982) | 34 Me Gusta | 5 Retweets
+RT @LOVREGA: Señores fachos, sé que les duele, pero Noroña ha leído más libros de los que ustedes ni en sueños leerán jamás.
+[Permalink](https://twitter.com/fernandeznorona/status/1532224310286376960) | 0 Me Gusta | 55 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 14:21:36
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 20:36:46
 *****
-El estudio ya parece mi casa, ya no debo comprar libros. Pero seguiré comprando. Obvio, seguiré leyendo.
-[Permalink](https://twitter.com/fernandeznorona/status/1532125236489076745) | 151 Me Gusta | 14 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1532219651056455681) | 17 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 12:58:35
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 20:34:36
 *****
-Yo francamente con ninguna. Es una paradoja, pero se parecen tanto la @opsoms y la dentista. Solo que la segunda es profundamente inculta.
-[Permalink](https://twitter.com/fernandeznorona/status/1532104342811168771) | 55 Me Gusta | 6 Retweets
+Si.
+[Permalink](https://twitter.com/fernandeznorona/status/1532219103188066305) | 11 Me Gusta | 0 Retweets

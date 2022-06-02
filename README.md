@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 10:07:13
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 16:13:56
 *****
-Está tan seguro de ganar Tamaulipas cabeza de huevo, que ya se dio a la fuga. @AccionNacional
-[Permalink](https://twitter.com/fernandeznorona/status/1532061217610600448) | 48 Me Gusta | 15 Retweets
+14,668 en Facebook y, 10,332 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1532153506152562690) | 49 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 09:46:12
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 14:57:13
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1532055927654064129) | 32 Me Gusta | 9 Retweets
+Odian al pueblo al que deberían servir, es evidente que no lo sirven.
+[Permalink](https://twitter.com/fernandeznorona/status/1532134200282955777) | 67 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 09:45:19
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 14:43:46
 *****
-Llevo un rato diciéndoselos.
-[Permalink](https://twitter.com/fernandeznorona/status/1532055706047741958) | 84 Me Gusta | 22 Retweets
+Más bien es un chiste despolitizador. Siguen hablando de la política como si no hubiese un cambio sustancial. Quien tenga ojos para ver que vea.
+[Permalink](https://twitter.com/fernandeznorona/status/1532130814208638982) | 34 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 09:44:19
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 14:21:36
 *****
-RT @farreola: Mi amiga @LillyTellez insultó a @fernandeznorona y hasta se celebra en twitter.  Si él hubiera contestado en el mismo tono a…
-[Permalink](https://twitter.com/fernandeznorona/status/1532055456457404417) | 0 Me Gusta | 47 Retweets
+El estudio ya parece mi casa, ya no debo comprar libros. Pero seguiré comprando. Obvio, seguiré leyendo.
+[Permalink](https://twitter.com/fernandeznorona/status/1532125236489076745) | 151 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2022 a las 20:42:47
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 12:58:35
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1531858776235593728) | 282 Me Gusta | 48 Retweets
+Yo francamente con ninguna. Es una paradoja, pero se parecen tanto la @opsoms y la dentista. Solo que la segunda es profundamente inculta.
+[Permalink](https://twitter.com/fernandeznorona/status/1532104342811168771) | 55 Me Gusta | 6 Retweets

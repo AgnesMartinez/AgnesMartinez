@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2022 a las 07:33:58
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2022 a las 16:36:05
 *****
-Aquí la diputada haciendo propaganda electoral en plena veda @INEMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1532385038037401602) | 291 Me Gusta | 129 Retweets
+Es un insulto, un abuso y un atropello, que con el pretexto de cuidar el ecosistema, en Los Cabos y en Tijuana,  te hagan pasar por una nueva revisión de tus maletas al salir del aeropuerto. Qué hace la tarea antidroga a EUA que la sigue consumiendo con fruición.
+[Permalink](https://twitter.com/fernandeznorona/status/1532521469418283010) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2022 a las 07:24:56
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2022 a las 16:25:14
 *****
-RT @aran_tirado: Lo que es realmente anacrónico es que todavía haya quien no entienda que la OTAN es una organización de seguridad que resp…
-[Permalink](https://twitter.com/fernandeznorona/status/1532382767144751106) | 0 Me Gusta | 817 Retweets
+Esta pequeñísima la Tamaruska.
+[Permalink](https://twitter.com/fernandeznorona/status/1532518738439839753) | 5 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2022 a las 07:11:24
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2022 a las 16:24:18
 *****
-Vamos rumbo a Chapingo desde Tepoztlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1532379361608880128) | 168 Me Gusta | 11 Retweets
+@jon_aleman7 @lauralun03 @MovCiudadanoMX Échenle.
+[Permalink](https://twitter.com/fernandeznorona/status/1532518501877006336) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 21:05:55
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2022 a las 16:23:19
 *****
-Nadie se ocupa de lo intrascendente.
-[Permalink](https://twitter.com/fernandeznorona/status/1532226985799335938) | 395 Me Gusta | 37 Retweets
+Les digo que es un pendejo, piensa que está en el gimnasio y no en el Congreso. Lo que no sabe es que lo puedo humillar en el debate y en el cuadrilátero. Pero le perdonaré la vida y solo lo avasallaré en la próxima sesión de la Comisión Permanente a Zamorita.
+[Permalink](https://twitter.com/fernandeznorona/status/1532518256367517701) | 63 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2022 a las 20:59:49
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2022 a las 16:20:31
 *****
-Los medios que siempre han condenado el bloqueo de vialidades y han hablado de que atropellan su derecho a la libre circulación, hoy promueven estas iniciativas que en realidad buscan provocar y, si pueden, descarrilar al gobierno el compañero presidente @lopezobrador_.
-[Permalink](https://twitter.com/fernandeznorona/status/1532225448800837634) | 99 Me Gusta | 22 Retweets
+Puej ji. Por eso @higinio_mtz apoyará a @delfinagomeza el próximo año. Eso lo ennoblece.
+[Permalink](https://twitter.com/fernandeznorona/status/1532517551409864705) | 17 Me Gusta | 4 Retweets

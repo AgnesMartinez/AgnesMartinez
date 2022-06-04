@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 21:05:00
+**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 10:08:54
 *****
-“Así pues, la realidad nos indica que todos los machos son fascistas y que todos los fascistas son neoliberales y que todos los neoliberales son machos”.  Cristina Morales.
-[Permalink](https://twitter.com/fernandeznorona/status/1532951529799331845) | 54 Me Gusta | 12 Retweets
+RT @perfildehugo: Segunda intervención del día 31 de mayo del 2022 - Noroña [Cámara de Diputados]
+[Permalink](https://twitter.com/fernandeznorona/status/1533148806979547138) | 0 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 20:40:19
+**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 10:08:41
 *****
-El curso que tomó Zamorita @MarioZamoraG.
-[Permalink](https://twitter.com/fernandeznorona/status/1532945320543330305) | 67 Me Gusta | 14 Retweets
+Ni con todas sus provocaciones logran evitar que les diga lo que son y lo que representan.
+[Permalink](https://twitter.com/fernandeznorona/status/1533148749853171712) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 20:04:36
+**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 09:52:24
 *****
-RT @Betty_Couder: Y ahora un poema yucateco 😋
-[Permalink](https://twitter.com/fernandeznorona/status/1532936329553510400) | 0 Me Gusta | 80 Retweets
+Ya sé porque no llegó ningún derechoso ayer a tomarme la foto en el Café Palmilla, Es que no se llama así, es “Cream Cafe Pizza &amp;Bar” y no le mandé la foto a @lopezdoriga.
+[Permalink](https://twitter.com/fernandeznorona/status/1533144652735344640) | 30 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 19:58:41
+**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 09:42:10
 *****
-Libertad para @HectorMoraM1, paniaguados represores. @AccionNacional está desesperado en Aguascalientes. @MarkoCortes.
-[Permalink](https://twitter.com/fernandeznorona/status/1532934840110272512) | 201 Me Gusta | 140 Retweets
+Todo el tiempo uso la salas VIP que pago de mi dinero, y que , en términos generales son bastante pedorras.
+[Permalink](https://twitter.com/fernandeznorona/status/1533142079324311552) | 71 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 19:56:55
+**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 09:40:33
 *****
-Mándaselo a @SinLinea_Mx.
-[Permalink](https://twitter.com/fernandeznorona/status/1532934396621225984) | 31 Me Gusta | 12 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1533141671684124672) | 34 Me Gusta | 2 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 08:29:33
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 16:00:57
 *****
-“Ante los envites del poder no hay que doblegarse ni deprimirse: hay que radicalizarse”. Cristina Morales.
-[Permalink](https://twitter.com/fernandeznorona/status/1532761415660064768) | 31 Me Gusta | 7 Retweets
+14,718 en Facebook y, 9930 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1532875012847243264) | 25 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 08:24:45
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 13:47:59
 *****
-“De donde no hay no se puede sacar’, recordé la sabia sentencia de mi madre”. Cristina Morales.
-[Permalink](https://twitter.com/fernandeznorona/status/1532760209084620804) | 33 Me Gusta | 7 Retweets
+Si, dormir igual que el @INEMexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1532841552589950976) | 53 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 08:16:54
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 13:47:06
 *****
-… mediocre es el no politizado, mediocre es el integrado…”.
-[Permalink](https://twitter.com/fernandeznorona/status/1532758233789648901) | 19 Me Gusta | 2 Retweets
+Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1532841331394899968) | 18 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 08:16:53
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 13:10:17
 *****
-¿Y qué es mediocre? Mediocre no es un corredor que queda el vigésimo octavo en la clasificación, no. Éste puede ser, simplemente, un mal corredor. Mediocre es el ganador de la carrera que en el podio agradece su victoria al banco a la petrolera que lo patrocina…
-[Permalink](https://twitter.com/fernandeznorona/status/1532758226969759744) | 28 Me Gusta | 5 Retweets
+RT @alvaro_delgado: Chulada: Ayer, @PMunozLedo aparece al lado de @alitomorenoc y hoy @FelipeCalderon lo promueve
+[Permalink](https://twitter.com/fernandeznorona/status/1532832064260583424) | 0 Me Gusta | 330 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 08:10:21
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 13:06:58
 *****
-“ El espíritu de superación, que sibilinas que son las palabras, es el espíritu de normalización”. Cristina Morales.
-[Permalink](https://twitter.com/fernandeznorona/status/1532756584320974848) | 23 Me Gusta | 7 Retweets
+Es el tío postizo, @gdehoyoswalther, así como el señor X Junior es el padre postizo @ClaudioXGG. Ellos son simples gerentillos. Sus jefes no se dignan dar la cara.
+[Permalink](https://twitter.com/fernandeznorona/status/1532831228088360960) | 47 Me Gusta | 15 Retweets

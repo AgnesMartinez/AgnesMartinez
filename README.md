@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 16:00:57
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 21:05:00
 *****
-14,718 en Facebook y, 9930 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1532875012847243264) | 25 Me Gusta | 1 Retweets
+“Así pues, la realidad nos indica que todos los machos son fascistas y que todos los fascistas son neoliberales y que todos los neoliberales son machos”.  Cristina Morales.
+[Permalink](https://twitter.com/fernandeznorona/status/1532951529799331845) | 31 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 13:47:59
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 20:40:19
 *****
-Si, dormir igual que el @INEMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1532841552589950976) | 53 Me Gusta | 5 Retweets
+El curso que tomó Zamorita @MarioZamoraG.
+[Permalink](https://twitter.com/fernandeznorona/status/1532945320543330305) | 42 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 13:47:06
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 20:04:36
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1532841331394899968) | 18 Me Gusta | 1 Retweets
+RT @Betty_Couder: Y ahora un poema yucateco 😋
+[Permalink](https://twitter.com/fernandeznorona/status/1532936329553510400) | 0 Me Gusta | 67 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 13:10:17
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 19:58:41
 *****
-RT @alvaro_delgado: Chulada: Ayer, @PMunozLedo aparece al lado de @alitomorenoc y hoy @FelipeCalderon lo promueve
-[Permalink](https://twitter.com/fernandeznorona/status/1532832064260583424) | 0 Me Gusta | 330 Retweets
+Libertad para @HectorMoraM1, paniaguados represores. @AccionNacional está desesperado en Aguascalientes. @MarkoCortes.
+[Permalink](https://twitter.com/fernandeznorona/status/1532934840110272512) | 124 Me Gusta | 101 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 13:06:58
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2022 a las 19:56:55
 *****
-Es el tío postizo, @gdehoyoswalther, así como el señor X Junior es el padre postizo @ClaudioXGG. Ellos son simples gerentillos. Sus jefes no se dignan dar la cara.
-[Permalink](https://twitter.com/fernandeznorona/status/1532831228088360960) | 47 Me Gusta | 15 Retweets
+Mándaselo a @SinLinea_Mx.
+[Permalink](https://twitter.com/fernandeznorona/status/1532934396621225984) | 26 Me Gusta | 11 Retweets

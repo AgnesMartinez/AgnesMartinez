@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 10:08:54
+**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 16:19:32
 *****
-RT @perfildehugo: Segunda intervención del día 31 de mayo del 2022 - Noroña [Cámara de Diputados]
-[Permalink](https://twitter.com/fernandeznorona/status/1533148806979547138) | 0 Me Gusta | 1 Retweets
+22,892 en Facebook y, 13,029 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1533242077303123968) | 21 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 10:08:41
+**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 14:52:05
 *****
-Ni con todas sus provocaciones logran evitar que les diga lo que son y lo que representan.
-[Permalink](https://twitter.com/fernandeznorona/status/1533148749853171712) | 0 Me Gusta | 0 Retweets
+Y siguen pasando los días sin que @bbva resuelva el que yo pueda gastar mi dinero en lo que me dé la gana.
+[Permalink](https://twitter.com/fernandeznorona/status/1533220072637878272) | 174 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 09:52:24
+**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 13:10:59
 *****
-Ya sé porque no llegó ningún derechoso ayer a tomarme la foto en el Café Palmilla, Es que no se llama así, es “Cream Cafe Pizza &amp;Bar” y no le mandé la foto a @lopezdoriga.
-[Permalink](https://twitter.com/fernandeznorona/status/1533144652735344640) | 30 Me Gusta | 10 Retweets
+RT @zenenzeferino: Llegó el trópico a CDMX. Nos vemos mañana en: @DomingoSantoMx
+[Permalink](https://twitter.com/fernandeznorona/status/1533194629037760512) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 09:42:10
+**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 13:04:19
 *****
-Todo el tiempo uso la salas VIP que pago de mi dinero, y que , en términos generales son bastante pedorras.
-[Permalink](https://twitter.com/fernandeznorona/status/1533142079324311552) | 71 Me Gusta | 14 Retweets
+RT @lximenezsarro: Vaya, parece que la resistencia de este personaje solo dura 3 tuits.
+
+
+En fin. Tendré que retar a alguien más a debatir y…
+[Permalink](https://twitter.com/fernandeznorona/status/1533192951718850560) | 0 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 09:40:33
+**Fernández Noroña** (**@fernandeznorona**) • 04-06-2022 a las 13:03:57
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1533141671684124672) | 34 Me Gusta | 2 Retweets
+De repente hasta yo mismo me impresionó, jejeje. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1533192857716084736) | 52 Me Gusta | 6 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 13:34:51
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 19:45:33
 *****
-RT @gerardo_trejo: Lamentable actuación de policías estatales y municipales, así como grupos de choque en #Aguascalientes2022 su violencia…
-[Permalink](https://twitter.com/fernandeznorona/status/1533563023494766592) | 0 Me Gusta | 413 Retweets
+Mañana regresaré temprano al D.F. para ir a una asamblea en Ocuilan, Estado de México. A dormir.
+[Permalink](https://twitter.com/fernandeznorona/status/1533656314349604864) | 221 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 13:34:28
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 19:43:22
 *****
-@3milioG @BibiMonteroDR @fisgonmonero Ha estado.
-[Permalink](https://twitter.com/fernandeznorona/status/1533562926258216960) | 26 Me Gusta | 2 Retweets
+Pásaselo a @MarkoCortes que anda un poco desorientado, monaguillo @CiroMurayamaINE.
+[Permalink](https://twitter.com/fernandeznorona/status/1533655761074651136) | 118 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 13:33:33
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 19:42:19
 *****
-Se hacen bien pendejos los paniaguados.
-[Permalink](https://twitter.com/fernandeznorona/status/1533562697425358853) | 301 Me Gusta | 87 Retweets
+RT @abrahamendieta: Morena-PT-Verde gana 15 de las 15 diputaciones locales en Quintana Roo: el congreso local será una supermayoría de la 4…
+[Permalink](https://twitter.com/fernandeznorona/status/1533655498758701057) | 0 Me Gusta | 829 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 13:32:51
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 19:41:22
 *****
-@snmaiznohaypai @lorenzocordovav Transa.
-[Permalink](https://twitter.com/fernandeznorona/status/1533562520526393344) | 9 Me Gusta | 2 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1533655259649810432) | 142 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 13:31:57
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 19:41:02
 *****
-Cierto. Cada vez somos más, por fin se están dando cuenta.
-[Permalink](https://twitter.com/fernandeznorona/status/1533562292465324032) | 67 Me Gusta | 20 Retweets
+@jgnaredo Transas.
+[Permalink](https://twitter.com/fernandeznorona/status/1533655176942440448) | 82 Me Gusta | 5 Retweets

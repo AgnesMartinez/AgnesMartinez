@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 19:45:33
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2022 a las 08:45:30
 *****
-Mañana regresaré temprano al D.F. para ir a una asamblea en Ocuilan, Estado de México. A dormir.
-[Permalink](https://twitter.com/fernandeznorona/status/1533656314349604864) | 283 Me Gusta | 26 Retweets
+Es un triunfo de la oposición no haber desaparecido, el fraude aún les funciona. Dicen que dicen.
+[Permalink](https://twitter.com/fernandeznorona/status/1533852595256758273) | 254 Me Gusta | 53 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 19:43:22
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2022 a las 08:44:31
 *****
-Pásaselo a @MarkoCortes que anda un poco desorientado, monaguillo @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1533655761074651136) | 137 Me Gusta | 28 Retweets
+Abonando a la despolitización usando generalidades,  @TeletonMexico en acción…Nacional. ¿#teletonpaniaguado?
+[Permalink](https://twitter.com/fernandeznorona/status/1533852344810627072) | 23 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 19:42:19
-*****
-RT @abrahamendieta: Morena-PT-Verde gana 15 de las 15 diputaciones locales en Quintana Roo: el congreso local será una supermayoría de la 4…
-[Permalink](https://twitter.com/fernandeznorona/status/1533655498758701057) | 0 Me Gusta | 1,137 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 19:41:22
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2022 a las 08:42:40
 *****
 Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1533655259649810432) | 184 Me Gusta | 37 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1533851880526323712) | 43 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2022 a las 19:41:02
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2022 a las 08:42:18
 *****
-@jgnaredo Transas.
-[Permalink](https://twitter.com/fernandeznorona/status/1533655176942440448) | 96 Me Gusta | 5 Retweets
+¡Robamos! Deben decir…@MarkoCortes.
+[Permalink](https://twitter.com/fernandeznorona/status/1533851786594992130) | 50 Me Gusta | 22 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2022 a las 08:39:38
+*****
+RT @Alianza4TCDMX: ¡La Cuarta Transformación avanza!
+
+
+Enhorabuena para el pueblo de México, así queda el mapa político de nuestro país desp…
+[Permalink](https://twitter.com/fernandeznorona/status/1533851116194217986) | 0 Me Gusta | 14 Retweets

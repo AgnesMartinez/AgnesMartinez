@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-06-2022 a las 19:35:34
+**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 10:01:58
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1534016187155324930) | 172 Me Gusta | 19 Retweets
+Ocoyoacac, Estado de México.
+[Permalink](https://twitter.com/fernandeznorona/status/1534234223451815936) | 24 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-06-2022 a las 19:30:16
+**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 08:01:14
 *****
-RT @jgnaredo: En menos de 5 años Morena pasó de 0 a 22 gubernaturas.
-
-
-Ha logrado todo esto en sólo 8 años de existencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1534014852968087554) | 0 Me Gusta | 1,986 Retweets
+Ya voy de Tepoztlán a Ocoyoacac.
+[Permalink](https://twitter.com/fernandeznorona/status/1534203842115551232) | 112 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-06-2022 a las 19:29:14
+**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 07:03:33
 *****
-Cierto. Pero estoy pensando en una meta un poco más grandecita. Y verás que después dirás: que bueno que lo tenemos en el ejecutivo, ya lo quisiera medio mundo ahí.
-[Permalink](https://twitter.com/fernandeznorona/status/1534014593382637568) | 113 Me Gusta | 28 Retweets
+Me da mucho gusto que la derecha sea motivada en participar en los procesos electorales bajo el ideal olímpico de que no importa ganar, sino competir. #HayTiroDeGracia
+[Permalink](https://twitter.com/fernandeznorona/status/1534189323712610310) | 647 Me Gusta | 171 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-06-2022 a las 19:09:17
+**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 07:02:13
 *****
-Ocuilan votando porque termine el horario de verano.
-[Permalink](https://twitter.com/fernandeznorona/status/1534009574415646720) | 263 Me Gusta | 48 Retweets
+¡Hay tiro! Jajajajejejejijijijojojojujuju, celebran su estrepitosa derrota.
+[Permalink](https://twitter.com/fernandeznorona/status/1534188989254615040) | 119 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-06-2022 a las 16:27:55
+**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 07:01:32
 *****
-Jajajajejejejijijijojojojujuju, cabeza hueca @VicenteFoxQue, estás delirante.
-[Permalink](https://twitter.com/fernandeznorona/status/1533968962936897536) | 375 Me Gusta | 66 Retweets
+La reflexión de fondo y no caer en la autocomplacencia aplica también para nuestro movimiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1534188816831062016) | 66 Me Gusta | 13 Retweets

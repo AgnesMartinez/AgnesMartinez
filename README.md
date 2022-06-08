@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 16:22:26
+**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 21:19:48
 *****
-17,589 en Facebook y, 9679 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1534329973800067076) | 27 Me Gusta | 7 Retweets
+Recuento.
+[Permalink](https://twitter.com/fernandeznorona/status/1534404807720681473) | 37 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 13:22:36
+**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 21:19:32
 *****
-Capulhuac, Estado de México.
-[Permalink](https://twitter.com/fernandeznorona/status/1534284713820561411) | 96 Me Gusta | 20 Retweets
+Es terrible lo qué pasó. Si nos hubiese pasado a nosotros ya estarían pidiendo nuestra renuncia; nosotros nos manifestamos solidarios y que se investigue y sancione a los responsables de esa pésima obra.
+[Permalink](https://twitter.com/fernandeznorona/status/1534404739798077440) | 48 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 12:57:21
+**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 21:17:00
 *****
-Hora día muy difícil, y muy bien en Ocoyoacac.
-[Permalink](https://twitter.com/fernandeznorona/status/1534278360259493891) | 105 Me Gusta | 25 Retweets
+¡Qué terrible!
+[Permalink](https://twitter.com/fernandeznorona/status/1534404100246355968) | 18 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 10:01:58
+**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 21:11:04
 *****
-Ocoyoacac, Estado de México.
-[Permalink](https://twitter.com/fernandeznorona/status/1534234223451815936) | 146 Me Gusta | 26 Retweets
+Ya mandé mi artículo para Tabasco Hoy. A dormir, que mañana debo darle su medicina a la derecha. Llevaré un método ampliamente didáctico para demostrarles que perdieron el pasado domingo 5 de junio.
+[Permalink](https://twitter.com/fernandeznorona/status/1534402608563101697) | 167 Me Gusta | 42 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 08:01:14
+**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 21:09:01
 *****
-Ya voy de Tepoztlán a Ocoyoacac.
-[Permalink](https://twitter.com/fernandeznorona/status/1534203842115551232) | 220 Me Gusta | 17 Retweets
+Hoy en Xalatlaco.
+[Permalink](https://twitter.com/fernandeznorona/status/1534402095088078849) | 35 Me Gusta | 6 Retweets

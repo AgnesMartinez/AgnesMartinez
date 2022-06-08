@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 21:19:48
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2022 a las 10:09:47
 *****
-Recuento.
-[Permalink](https://twitter.com/fernandeznorona/status/1534404807720681473) | 77 Me Gusta | 29 Retweets
+Y su jefe el señor XJr @ClaudioXGG es un gerentillo al servicio de la oligarquía.
+[Permalink](https://twitter.com/fernandeznorona/status/1534598581558067208) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 21:19:32
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2022 a las 10:08:07
 *****
-Es terrible lo qué pasó. Si nos hubiese pasado a nosotros ya estarían pidiendo nuestra renuncia; nosotros nos manifestamos solidarios y que se investigue y sancione a los responsables de esa pésima obra.
-[Permalink](https://twitter.com/fernandeznorona/status/1534404739798077440) | 109 Me Gusta | 30 Retweets
+Y francamente @MarkoCortes es igual de inútil, de @Jesus_ZambranoG ya ni hablamos.
+[Permalink](https://twitter.com/fernandeznorona/status/1534598159573438468) | 5 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 21:17:00
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2022 a las 10:06:14
 *****
-¡Qué terrible!
-[Permalink](https://twitter.com/fernandeznorona/status/1534404100246355968) | 31 Me Gusta | 6 Retweets
+@lximenezsarro Celibato.
+[Permalink](https://twitter.com/fernandeznorona/status/1534597687571529729) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 21:11:04
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2022 a las 10:00:22
 *****
-Ya mandé mi artículo para Tabasco Hoy. A dormir, que mañana debo darle su medicina a la derecha. Llevaré un método ampliamente didáctico para demostrarles que perdieron el pasado domingo 5 de junio.
-[Permalink](https://twitter.com/fernandeznorona/status/1534402608563101697) | 526 Me Gusta | 116 Retweets
+RT @ALEIDAALAVEZ: Con manzanitas, @fernandeznorona le aclara a la oposición su contundente derrota: perdieron 4 de los 6 estados que mal go…
+[Permalink](https://twitter.com/fernandeznorona/status/1534596209842786310) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-06-2022 a las 21:09:01
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2022 a las 09:55:19
 *****
-Hoy en Xalatlaco.
-[Permalink](https://twitter.com/fernandeznorona/status/1534402095088078849) | 57 Me Gusta | 11 Retweets
+Justo lo acabo de explicar en la tribuna de la Comisión Permanente, con manzanas.
+[Permalink](https://twitter.com/fernandeznorona/status/1534594937580408833) | 26 Me Gusta | 9 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2022 a las 20:14:11
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 08:41:55
 *****
-No creo.
-[Permalink](https://twitter.com/fernandeznorona/status/1534750679926980608) | 35 Me Gusta | 1 Retweets
+Ahí estaré.
+[Permalink](https://twitter.com/fernandeznorona/status/1534938855601750016) | 72 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2022 a las 19:46:14
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 08:40:13
 *****
-Por cierto @DoliaEstevez, ¿ya me quitaron la visa? Es que pensaba ir a la Cumbre de las Yanquilovers pero se me olvidó investigar. Tu que andas de mandadera, ahí te encargo. ¿O sabrá algo Georgie boy @jorgeramosnews?
-[Permalink](https://twitter.com/fernandeznorona/status/1534743647308107776) | 380 Me Gusta | 91 Retweets
+Gobernadora @MaruCampos_G, me comentan que está privatizado -concesionado- El Chamizal. Es un lugar emblemático, debemos recuperarlo.
+[Permalink](https://twitter.com/fernandeznorona/status/1534938428739133443) | 24 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2022 a las 19:38:21
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 08:32:48
 *****
-Ya me voy a dormir, hoy debieron pagarme por destajo en la Permanente.
-[Permalink](https://twitter.com/fernandeznorona/status/1534741663645589505) | 180 Me Gusta | 13 Retweets
+Lo mejor de todo es que parece que todo está bien.
+[Permalink](https://twitter.com/fernandeznorona/status/1534936561149792256) | 84 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2022 a las 19:38:04
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 08:32:37
 *****
-RT @LJyDMX: Y para cerrar con broche de Oro, Nuestro Diputado @fernandeznorona reconoció la atinada conducción de la sesión por parte de la…
-[Permalink](https://twitter.com/fernandeznorona/status/1534741592501895169) | 0 Me Gusta | 24 Retweets
+Francamente espléndida la atención en el @ISSSTE_mx. Estoy muy agradecido. El hospital de Tláhuac es espectacular y la atención que recibí fue insuperable.
+[Permalink](https://twitter.com/fernandeznorona/status/1534936514018398208) | 162 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2022 a las 19:35:21
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 07:45:32
 *****
-Le dices chayotero a @rivapa y enloquece. Suelta su rabia racista y clasista. #Changoleon me dice. A mucha honra, pero él no puede decir #chayotero a mucha honra. ¡Pobre!
-[Permalink](https://twitter.com/fernandeznorona/status/1534740911023955970) | 719 Me Gusta | 195 Retweets
+Sigo en el @ISSSTE_mx. Me hicieron una bola de estudios y todo va muy bien.
+[Permalink](https://twitter.com/fernandeznorona/status/1534924665306722304) | 280 Me Gusta | 29 Retweets

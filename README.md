@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 08:41:55
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 13:07:05
 *****
-Ahí estaré.
-[Permalink](https://twitter.com/fernandeznorona/status/1534938855601750016) | 72 Me Gusta | 17 Retweets
+Muy contento del recibimiento en Tepotzotlán
+[Permalink](https://twitter.com/fernandeznorona/status/1535005586739322888) | 149 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 08:40:13
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 13:06:03
 *****
-Gobernadora @MaruCampos_G, me comentan que está privatizado -concesionado- El Chamizal. Es un lugar emblemático, debemos recuperarlo.
-[Permalink](https://twitter.com/fernandeznorona/status/1534938428739133443) | 24 Me Gusta | 8 Retweets
+Jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1535005326994464785) | 160 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 08:32:48
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 13:02:52
 *****
-Lo mejor de todo es que parece que todo está bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1534936561149792256) | 84 Me Gusta | 12 Retweets
+Tepotzotlán
+[Permalink](https://twitter.com/fernandeznorona/status/1535004523412037632) | 104 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 08:32:37
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 12:31:51
 *****
-Francamente espléndida la atención en el @ISSSTE_mx. Estoy muy agradecido. El hospital de Tláhuac es espectacular y la atención que recibí fue insuperable.
-[Permalink](https://twitter.com/fernandeznorona/status/1534936514018398208) | 162 Me Gusta | 22 Retweets
+Perder el registro de los 17 estados restantes ¿Verdad @Jesus_ZambranoG?
+[Permalink](https://twitter.com/fernandeznorona/status/1534996718860787736) | 88 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 07:45:32
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 12:30:36
 *****
-Sigo en el @ISSSTE_mx. Me hicieron una bola de estudios y todo va muy bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1534924665306722304) | 280 Me Gusta | 29 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1534996404585783313) | 84 Me Gusta | 14 Retweets

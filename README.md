@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 19:32:06
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 16:34:30
 *****
-18,383 en Facebook y, 12,016 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1535102480597585922) | 132 Me Gusta | 14 Retweets
+Ahí va el gran Jorge Arvizu, el “Tata”.
+[Permalink](https://twitter.com/fernandeznorona/status/1535420174236532737) | 13 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 17:03:28
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 16:33:24
 *****
-Pronta recuperación
-[Permalink](https://twitter.com/fernandeznorona/status/1535065073068060672) | 107 Me Gusta | 12 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1535419897429299200) | 10 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 17:01:47
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 16:32:52
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1535064651058147328) | 423 Me Gusta | 58 Retweets
+RT @jgnaredo: ¿La policía de Queretaro está golpeando a manifestantes que se manifiestan contra la privatización de agua? 
+
+
+Ni se nota que…
+[Permalink](https://twitter.com/fernandeznorona/status/1535419761802326018) | 0 Me Gusta | 845 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 13:07:05
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 16:31:31
 *****
-Muy contento del recibimiento en Tepotzotlán
-[Permalink](https://twitter.com/fernandeznorona/status/1535005586739322888) | 353 Me Gusta | 63 Retweets
+RT @kpitan92: @fernandeznorona @PartidoMorenaMx No tarda en salir ChicChillon y sus chilloncitos a decir que el PAN apoyan más que el PT.
+[Permalink](https://twitter.com/fernandeznorona/status/1535419420868284419) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2022 a las 13:06:03
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 13:38:41
 *****
-Jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1535005326994464785) | 381 Me Gusta | 59 Retweets
+Morelia, Mich.
+[Permalink](https://twitter.com/fernandeznorona/status/1535375926246051840) | 114 Me Gusta | 24 Retweets

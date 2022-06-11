@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 20:09:16
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 09:50:33
 *****
-RT @Sanx415: Las demandas históricas  del #2deOctubre #halconazo y #guerrasucia #desaparecidos seguirán vigentes mientras no haya un  alto…
-[Permalink](https://twitter.com/fernandeznorona/status/1535474219781443584) | 0 Me Gusta | 15 Retweets
+Zamora, Mich.
+[Permalink](https://twitter.com/fernandeznorona/status/1535680904848236545) | 27 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 20:02:43
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 09:41:22
 *****
-Los compañeros del PT me consiguieron una súper habitación en el @Cantera10.
-[Permalink](https://twitter.com/fernandeznorona/status/1535472573001216000) | 176 Me Gusta | 15 Retweets
+Espero que la senadora María del Carmen Téllez haya presentado la denuncia por las presuntas amenazas. Me parecen tan viles las presuntas amenazas, como el quererme vincular a un grupo criminal.
+[Permalink](https://twitter.com/fernandeznorona/status/1535678592343896064) | 191 Me Gusta | 56 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 20:00:50
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 09:39:46
 *****
-Apenas voy a dormir. Fui a cenar y comer al café Michelena. Me gusta ese lugar y, para variar, hice una compra de pánico en libros.
-[Permalink](https://twitter.com/fernandeznorona/status/1535472097035800579) | 144 Me Gusta | 13 Retweets
+Pero que se investigue el asunto, tan simple como eso.
+[Permalink](https://twitter.com/fernandeznorona/status/1535678189090983936) | 21 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 17:43:01
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 09:38:46
 *****
-Ardan derechosos, mi vista desde la habitación del hotel.
-[Permalink](https://twitter.com/fernandeznorona/status/1535437415661305862) | 427 Me Gusta | 37 Retweets
+Entiendo tu solidaridad, me parece una broma el asunto. Resulta que un grupo criminal ni siquiera le mandó el mensaje directo, se lo manda a través de un ayudante.
+[Permalink](https://twitter.com/fernandeznorona/status/1535677936623243264) | 15 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 17:30:05
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 09:36:18
 *****
-RT @JJJimenezY: El actuar de la policía en medio de una riña el 5 de marzo en el Estadio Corregidora, comparado con el actuar de la policía…
-[Permalink](https://twitter.com/fernandeznorona/status/1535434159589494784) | 0 Me Gusta | 95 Retweets
+Pues ya deben de ir en -100.
+[Permalink](https://twitter.com/fernandeznorona/status/1535677316965183488) | 29 Me Gusta | 8 Retweets

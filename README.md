@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 16:34:30
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 20:09:16
 *****
-Ahí va el gran Jorge Arvizu, el “Tata”.
-[Permalink](https://twitter.com/fernandeznorona/status/1535420174236532737) | 13 Me Gusta | 2 Retweets
+RT @Sanx415: Las demandas históricas  del #2deOctubre #halconazo y #guerrasucia #desaparecidos seguirán vigentes mientras no haya un  alto…
+[Permalink](https://twitter.com/fernandeznorona/status/1535474219781443584) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 16:33:24
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 20:02:43
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1535419897429299200) | 10 Me Gusta | 1 Retweets
+Los compañeros del PT me consiguieron una súper habitación en el @Cantera10.
+[Permalink](https://twitter.com/fernandeznorona/status/1535472573001216000) | 123 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 16:32:52
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 20:00:50
 *****
-RT @jgnaredo: ¿La policía de Queretaro está golpeando a manifestantes que se manifiestan contra la privatización de agua? 
-
-
-Ni se nota que…
-[Permalink](https://twitter.com/fernandeznorona/status/1535419761802326018) | 0 Me Gusta | 845 Retweets
+Apenas voy a dormir. Fui a cenar y comer al café Michelena. Me gusta ese lugar y, para variar, hice una compra de pánico en libros.
+[Permalink](https://twitter.com/fernandeznorona/status/1535472097035800579) | 86 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 16:31:31
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 17:43:01
 *****
-RT @kpitan92: @fernandeznorona @PartidoMorenaMx No tarda en salir ChicChillon y sus chilloncitos a decir que el PAN apoyan más que el PT.
-[Permalink](https://twitter.com/fernandeznorona/status/1535419420868284419) | 0 Me Gusta | 7 Retweets
+Ardan derechosos, mi vista desde la habitación del hotel.
+[Permalink](https://twitter.com/fernandeznorona/status/1535437415661305862) | 360 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 13:38:41
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2022 a las 17:30:05
 *****
-Morelia, Mich.
-[Permalink](https://twitter.com/fernandeznorona/status/1535375926246051840) | 114 Me Gusta | 24 Retweets
+RT @JJJimenezY: El actuar de la policía en medio de una riña el 5 de marzo en el Estadio Corregidora, comparado con el actuar de la policía…
+[Permalink](https://twitter.com/fernandeznorona/status/1535434159589494784) | 0 Me Gusta | 89 Retweets

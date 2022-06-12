@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 13:08:26
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 19:31:22
 *****
-Ya vamos de Zamora rumbo a Uruapan.
-[Permalink](https://twitter.com/fernandeznorona/status/1535730700690763776) | 212 Me Gusta | 20 Retweets
+¿Cuál fue el nuevo destape?
+[Permalink](https://twitter.com/fernandeznorona/status/1535827069053050880) | 28 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 13:03:43
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 19:30:15
 *****
-Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1535729514659033088) | 56 Me Gusta | 18 Retweets
+Me parece increíble que no se den cuenta que al justificar cualquier tipo de agresión, se justifica la violencia en contra nuestra.
+[Permalink](https://twitter.com/fernandeznorona/status/1535826788965920768) | 345 Me Gusta | 75 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 09:50:33
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 19:29:16
 *****
-Zamora, Mich.
-[Permalink](https://twitter.com/fernandeznorona/status/1535680904848236545) | 168 Me Gusta | 48 Retweets
+O pueden promover agresiones en contra nuestra y justificarlas bajo la misma lógica.
+[Permalink](https://twitter.com/fernandeznorona/status/1535826542604992513) | 29 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 09:41:22
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 19:28:01
 *****
-Espero que la senadora María del Carmen Téllez haya presentado la denuncia por las presuntas amenazas. Me parecen tan viles las presuntas amenazas, como el quererme vincular a un grupo criminal.
-[Permalink](https://twitter.com/fernandeznorona/status/1535678592343896064) | 2,005 Me Gusta | 587 Retweets
+Tengo que verificar el dato que circula de que medio litro de Coca-Cola requiere de 35 litros de agua.
+[Permalink](https://twitter.com/fernandeznorona/status/1535826226186788864) | 53 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 09:39:46
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2022 a las 19:26:34
 *****
-Pero que se investigue el asunto, tan simple como eso.
-[Permalink](https://twitter.com/fernandeznorona/status/1535678189090983936) | 83 Me Gusta | 21 Retweets
+Quienes celebran hoy ese tipo de hechos, mañana tendrán que comerse la violencia fascista en México y donde se manifieste. Y no estoy diciendo que la agresión a @jguaido sea fascista.
+[Permalink](https://twitter.com/fernandeznorona/status/1535825864314740737) | 26 Me Gusta | 4 Retweets

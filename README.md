@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2022 a las 16:28:06
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2022 a las 19:34:53
 *****
-16,276 en Facebook y, 13,344 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1536143337027031040) | 23 Me Gusta | 2 Retweets
+RT @zenenzeferino: Después de poner a cantar y bailar a la gente linda de #Morelia en el festival #versoyredoble .
+Hoy en punto de las 5 pm…
+[Permalink](https://twitter.com/fernandeznorona/status/1536190343141421057) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2022 a las 13:09:27
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2022 a las 19:32:32
 *****
-Pátzcuaro.
-[Permalink](https://twitter.com/fernandeznorona/status/1536093344912314372) | 161 Me Gusta | 34 Retweets
+Es muy bello, si no conoces te has perdido de algo.
+[Permalink](https://twitter.com/fernandeznorona/status/1536189752168222721) | 27 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2022 a las 12:55:51
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2022 a las 19:32:08
 *****
-Ya rumbo al evento en Pátzcuaro. Una muy buena rueda de prensa y reunión con alcaldes de la región.
-[Permalink](https://twitter.com/fernandeznorona/status/1536089924344000513) | 296 Me Gusta | 42 Retweets
+La luna Dr. Chapatín @JesusMartinMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1536189650355646470) | 16 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2022 a las 10:24:15
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2022 a las 19:30:50
 *****
-Me comentan que la agresión a @jguaido fue de parte de sus propios compañeros de la derecha, que traen ya diferencias internas muy fuertes.
-[Permalink](https://twitter.com/fernandeznorona/status/1536051769658159104) | 521 Me Gusta | 154 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1536189323627749376) | 40 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2022 a las 10:23:40
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2022 a las 19:16:18
 *****
-Uruapan.
-[Permalink](https://twitter.com/fernandeznorona/status/1536051626837823488) | 128 Me Gusta | 31 Retweets
+Hasta mañana…
+[Permalink](https://twitter.com/fernandeznorona/status/1536185664693080065) | 124 Me Gusta | 10 Retweets

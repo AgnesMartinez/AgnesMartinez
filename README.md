@@ -1,29 +1,35 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2022 a las 09:06:11
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2022 a las 14:59:25
 *****
-No se lo enseñen a la señora María Del Carmen Téllez ⁦@LillyTellez⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1536394513962475521) | 93 Me Gusta | 18 Retweets
+¡Ay Papantla…”
+[Permalink](https://twitter.com/fernandeznorona/status/1536483408934850561) | 68 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2022 a las 08:14:42
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2022 a las 14:57:38
 *****
-¿Qué opinan?
-[Permalink](https://twitter.com/fernandeznorona/status/1536381557321220097) | 61 Me Gusta | 4 Retweets
+Pronóstico de hora para hacer la charla  hoy, a las 7: 30 de la noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1536482957027844098) | 86 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2022 a las 05:59:24
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2022 a las 14:54:12
 *****
-RT @LOVREGA: Te explico #ConManzanitas:
+Esos pseudo compañeros añoran al PRI.
+[Permalink](https://twitter.com/fernandeznorona/status/1536482096792977408) | 21 Me Gusta | 2 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2022 a las 14:53:00
+*****
+RT @HernanGomezB: ¿Será que la @AlcCuauhtemocMx no sabe que esto es absolutamente ilegal? Las alcaldías no pueden autorizar modalidades de…
+[Permalink](https://twitter.com/fernandeznorona/status/1536481790981963777) | 0 Me Gusta | 1,215 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2022 a las 14:47:33
+*****
+RT @aga10mx: 🇺🇲
+- Wall Street en picada
+- Gasolina a más 5 dólares el galón
+- Inflación llegando al 9%
 
 
-Esa credencial es apócrifa. Lo sé porque Enrique Jackson fue presidente del PRI en el Distrito Fed…
-[Permalink](https://twitter.com/fernandeznorona/status/1536347508187832320) | 0 Me Gusta | 157 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2022 a las 05:57:22
-*****
-RT @LOVREGA: Yo criítico las encuestas como método de selección porque nadie sabe quién las hizo, cuando se elaboraron, bajo que criterios,…
-[Permalink](https://twitter.com/fernandeznorona/status/1536346996046327808) | 0 Me Gusta | 35 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2022 a las 05:56:54
-*****
-RT @Arquithierry:
-[Permalink](https://twitter.com/fernandeznorona/status/1536346878081650688) | 0 Me Gusta | 20 Retweets
+Y mientras en México,
+
+
+En el pasado…
+[Permalink](https://twitter.com/fernandeznorona/status/1536480420136726529) | 0 Me Gusta | 32 Retweets

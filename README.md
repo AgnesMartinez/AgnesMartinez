@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 09:02:34
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 16:34:32
 *****
-Haré una declaración fuerte desde Otzolotepec.
-[Permalink](https://twitter.com/fernandeznorona/status/1536755989411549184) | 195 Me Gusta | 37 Retweets
+Aquí sigo atorado en la JUCOPO.
+[Permalink](https://twitter.com/fernandeznorona/status/1536869734301413377) | 29 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 08:26:44
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 16:11:40
 *****
-RT @JesusRCuevas: La Jornada de Reclutamiento de Médicos Especialistas avanza; de 10,920 médicos registrados, 4494 (41%) pasaron a la sigui…
-[Permalink](https://twitter.com/fernandeznorona/status/1536746975084703744) | 0 Me Gusta | 390 Retweets
+Pues todas esas aseveraciones son falsas. Te pido que presentes las pruebas de votaciones mías en el sentido que ahí expresas. Pongo un ejemplo de tus mentiras: el compañero presidente propone que TODA la @Mx_Diputados se integre de pluris -300-.
+[Permalink](https://twitter.com/fernandeznorona/status/1536863976104943616) | 23 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 08:16:21
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 16:08:37
 *****
-RT @LOVREGA: A ver si es cierto.
-[Permalink](https://twitter.com/fernandeznorona/status/1536744358556274688) | 0 Me Gusta | 92 Retweets
+Feliz cumpleaños a mi hermanito @VictorCastroCos.
+[Permalink](https://twitter.com/fernandeznorona/status/1536863208757022720) | 23 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 08:15:56
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 16:07:43
 *****
-Puej ji. Que lo diga abiertamente.
-[Permalink](https://twitter.com/fernandeznorona/status/1536744253673439233) | 22 Me Gusta | 3 Retweets
+¡Qué mujer más miserable!
+[Permalink](https://twitter.com/fernandeznorona/status/1536862985158676480) | 95 Me Gusta | 48 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 08:13:35
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 16:02:15
 *****
-¡Ta cabrón!
-[Permalink](https://twitter.com/fernandeznorona/status/1536743662960250880) | 18 Me Gusta | 2 Retweets
+Naa, Tarcisio, se inaugura porque está terminada. Por cuestiones de seguridad, debe ser puesta a prueba durante seis meses.
+[Permalink](https://twitter.com/fernandeznorona/status/1536861609280253952) | 71 Me Gusta | 12 Retweets

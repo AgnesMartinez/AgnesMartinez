@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 20:14:47
+**Fernández Noroña** (**@fernandeznorona**) • 15-06-2022 a las 09:37:21
 *****
-Me comentan que es falso que Mariana Rodríguez le haya echado agua a una niña en la cabeza. Me disculpo con Mariana, lamento haber dado por buena la supuesta información. Me indigné mucho con la falsa noticia.
-[Permalink](https://twitter.com/fernandeznorona/status/1536925159717601281) | 646 Me Gusta | 84 Retweets
+Qué bueno que no estoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1537127131137904641) | 80 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 20:07:39
+**Fernández Noroña** (**@fernandeznorona**) • 15-06-2022 a las 08:18:41
 *****
-Lo terminé. ¡Qué fuerte historia! Pues no es para disfrutar, pero ciertamente es un libro muy recomendable. Muy cabrón.
-[Permalink](https://twitter.com/fernandeznorona/status/1536923363905445888) | 64 Me Gusta | 19 Retweets
+Disculpe la respuesta: eres un imbécil.
+[Permalink](https://twitter.com/fernandeznorona/status/1537107336816361473) | 57 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 19:27:10
+**Fernández Noroña** (**@fernandeznorona**) • 15-06-2022 a las 08:17:33
 *****
-Naa, nada de quejas. Llamado a la unidad y a derrotar cualquier tentación autoritaria.
-[Permalink](https://twitter.com/fernandeznorona/status/1536913175815172097) | 72 Me Gusta | 22 Retweets
+Besitos, se te cayó la intriga.
+[Permalink](https://twitter.com/fernandeznorona/status/1537107048495820801) | 23 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 18:32:46
+**Fernández Noroña** (**@fernandeznorona**) • 15-06-2022 a las 08:09:27
 *****
-17,874 en Facebook y, 11,454 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1536899487368482817) | 147 Me Gusta | 29 Retweets
+Te quise mandar por mensaje directo El teléfono de Mónica pero no me apareces. Para que te pongas con ella de acuerdo en la fecha @adela_bicha. Iré encantado.
+[Permalink](https://twitter.com/fernandeznorona/status/1537105010785501185) | 43 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2022 a las 16:34:32
+**Fernández Noroña** (**@fernandeznorona**) • 15-06-2022 a las 08:07:28
 *****
-Aquí sigo atorado en la JUCOPO.
-[Permalink](https://twitter.com/fernandeznorona/status/1536869734301413377) | 165 Me Gusta | 18 Retweets
+Con gusto.
+[Permalink](https://twitter.com/fernandeznorona/status/1537104512422486016) | 66 Me Gusta | 6 Retweets

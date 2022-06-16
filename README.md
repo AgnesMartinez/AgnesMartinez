@@ -1,26 +1,33 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-06-2022 a las 21:15:02
+**Fernández Noroña** (**@fernandeznorona**) • 16-06-2022 a las 09:53:50
 *****
-Pronta recuperación a mi compañera de lucha @Claudiashein. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1537302709027622912) | 451 Me Gusta | 40 Retweets
+RT @edd_lite: Hay por lo menos 3 competidores fuertes de la 4T.
+
+
+Si nos dejamos de mmdas y dejamos de tirar mrda, sería más sana la manera…
+[Permalink](https://twitter.com/fernandeznorona/status/1537493668718051328) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-06-2022 a las 21:04:33
+**Fernández Noroña** (**@fernandeznorona**) • 16-06-2022 a las 09:28:30
 *****
-Qué buena manera de terminar un día que fue difícil. Muy agradecido con ese hombre es muy agradecido con la mujer de Benjamín.
-[Permalink](https://twitter.com/fernandeznorona/status/1537300073217933312) | 80 Me Gusta | 30 Retweets
+Pronta recuperación, un abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1537487293845487618) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-06-2022 a las 20:58:58
+**Fernández Noroña** (**@fernandeznorona**) • 16-06-2022 a las 09:27:13
 *****
-RT @DiputadosPTmx: 📹#QueNoSeTePase || El dip. @fernandeznorona celebró la iniciativa que enviará el Presidente Andrés Manuel @lopezobrador_…
-[Permalink](https://twitter.com/fernandeznorona/status/1537298666217775104) | 0 Me Gusta | 32 Retweets
+Después de reunión con la sección XXXIV del sindicato del ⁦@Tu_IMSS⁩. Ahí con el doctor Marcos Pavel Ramírez, secretario general.
+[Permalink](https://twitter.com/fernandeznorona/status/1537486971886370816) | 21 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-06-2022 a las 16:36:13
+**Fernández Noroña** (**@fernandeznorona**) • 16-06-2022 a las 08:35:12
 *****
-RT @julioastillero: @fernandeznorona @romo_aguirre @CarlosLoret Pero, ¡mañana jueves, en #AstilleroInforma , sí habrá entrevista con @ferna…
-[Permalink](https://twitter.com/fernandeznorona/status/1537232545544544256) | 0 Me Gusta | 178 Retweets
+Qué bueno que somos un movimiento de mujeres y hombres libres. Su servilismo no es el signo de nuestro movimiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1537473878678814720) | 44 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-06-2022 a las 16:16:43
+**Fernández Noroña** (**@fernandeznorona**) • 16-06-2022 a las 08:33:45
 *****
-21,160 en Facebook y, 16,899 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1537227636442734592) | 136 Me Gusta | 14 Retweets
+RT @julioastillero: 🚢 Hoy en #AstilleroInforma de 13 a 15 horas
+
+
+🎙️Platicaremos ampliamente con el diputado federal @fernandeznorona
+https:…
+[Permalink](https://twitter.com/fernandeznorona/status/1537473516265775104) | 0 Me Gusta | 17 Retweets

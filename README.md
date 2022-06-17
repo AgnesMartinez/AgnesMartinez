@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-06-2022 a las 17:37:48
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 10:04:07
 *****
-Apenas saliendo de comunidad Portes Gil rumbo a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1537610431212167169) | 173 Me Gusta | 15 Retweets
+Ya en Puebla, camino a la asamblea.
+[Permalink](https://twitter.com/fernandeznorona/status/1537858643277885443) | 21 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-06-2022 a las 17:05:01
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 09:08:50
 *****
-Vean mi local profesional y la alta tecnología utilizada para la transmisión de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1537602181485895680) | 1,346 Me Gusta | 195 Retweets
+RT @snmaiznohaypai: Que se le cayó el wifi a ⁦@FelipeCalderon⁩ dicen las malas lenguas.
+[Permalink](https://twitter.com/fernandeznorona/status/1537844733074079747) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-06-2022 a las 17:04:15
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 09:08:38
 *****
-17,414 en Facebook y, 10,220 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1537601984798175233) | 94 Me Gusta | 17 Retweets
+¡13! ¿Cómo fue que serán tantos?
+[Permalink](https://twitter.com/fernandeznorona/status/1537844682977320960) | 23 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-06-2022 a las 14:22:35
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 09:03:02
 *****
-Comunidad de Portes Gil, San Felipe del Progreso.
-[Permalink](https://twitter.com/fernandeznorona/status/1537561302293520386) | 106 Me Gusta | 24 Retweets
+La contestación está en mi propia intervención en la Permanente. Yo los iba a defender, el tipo es un intrigante.
+[Permalink](https://twitter.com/fernandeznorona/status/1537843274022629379) | 18 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-06-2022 a las 14:21:24
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 09:01:14
 *****
-De locura, apenas llegando a la comunidad Emilio Portes Gil, en San Felipe del Progreso.
-[Permalink](https://twitter.com/fernandeznorona/status/1537561005781356544) | 194 Me Gusta | 25 Retweets
+RT @SupsipS: @VctorMa89050167 @YIT0S @fernandeznorona Groserías, que te las aguante tu mamá, que fue la que te educó, yo, no tengo por qué…
+[Permalink](https://twitter.com/fernandeznorona/status/1537842818663817222) | 0 Me Gusta | 5 Retweets

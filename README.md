@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 19:53:55
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 09:36:32
 *****
-Una intensa y súper cálida jornada la de hoy en Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1538007071144091648) | 223 Me Gusta | 29 Retweets
+Xalostoc, Tlax. Nos recibe el alcalde Rafael Coca.
+[Permalink](https://twitter.com/fernandeznorona/status/1538214088572125185) | 25 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 16:31:02
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 07:45:35
 *****
-La alcaldesa, Guadalupe Siyancán, en Xoxtla.
-[Permalink](https://twitter.com/fernandeznorona/status/1537956016133836800) | 66 Me Gusta | 20 Retweets
+Domo de Nicolás Bravo, Terrenate.
+[Permalink](https://twitter.com/fernandeznorona/status/1538186169640488960) | 66 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 16:23:35
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 07:36:33
 *****
-Xoxotla, Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1537954141812559872) | 144 Me Gusta | 28 Retweets
+Terrenate, Tlax.
+[Permalink](https://twitter.com/fernandeznorona/status/1538183895824404481) | 48 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 16:11:58
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 05:41:48
 *****
-12,776 en Facebook y, 8544 en Facebook.
-[Permalink](https://twitter.com/fernandeznorona/status/1537951217371869186) | 121 Me Gusta | 18 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1538155017655418882) | 152 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 13:25:40
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 05:39:29
 *****
-Coronango, Puebla
-[Permalink](https://twitter.com/fernandeznorona/status/1537909367143473152) | 186 Me Gusta | 37 Retweets
+RT @QuesaVerdadess: Los Derechangos chingaban cuando hubo escasez de gasolina por el combate al huachicol al principio del sexenio de @lope…
+[Permalink](https://twitter.com/fernandeznorona/status/1538154433992957953) | 0 Me Gusta | 441 Retweets

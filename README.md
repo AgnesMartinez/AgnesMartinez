@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 10:04:07
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 16:31:02
 *****
-Ya en Puebla, camino a la asamblea.
-[Permalink](https://twitter.com/fernandeznorona/status/1537858643277885443) | 21 Me Gusta | 1 Retweets
+La alcaldesa, Guadalupe Siyancán, en Xoxtla.
+[Permalink](https://twitter.com/fernandeznorona/status/1537956016133836800) | 13 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 09:08:50
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 16:23:35
 *****
-RT @snmaiznohaypai: Que se le cayó el wifi a ⁦@FelipeCalderon⁩ dicen las malas lenguas.
-[Permalink](https://twitter.com/fernandeznorona/status/1537844733074079747) | 0 Me Gusta | 12 Retweets
+Xoxotla, Puebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1537954141812559872) | 24 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 09:08:38
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 16:11:58
 *****
-¡13! ¿Cómo fue que serán tantos?
-[Permalink](https://twitter.com/fernandeznorona/status/1537844682977320960) | 23 Me Gusta | 2 Retweets
+12,776 en Facebook y, 8544 en Facebook.
+[Permalink](https://twitter.com/fernandeznorona/status/1537951217371869186) | 30 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 09:03:02
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 13:25:40
 *****
-La contestación está en mi propia intervención en la Permanente. Yo los iba a defender, el tipo es un intrigante.
-[Permalink](https://twitter.com/fernandeznorona/status/1537843274022629379) | 18 Me Gusta | 3 Retweets
+Coronango, Puebla
+[Permalink](https://twitter.com/fernandeznorona/status/1537909367143473152) | 114 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 09:01:14
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2022 a las 12:56:20
 *****
-RT @SupsipS: @VctorMa89050167 @YIT0S @fernandeznorona Groserías, que te las aguante tu mamá, que fue la que te educó, yo, no tengo por qué…
-[Permalink](https://twitter.com/fernandeznorona/status/1537842818663817222) | 0 Me Gusta | 5 Retweets
+Puebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1537901982953840643) | 256 Me Gusta | 38 Retweets

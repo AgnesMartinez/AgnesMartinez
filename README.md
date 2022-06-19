@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 16:43:10
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 19:02:57
 *****
-Para que vean que si soy yo.
-[Permalink](https://twitter.com/fernandeznorona/status/1538321456219582464) | 8 Me Gusta | 0 Retweets
+RT @withdoublen_: #URGENTE Este pequeño salvó a estos perritos de ser arrollados por autos, la cajita estaba cerrada en la basura y al lado…
+[Permalink](https://twitter.com/fernandeznorona/status/1538356634203869184) | 0 Me Gusta | 7,254 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 16:39:23
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 19:02:48
 *****
-Hermoso.
-[Permalink](https://twitter.com/fernandeznorona/status/1538320506272681985) | 14 Me Gusta | 2 Retweets
+RT @LOVREGA: @RafaelChavelas Simpatizo con Gerardo, pero apoyo a Claudia.
+[Permalink](https://twitter.com/fernandeznorona/status/1538356597298237440) | 0 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 16:39:11
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 19:02:41
 *****
-Tepeyanco.
-[Permalink](https://twitter.com/fernandeznorona/status/1538320452707229697) | 8 Me Gusta | 0 Retweets
+RT @LOVREGA: La acusación más estúpida que he recibido del colectivo ChicShion, es la de ser "monrealista".
+
+
+Sus calumnias y difamaciones s…
+[Permalink](https://twitter.com/fernandeznorona/status/1538356566424006656) | 0 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 16:37:08
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 19:00:14
 *****
-La Malintzin.
-[Permalink](https://twitter.com/fernandeznorona/status/1538319937839583232) | 13 Me Gusta | 0 Retweets
+Uh, qué lamentable. Mi solidaridad para familiares y amigos de David Cervantes Peredo.
+[Permalink](https://twitter.com/fernandeznorona/status/1538355949362204674) | 47 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 16:36:31
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 18:58:23
 *****
-Tepeyanco y un fiscal.
-[Permalink](https://twitter.com/fernandeznorona/status/1538319782302212096) | 10 Me Gusta | 0 Retweets
+RT @adrisaa05: 🚨🚨 ¿Los has visto? 🚨🚨🚨
+[Permalink](https://twitter.com/fernandeznorona/status/1538355486889857025) | 0 Me Gusta | 16 Retweets

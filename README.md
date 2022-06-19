@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 19:02:57
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 09:17:54
 *****
-RT @withdoublen_: #URGENTE Este pequeño salvó a estos perritos de ser arrollados por autos, la cajita estaba cerrada en la basura y al lado…
-[Permalink](https://twitter.com/fernandeznorona/status/1538356634203869184) | 0 Me Gusta | 8,147 Retweets
+Papalotla, Tlax.
+[Permalink](https://twitter.com/fernandeznorona/status/1538571787566567424) | 37 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 19:02:48
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 08:38:03
 *****
-RT @LOVREGA: @RafaelChavelas Simpatizo con Gerardo, pero apoyo a Claudia.
-[Permalink](https://twitter.com/fernandeznorona/status/1538356597298237440) | 0 Me Gusta | 3 Retweets
+Ayer en Xaloztoc, Tlax.
+[Permalink](https://twitter.com/fernandeznorona/status/1538561762043248642) | 296 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 19:02:41
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 08:28:38
 *****
-RT @LOVREGA: La acusación más estúpida que he recibido del colectivo ChicShion, es la de ser "monrealista".
-
-
-Sus calumnias y difamaciones s…
-[Permalink](https://twitter.com/fernandeznorona/status/1538356566424006656) | 0 Me Gusta | 26 Retweets
+Baile de carnaval en Papalotla.
+[Permalink](https://twitter.com/fernandeznorona/status/1538559391582105600) | 43 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 19:00:14
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 08:25:20
 *****
-Uh, qué lamentable. Mi solidaridad para familiares y amigos de David Cervantes Peredo.
-[Permalink](https://twitter.com/fernandeznorona/status/1538355949362204674) | 55 Me Gusta | 10 Retweets
+Zacateco.
+[Permalink](https://twitter.com/fernandeznorona/status/1538558560350650368) | 29 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 18:58:23
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 08:24:56
 *****
-RT @adrisaa05: 🚨🚨 ¿Los has visto? 🚨🚨🚨
-[Permalink](https://twitter.com/fernandeznorona/status/1538355486889857025) | 0 Me Gusta | 18 Retweets
+Zacateco, Tlax.
+[Permalink](https://twitter.com/fernandeznorona/status/1538558461071572994) | 34 Me Gusta | 5 Retweets

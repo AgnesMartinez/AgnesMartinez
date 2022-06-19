@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 09:36:32
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 16:43:10
 *****
-Xalostoc, Tlax. Nos recibe el alcalde Rafael Coca.
-[Permalink](https://twitter.com/fernandeznorona/status/1538214088572125185) | 25 Me Gusta | 11 Retweets
+Para que vean que si soy yo.
+[Permalink](https://twitter.com/fernandeznorona/status/1538321456219582464) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 07:45:35
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 16:39:23
 *****
-Domo de Nicolás Bravo, Terrenate.
-[Permalink](https://twitter.com/fernandeznorona/status/1538186169640488960) | 66 Me Gusta | 14 Retweets
+Hermoso.
+[Permalink](https://twitter.com/fernandeznorona/status/1538320506272681985) | 14 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 07:36:33
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 16:39:11
 *****
-Terrenate, Tlax.
-[Permalink](https://twitter.com/fernandeznorona/status/1538183895824404481) | 48 Me Gusta | 11 Retweets
+Tepeyanco.
+[Permalink](https://twitter.com/fernandeznorona/status/1538320452707229697) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 05:41:48
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 16:37:08
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1538155017655418882) | 152 Me Gusta | 19 Retweets
+La Malintzin.
+[Permalink](https://twitter.com/fernandeznorona/status/1538319937839583232) | 13 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 05:39:29
+**Fernández Noroña** (**@fernandeznorona**) • 18-06-2022 a las 16:36:31
 *****
-RT @QuesaVerdadess: Los Derechangos chingaban cuando hubo escasez de gasolina por el combate al huachicol al principio del sexenio de @lope…
-[Permalink](https://twitter.com/fernandeznorona/status/1538154433992957953) | 0 Me Gusta | 441 Retweets
+Tepeyanco y un fiscal.
+[Permalink](https://twitter.com/fernandeznorona/status/1538319782302212096) | 10 Me Gusta | 0 Retweets

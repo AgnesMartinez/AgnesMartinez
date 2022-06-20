@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 16:37:59
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 20:13:08
 *****
-Los volcanes.
-[Permalink](https://twitter.com/fernandeznorona/status/1538682540004806657) | 19 Me Gusta | 1 Retweets
+Más vale tarde que nunca, muchas felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1538736683524530177) | 14 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 16:07:22
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 20:10:47
 *****
-10,137 en Facebook y, 8248 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1538674834149781504) | 32 Me Gusta | 6 Retweets
+RT @Maramensaje: La mafia americana de la que nadie habla es mucho más poderosa que los chapitos, ellos permiten pasar la droga colombiana…
+[Permalink](https://twitter.com/fernandeznorona/status/1538736090927996928) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 14:50:12
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 20:08:18
 *****
-Jeje, tenemos casi la misma edad. Dos años de diferencia. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1538655414853677056) | 27 Me Gusta | 4 Retweets
+@jaimecarranco1 @zombiedarkelf @jaimecruz325 @mario_delgado A ver. Aprende a escribir.
+[Permalink](https://twitter.com/fernandeznorona/status/1538735467373506561) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 13:45:24
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 18:17:52
 *****
-San Cosme Mazatecochco.
-[Permalink](https://twitter.com/fernandeznorona/status/1538639106007126016) | 71 Me Gusta | 19 Retweets
+Suma a @rivapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1538707677597077507) | 37 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 12:49:47
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 18:17:31
 *****
-Mazatecochco, Tlax.
-[Permalink](https://twitter.com/fernandeznorona/status/1538625109719519232) | 83 Me Gusta | 17 Retweets
+Jajajajejejejijijijojojojujuju. Mientes. @GenaroGarciaL no tocó a nadie de ese cartel. No más del 1% de los detenidos por narcotráfico. ¡Ay @rivapa chayotero!, defensor del cartel del #TomandanteBorolas alias @FelipeCalderon. El que entendió, entendió.
+[Permalink](https://twitter.com/fernandeznorona/status/1538707589650948098) | 136 Me Gusta | 53 Retweets

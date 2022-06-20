@@ -3,12 +3,12 @@
 **Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 20:13:08
 *****
 Más vale tarde que nunca, muchas felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1538736683524530177) | 14 Me Gusta | 1 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1538736683524530177) | 25 Me Gusta | 2 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 20:10:47
 *****
 RT @Maramensaje: La mafia americana de la que nadie habla es mucho más poderosa que los chapitos, ellos permiten pasar la droga colombiana…
-[Permalink](https://twitter.com/fernandeznorona/status/1538736090927996928) | 0 Me Gusta | 25 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1538736090927996928) | 0 Me Gusta | 40 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 20:08:18
 *****
@@ -18,9 +18,9 @@ RT @Maramensaje: La mafia americana de la que nadie habla es mucho más poderosa
 **Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 18:17:52
 *****
 Suma a @rivapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1538707677597077507) | 37 Me Gusta | 9 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1538707677597077507) | 42 Me Gusta | 10 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 18:17:31
 *****
 Jajajajejejejijijijojojojujuju. Mientes. @GenaroGarciaL no tocó a nadie de ese cartel. No más del 1% de los detenidos por narcotráfico. ¡Ay @rivapa chayotero!, defensor del cartel del #TomandanteBorolas alias @FelipeCalderon. El que entendió, entendió.
-[Permalink](https://twitter.com/fernandeznorona/status/1538707589650948098) | 136 Me Gusta | 53 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1538707589650948098) | 171 Me Gusta | 64 Retweets

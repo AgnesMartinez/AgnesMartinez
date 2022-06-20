@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 20:13:08
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 09:42:11
 *****
-Más vale tarde que nunca, muchas felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1538736683524530177) | 25 Me Gusta | 2 Retweets
+@JuanitaIzaguir5 Tergiversa.
+[Permalink](https://twitter.com/fernandeznorona/status/1538940288239931392) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 20:10:47
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 09:39:11
 *****
-RT @Maramensaje: La mafia americana de la que nadie habla es mucho más poderosa que los chapitos, ellos permiten pasar la droga colombiana…
-[Permalink](https://twitter.com/fernandeznorona/status/1538736090927996928) | 0 Me Gusta | 40 Retweets
+@Luna_Tagg Dizque.
+[Permalink](https://twitter.com/fernandeznorona/status/1538939531830779905) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 20:08:18
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 09:37:20
 *****
-@jaimecarranco1 @zombiedarkelf @jaimecruz325 @mario_delgado A ver. Aprende a escribir.
-[Permalink](https://twitter.com/fernandeznorona/status/1538735467373506561) | 1 Me Gusta | 0 Retweets
+Pronta recuperación.
+[Permalink](https://twitter.com/fernandeznorona/status/1538939069643624448) | 19 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 18:17:52
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 09:35:56
 *****
-Suma a @rivapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1538707677597077507) | 42 Me Gusta | 10 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1538938715833176064) | 46 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 18:17:31
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 09:31:50
 *****
-Jajajajejejejijijijojojojujuju. Mientes. @GenaroGarciaL no tocó a nadie de ese cartel. No más del 1% de los detenidos por narcotráfico. ¡Ay @rivapa chayotero!, defensor del cartel del #TomandanteBorolas alias @FelipeCalderon. El que entendió, entendió.
-[Permalink](https://twitter.com/fernandeznorona/status/1538707589650948098) | 171 Me Gusta | 64 Retweets
+RT @epigmenioibarra: Se les cayó el mundo y quieren pedir perdón.
+Se acabó una era y creen que hablamos solo de las próximas elecciones.
+El…
+[Permalink](https://twitter.com/fernandeznorona/status/1538937682650312705) | 0 Me Gusta | 2,706 Retweets

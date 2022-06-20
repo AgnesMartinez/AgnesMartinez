@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 09:17:54
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 16:37:59
 *****
-Papalotla, Tlax.
-[Permalink](https://twitter.com/fernandeznorona/status/1538571787566567424) | 37 Me Gusta | 7 Retweets
+Los volcanes.
+[Permalink](https://twitter.com/fernandeznorona/status/1538682540004806657) | 19 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 08:38:03
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 16:07:22
 *****
-Ayer en Xaloztoc, Tlax.
-[Permalink](https://twitter.com/fernandeznorona/status/1538561762043248642) | 296 Me Gusta | 34 Retweets
+10,137 en Facebook y, 8248 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1538674834149781504) | 32 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 08:28:38
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 14:50:12
 *****
-Baile de carnaval en Papalotla.
-[Permalink](https://twitter.com/fernandeznorona/status/1538559391582105600) | 43 Me Gusta | 7 Retweets
+Jeje, tenemos casi la misma edad. Dos años de diferencia. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1538655414853677056) | 27 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 08:25:20
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 13:45:24
 *****
-Zacateco.
-[Permalink](https://twitter.com/fernandeznorona/status/1538558560350650368) | 29 Me Gusta | 3 Retweets
+San Cosme Mazatecochco.
+[Permalink](https://twitter.com/fernandeznorona/status/1538639106007126016) | 71 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 08:24:56
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2022 a las 12:49:47
 *****
-Zacateco, Tlax.
-[Permalink](https://twitter.com/fernandeznorona/status/1538558461071572994) | 34 Me Gusta | 5 Retweets
+Mazatecochco, Tlax.
+[Permalink](https://twitter.com/fernandeznorona/status/1538625109719519232) | 83 Me Gusta | 17 Retweets

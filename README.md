@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 16:36:17
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 18:50:49
 *****
-Miren los qué bellos son.
-[Permalink](https://twitter.com/fernandeznorona/status/1539044499459932160) | 17 Me Gusta | 0 Retweets
+Pero dirán que es el @aifa_aeropuerto
+[Permalink](https://twitter.com/fernandeznorona/status/1539078356666265601) | 42 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 16:31:55
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 18:48:39
 *****
-Pero mañana estaré a las seis de la tarde en la sesión de la primera comisión de la Permanente.
-[Permalink](https://twitter.com/fernandeznorona/status/1539043399885389824) | 26 Me Gusta | 4 Retweets
+Abrazote, colega.
+[Permalink](https://twitter.com/fernandeznorona/status/1539077811951980544) | 49 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 16:31:32
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 18:09:57
 *****
-Pues no entré a la previa de la Permanente pues nunca encontré el vínculo.
-[Permalink](https://twitter.com/fernandeznorona/status/1539043303714267136) | 15 Me Gusta | 0 Retweets
+RT @LJyDMX: “Nunca se termina de aprender a leer. Tal vez como nunca se termine de aprender a vivir”. 
+Jorge Luis Borges
+[Permalink](https://twitter.com/fernandeznorona/status/1539068070035017729) | 0 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 16:14:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 18:01:33
 *****
-12,792 en Facebook y, 9864 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1539038970985603073) | 22 Me Gusta | 4 Retweets
+Xacto, gravísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1539065958689517568) | 37 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 13:58:51
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 17:58:11
 *****
-Vargas Llosa es un extraordinario escritor y una nulidad política.
-[Permalink](https://twitter.com/fernandeznorona/status/1539004880228171792) | 54 Me Gusta | 11 Retweets
+Al paso que van, dirán que ambos tienen 200% de respaldo.
+[Permalink](https://twitter.com/fernandeznorona/status/1539065112740278273) | 69 Me Gusta | 16 Retweets

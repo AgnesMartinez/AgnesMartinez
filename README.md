@@ -1,27 +1,33 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 18:50:49
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 10:08:34
 *****
-Pero dirán que es el @aifa_aeropuerto
-[Permalink](https://twitter.com/fernandeznorona/status/1539078356666265601) | 50 Me Gusta | 9 Retweets
+Es un acto miserable burlarse de la falta de agua que vive el pueblo de Nuevo León. Me parece que es hora de que el gobierno federal intervenga, no debe tolerarse más el sufrimiento del pueblo neoleonés.
+[Permalink](https://twitter.com/fernandeznorona/status/1539309316007600130) | 4 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 18:48:39
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 10:05:54
 *****
-Abrazote, colega.
-[Permalink](https://twitter.com/fernandeznorona/status/1539077811951980544) | 63 Me Gusta | 10 Retweets
+RT @LaydaSansores: ¿Necesitas un crédito para tu negocio?
+
+
+Te presentamos el Programa Emergente de Reactivación Económica.
+
+
+Para mayores in…
+[Permalink](https://twitter.com/fernandeznorona/status/1539308646395285504) | 0 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 18:09:57
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 10:05:21
 *****
-RT @LJyDMX: “Nunca se termina de aprender a leer. Tal vez como nunca se termine de aprender a vivir”. 
-Jorge Luis Borges
-[Permalink](https://twitter.com/fernandeznorona/status/1539068070035017729) | 0 Me Gusta | 33 Retweets
+Luchar, estar como quiera.
+[Permalink](https://twitter.com/fernandeznorona/status/1539308507362521089) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 18:01:33
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 10:04:36
 *****
-Xacto, gravísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1539065958689517568) | 43 Me Gusta | 23 Retweets
+RT @robarrientos: #AIFA…
+La verdad es que está muy bonito y llegas bien rápido. También ya tiene cafés, restaurante y tiendas. Creo que est…
+[Permalink](https://twitter.com/fernandeznorona/status/1539308317918363650) | 0 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2022 a las 17:58:11
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 10:02:35
 *****
-Al paso que van, dirán que ambos tienen 200% de respaldo.
-[Permalink](https://twitter.com/fernandeznorona/status/1539065112740278273) | 88 Me Gusta | 21 Retweets
+Aplicaría lo mismo para todos, yo incluido. Aún no es tiempo.
+[Permalink](https://twitter.com/fernandeznorona/status/1539307810340515841) | 11 Me Gusta | 0 Retweets

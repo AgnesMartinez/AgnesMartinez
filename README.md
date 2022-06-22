@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 16:22:20
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 19:00:38
 *****
-Miren este par de vagos, Eleno y Rodriga.
-[Permalink](https://twitter.com/fernandeznorona/status/1539403376806440960) | 39 Me Gusta | 3 Retweets
+\#AziNoAnlo, la culpa es del @aifa_aeropuerto y el rediseño del espacio aéreo.
+[Permalink](https://twitter.com/fernandeznorona/status/1539443216277291008) | 103 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 16:20:30
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 18:57:13
 *****
-9877 en Facebook y, 11,374 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1539402916200493056) | 13 Me Gusta | 2 Retweets
+RT @GloryOropeza: 13 oct 2013  @fernandeznorona da gran discurso en la calle, mucha gente que iba pasando se detiene a escucharlo, pues el…
+[Permalink](https://twitter.com/fernandeznorona/status/1539442356772130818) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 13:36:52
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 17:33:04
 *****
-RT @AlertaNews24: 🇪🇨 | AHORA: Miles de indígenas siguen llegando a Quito en unas protestas históricas contra el gobierno de Lasso: https://…
-[Permalink](https://twitter.com/fernandeznorona/status/1539361734548332544) | 0 Me Gusta | 2,300 Retweets
+Government.
+[Permalink](https://twitter.com/fernandeznorona/status/1539421178866962432) | 150 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 13:34:01
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 17:28:52
 *****
-Jejeje, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1539361019612450816) | 13 Me Gusta | 0 Retweets
+RT @SupsipS: Imparable, como siempre!
+[Permalink](https://twitter.com/fernandeznorona/status/1539420118983262210) | 0 Me Gusta | 40 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 13:32:58
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 17:08:15
 *****
-Cierto. ¿Por qué será? A mi también me disgustaban los cuadernos cuadriculados.
-[Permalink](https://twitter.com/fernandeznorona/status/1539360753857089536) | 30 Me Gusta | 5 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1539414932487254016) | 27 Me Gusta | 4 Retweets

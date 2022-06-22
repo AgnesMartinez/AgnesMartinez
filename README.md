@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 19:00:38
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 10:06:47
 *****
-\#AziNoAnlo, la culpa es del @aifa_aeropuerto y el rediseño del espacio aéreo.
-[Permalink](https://twitter.com/fernandeznorona/status/1539443216277291008) | 125 Me Gusta | 25 Retweets
+Pues eso no hizo @angelbalderas y tampoco es por eso que lo sancionan. Es miserable que se sumen ustedes a la hipócrita ofensiva de la derecha de usar perversamente el término violencia política de género para eliminar políticamente compañeros.
+[Permalink](https://twitter.com/fernandeznorona/status/1539671256428994562) | 4 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 18:57:13
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 10:01:42
 *****
-RT @GloryOropeza: 13 oct 2013  @fernandeznorona da gran discurso en la calle, mucha gente que iba pasando se detiene a escucharlo, pues el…
-[Permalink](https://twitter.com/fernandeznorona/status/1539442356772130818) | 0 Me Gusta | 12 Retweets
+Xacto, abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1539669974406647808) | 9 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 17:33:04
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 09:58:30
 *****
-Government.
-[Permalink](https://twitter.com/fernandeznorona/status/1539421178866962432) | 167 Me Gusta | 15 Retweets
+Vámonos. Nada que organizan mi gira en Veracruz.
+[Permalink](https://twitter.com/fernandeznorona/status/1539669171675402240) | 9 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 17:28:52
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 09:55:41
 *****
-RT @SupsipS: Imparable, como siempre!
-[Permalink](https://twitter.com/fernandeznorona/status/1539420118983262210) | 0 Me Gusta | 41 Retweets
+Disfruto mucho como les arde a los derechosos mi camioneta.
+[Permalink](https://twitter.com/fernandeznorona/status/1539668461382934528) | 89 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 17:08:15
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 07:52:53
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1539414932487254016) | 28 Me Gusta | 4 Retweets
+Quizás por el kilómetro quizás por el kilómetro 40 de la carretera Cuernavaca México se acaba de voltear una camioneta. @capufe @GN_MEXICO_.
+[Permalink](https://twitter.com/fernandeznorona/status/1539637556744454144) | 68 Me Gusta | 16 Retweets

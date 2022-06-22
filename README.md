@@ -1,33 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 10:08:34
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 16:22:20
 *****
-Es un acto miserable burlarse de la falta de agua que vive el pueblo de Nuevo León. Me parece que es hora de que el gobierno federal intervenga, no debe tolerarse más el sufrimiento del pueblo neoleonés.
-[Permalink](https://twitter.com/fernandeznorona/status/1539309316007600130) | 4 Me Gusta | 2 Retweets
+Miren este par de vagos, Eleno y Rodriga.
+[Permalink](https://twitter.com/fernandeznorona/status/1539403376806440960) | 39 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 10:05:54
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 16:20:30
 *****
-RT @LaydaSansores: ¿Necesitas un crédito para tu negocio?
-
-
-Te presentamos el Programa Emergente de Reactivación Económica.
-
-
-Para mayores in…
-[Permalink](https://twitter.com/fernandeznorona/status/1539308646395285504) | 0 Me Gusta | 30 Retweets
+9877 en Facebook y, 11,374 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1539402916200493056) | 13 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 10:05:21
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 13:36:52
 *****
-Luchar, estar como quiera.
-[Permalink](https://twitter.com/fernandeznorona/status/1539308507362521089) | 3 Me Gusta | 0 Retweets
+RT @AlertaNews24: 🇪🇨 | AHORA: Miles de indígenas siguen llegando a Quito en unas protestas históricas contra el gobierno de Lasso: https://…
+[Permalink](https://twitter.com/fernandeznorona/status/1539361734548332544) | 0 Me Gusta | 2,300 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 10:04:36
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 13:34:01
 *****
-RT @robarrientos: #AIFA…
-La verdad es que está muy bonito y llegas bien rápido. También ya tiene cafés, restaurante y tiendas. Creo que est…
-[Permalink](https://twitter.com/fernandeznorona/status/1539308317918363650) | 0 Me Gusta | 24 Retweets
+Jejeje, abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1539361019612450816) | 13 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 10:02:35
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2022 a las 13:32:58
 *****
-Aplicaría lo mismo para todos, yo incluido. Aún no es tiempo.
-[Permalink](https://twitter.com/fernandeznorona/status/1539307810340515841) | 11 Me Gusta | 0 Retweets
+Cierto. ¿Por qué será? A mi también me disgustaban los cuadernos cuadriculados.
+[Permalink](https://twitter.com/fernandeznorona/status/1539360753857089536) | 30 Me Gusta | 5 Retweets

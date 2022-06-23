@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 10:06:47
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 14:28:30
 *****
-Pues eso no hizo @angelbalderas y tampoco es por eso que lo sancionan. Es miserable que se sumen ustedes a la hipócrita ofensiva de la derecha de usar perversamente el término violencia política de género para eliminar políticamente compañeros.
-[Permalink](https://twitter.com/fernandeznorona/status/1539671256428994562) | 4 Me Gusta | 1 Retweets
+De acuerdo. @Claudiashein debería revisarlo, le hacen daño.
+[Permalink](https://twitter.com/fernandeznorona/status/1539737119492431872) | 41 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 10:01:42
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 13:05:03
 *****
-Xacto, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1539669974406647808) | 9 Me Gusta | 2 Retweets
+RT @epigmenioibarra: Fondo tocamos -le respondo a Felipe Calderón- desde que, a balazos, impuso a decenas de miles de jóvenes un solo desti…
+[Permalink](https://twitter.com/fernandeznorona/status/1539716115877842953) | 0 Me Gusta | 1,221 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 09:58:30
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 11:33:22
 *****
-Vámonos. Nada que organizan mi gira en Veracruz.
-[Permalink](https://twitter.com/fernandeznorona/status/1539669171675402240) | 9 Me Gusta | 2 Retweets
+RT @_VicenteSerrano: Al hablar de la escasez de agua, el presidente @lopezobrador_ exhibió que @VicenteFoxQue hasta nombró al gerente de @G…
+[Permalink](https://twitter.com/fernandeznorona/status/1539693044085178368) | 0 Me Gusta | 321 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 09:55:41
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 11:33:04
 *****
-Disfruto mucho como les arde a los derechosos mi camioneta.
-[Permalink](https://twitter.com/fernandeznorona/status/1539668461382934528) | 89 Me Gusta | 10 Retweets
+RT @LPOmx: #Mañanera #Destacado | El presidente indicó que en el poder judicial hay jueces que no se encuentran a la altura de las circunst…
+[Permalink](https://twitter.com/fernandeznorona/status/1539692967811760129) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 07:52:53
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2022 a las 11:32:54
 *****
-Quizás por el kilómetro quizás por el kilómetro 40 de la carretera Cuernavaca México se acaba de voltear una camioneta. @capufe @GN_MEXICO_.
-[Permalink](https://twitter.com/fernandeznorona/status/1539637556744454144) | 68 Me Gusta | 16 Retweets
+RT @SinLinea_Mx: ‼️Ante sequía en Nuevo León, 15 empresas acaparan casi la totalidad del agua disponible
+
+
+¿Esas empresas se quedan sin agua…
+[Permalink](https://twitter.com/fernandeznorona/status/1539692926892232705) | 0 Me Gusta | 163 Retweets

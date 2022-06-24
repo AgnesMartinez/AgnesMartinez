@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2022 a las 20:01:30
+**Fernández Noroña** (**@fernandeznorona**) • 24-06-2022 a las 09:25:04
 *****
-Todavía no platico con @esnoticiaalesal y ya hablan de violencia política de género. ¡Qué intrigante es @M_ArellanoMx!
-[Permalink](https://twitter.com/fernandeznorona/status/1540183309128441856) | 50 Me Gusta | 15 Retweets
+RT @ebauman70: Recuerden, si alguien joven y saludable muere inesperadamente, es inapropiado preguntar acerca de su status de vacunación. E…
+[Permalink](https://twitter.com/fernandeznorona/status/1540385531250573315) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2022 a las 16:14:42
+**Fernández Noroña** (**@fernandeznorona**) • 24-06-2022 a las 09:24:50
 *****
-13,015 en Facebook y, 8920 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1540126230254702595) | 103 Me Gusta | 9 Retweets
+RT @sofianosabia: Se fue Trump de la presidencia de EUA, pero la derecha rancia sigue en la Corte y gobernando ese país, quitándole derecho…
+[Permalink](https://twitter.com/fernandeznorona/status/1540385474073825282) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2022 a las 14:13:46
+**Fernández Noroña** (**@fernandeznorona**) • 24-06-2022 a las 09:15:05
 *****
-Tepetlaoxtoc.
-[Permalink](https://twitter.com/fernandeznorona/status/1540095796124782593) | 180 Me Gusta | 24 Retweets
+Ya estoy en Querétaro centro, pero están cerradas las calles cercanas al café.
+[Permalink](https://twitter.com/fernandeznorona/status/1540383019487346689) | 55 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2022 a las 13:25:22
+**Fernández Noroña** (**@fernandeznorona**) • 24-06-2022 a las 09:09:26
 *****
-Así vamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1540083618860638208) | 186 Me Gusta | 18 Retweets
+RT @RMLidiaG: Por favor circular, es el hijo de una compañera y cualquier información hacerla llegar.  Gracias
+[Permalink](https://twitter.com/fernandeznorona/status/1540381596582289410) | 0 Me Gusta | 6,877 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2022 a las 13:23:48
+**Fernández Noroña** (**@fernandeznorona**) • 24-06-2022 a las 08:44:35
 *****
-Ya se me había olvidado lo que dijo el #TomandanteBorolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1540083224902254592) | 36 Me Gusta | 9 Retweets
+RT @TValentinaRR: ¡Morelos te espera, Noroña! Te invitamos a la charla que tendremos con nuestro diputado federal @fernandeznorona, quien n…
+[Permalink](https://twitter.com/fernandeznorona/status/1540375343495798785) | 0 Me Gusta | 23 Retweets

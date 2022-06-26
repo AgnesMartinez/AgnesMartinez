@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 16:39:37
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 19:10:10
 *****
-Ayer antes de perder la cabeza.
-[Permalink](https://twitter.com/fernandeznorona/status/1540857277674127360) | 8 Me Gusta | 1 Retweets
+@Marianamg86 Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1540895163769270272) | 6 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 16:39:06
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 19:03:42
 *****
-Se le rompió la cabeza en el traslado. ⁦@Ascension528Hz⁩ lo reparó. Es una chingona.
-[Permalink](https://twitter.com/fernandeznorona/status/1540857147172462594) | 14 Me Gusta | 0 Retweets
+@Marianamg86 Patanazo.
+[Permalink](https://twitter.com/fernandeznorona/status/1540893538933649408) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 16:35:19
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 19:02:21
 *****
-Vamos saliendo de Tequesquitengo rumbo a Tepoztlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1540856195321298944) | 34 Me Gusta | 4 Retweets
+Toda mi solidaridad con Jesús Ernesto. Es bastante ruin que lo ataquen porque no pueden hacerle daño al compañero presidente @lopezobrador_. Un abrazote a @BeatrizGMuller y toda mi solidaridad a la familia. #ConLosNinosNo.
+[Permalink](https://twitter.com/fernandeznorona/status/1540893198771335178) | 1,720 Me Gusta | 492 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 16:21:44
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 19:00:40
 *****
-10,272 en Facebook y, 8896 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1540852776799830016) | 14 Me Gusta | 2 Retweets
+RT @TValentinaRR: Nuestro #Morelos es único y nuestra gente del municipio de #Temixco tan cálida nos recibió con entusiasmo para tener una…
+[Permalink](https://twitter.com/fernandeznorona/status/1540892772781019137) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 13:19:27
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 19:00:31
 *****
-Tehuixtla, Jojutla, Mor.
-[Permalink](https://twitter.com/fernandeznorona/status/1540806906494590976) | 47 Me Gusta | 9 Retweets
+RT @LaydaSansores: Alejandro, ¿aún sigues en el PRI? Este #MartesDelJaguar presentaremos otro audio. 
+
+
+Invito a @lorenzocordovav para que v…
+[Permalink](https://twitter.com/fernandeznorona/status/1540892737066520577) | 0 Me Gusta | 2,092 Retweets

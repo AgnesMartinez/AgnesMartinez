@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 09:52:49
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 16:39:37
 *****
-Temixco, Mor.
-[Permalink](https://twitter.com/fernandeznorona/status/1540754901491392513) | 23 Me Gusta | 4 Retweets
+Ayer antes de perder la cabeza.
+[Permalink](https://twitter.com/fernandeznorona/status/1540857277674127360) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 09:52:04
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 16:39:06
 *****
-Cuernavaca, Colonia Patios de la Estación.
-[Permalink](https://twitter.com/fernandeznorona/status/1540754715557957632) | 16 Me Gusta | 4 Retweets
+Se le rompió la cabeza en el traslado. ⁦@Ascension528Hz⁩ lo reparó. Es una chingona.
+[Permalink](https://twitter.com/fernandeznorona/status/1540857147172462594) | 14 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 07:47:01
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 16:35:19
 *****
-Cuernavaca, Colonia Patios de la Estación.
-[Permalink](https://twitter.com/fernandeznorona/status/1540723244281368577) | 75 Me Gusta | 16 Retweets
+Vamos saliendo de Tequesquitengo rumbo a Tepoztlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1540856195321298944) | 34 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 06:46:44
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 16:21:44
 *****
-Ya en Cuernavaca. Ayer llegué cerca de la una de la madrugada a Tepoztlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1540708074591178755) | 181 Me Gusta | 22 Retweets
+10,272 en Facebook y, 8896 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1540852776799830016) | 14 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-06-2022 a las 19:52:46
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 13:19:27
 *****
-RT @Marianamg86: Ésto no lo viven los hombres, éste miedo solo nosotras sabemos lo que se siente que te cacen cómo un animal.
-[Permalink](https://twitter.com/fernandeznorona/status/1540543496062386189) | 0 Me Gusta | 14 Retweets
+Tehuixtla, Jojutla, Mor.
+[Permalink](https://twitter.com/fernandeznorona/status/1540806906494590976) | 47 Me Gusta | 9 Retweets

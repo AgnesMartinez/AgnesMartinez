@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-06-2022 a las 09:55:40
+**Fernández Noroña** (**@fernandeznorona**) • 26-06-2022 a las 16:41:25
 *****
-Jonacatepec, Mor.
-[Permalink](https://twitter.com/fernandeznorona/status/1541118009971982341) | 20 Me Gusta | 3 Retweets
+11,670 en Facebook y, 9479 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1541220117652148226) | 10 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-06-2022 a las 07:46:58
+**Fernández Noroña** (**@fernandeznorona**) • 26-06-2022 a las 14:20:54
 *****
-Zacualpan, Mor.
-[Permalink](https://twitter.com/fernandeznorona/status/1541085621791477761) | 47 Me Gusta | 5 Retweets
+RT @JesusRCuevas: El debate político intenso es propio de la democracia. Los discursos de odio, clasismo y racismo son propios de huestes f…
+[Permalink](https://twitter.com/fernandeznorona/status/1541184755861004288) | 0 Me Gusta | 1,037 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-06-2022 a las 06:18:53
+**Fernández Noroña** (**@fernandeznorona**) • 26-06-2022 a las 14:20:43
 *****
-Muchas felicidades. Que vengan muchos años más.
-[Permalink](https://twitter.com/fernandeznorona/status/1541063454030716928) | 104 Me Gusta | 15 Retweets
+RT @LaydaSansores: Mi solidaridad, apoyo y cariño para Jesús Ernesto, quien no merece recibir ataques de odio de ningún tipo; se violaron s…
+[Permalink](https://twitter.com/fernandeznorona/status/1541184709237116934) | 0 Me Gusta | 498 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-06-2022 a las 06:12:13
+**Fernández Noroña** (**@fernandeznorona**) • 26-06-2022 a las 14:12:44
 *****
-Ya vamos rumbo a Zacualpan.
-[Permalink](https://twitter.com/fernandeznorona/status/1541061773612154880) | 145 Me Gusta | 13 Retweets
+Tetelcingo, Mor.
+[Permalink](https://twitter.com/fernandeznorona/status/1541182702170275841) | 37 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2022 a las 19:10:10
+**Fernández Noroña** (**@fernandeznorona**) • 26-06-2022 a las 14:10:58
 *****
-@Marianamg86 Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1540895163769270272) | 7 Me Gusta | 1 Retweets
+Tetelcingo.
+[Permalink](https://twitter.com/fernandeznorona/status/1541182258295472129) | 57 Me Gusta | 8 Retweets

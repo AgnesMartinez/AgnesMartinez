@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 16:13:28
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 20:25:40
 *****
-12,030 en Facebook y, 7720 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1541575474912104450) | 27 Me Gusta | 4 Retweets
+RT @abrahamendieta: 45 migrantes asesinados en la frontera de Melilla, 42 más, ahogados en un trailer en Texas. 
+
+
+El mundo en una crisis ét…
+[Permalink](https://twitter.com/fernandeznorona/status/1541638941702504451) | 0 Me Gusta | 829 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 14:55:25
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 20:22:31
 *****
-¡Tú y tu mareado se parecen cabrón! O por lo menos en esa foto. Felicidades a tu pequeño y a ustedes.
-[Permalink](https://twitter.com/fernandeznorona/status/1541555830679650304) | 21 Me Gusta | 1 Retweets
+RT @aga10mx: ¿Alguna objeción?
+[Permalink](https://twitter.com/fernandeznorona/status/1541638149616664578) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 13:51:41
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 20:21:55
 *****
-Llegamos a la ola 5 millones del coví y siguen diciendo que quienes no nos vacunamos, moriremos. Es cierto, moriremos porque somos mortales.
-[Permalink](https://twitter.com/fernandeznorona/status/1541539793326247936) | 147 Me Gusta | 35 Retweets
+RT @joabsa: Me urge trabajar, estoy desempleado carpintería fina, especialista en cocinas integrales, ayudame con un RT porfa
+[Permalink](https://twitter.com/fernandeznorona/status/1541637995580768257) | 0 Me Gusta | 1,352 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 13:50:35
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 19:51:22
 *****
-RT @maquilator: @fernandeznorona Los Noroñerrimos estamos a  otro nivel.
-[Permalink](https://twitter.com/fernandeznorona/status/1541539515361378306) | 0 Me Gusta | 7 Retweets
+RT @m_ebrard: Tragedia en Texas. Asfixiados en la caja del trailer según se informa. Cónsul en ruta al punto. Condolencias a las víctimas y…
+[Permalink](https://twitter.com/fernandeznorona/status/1541630309158080515) | 0 Me Gusta | 558 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 13:50:21
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 19:48:16
 *****
-Jejeje, abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1541539456850731008) | 27 Me Gusta | 3 Retweets
+RT @AnaMendoza1989: @fernandeznorona Noroña no va en pancartas, ni en bardas, va en el corazón del pueblo, que bonito 🥰♥️
+[Permalink](https://twitter.com/fernandeznorona/status/1541629527469826048) | 0 Me Gusta | 21 Retweets

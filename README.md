@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 09:46:28
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 16:13:28
 *****
-La bella, salvaje y arisca, Fitz-Roy.
-[Permalink](https://twitter.com/fernandeznorona/status/1541478082623803393) | 41 Me Gusta | 6 Retweets
+12,030 en Facebook y, 7720 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1541575474912104450) | 27 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 09:45:05
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 14:55:25
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1541477734668554240) | 14 Me Gusta | 1 Retweets
+¡Tú y tu mareado se parecen cabrón! O por lo menos en esa foto. Felicidades a tu pequeño y a ustedes.
+[Permalink](https://twitter.com/fernandeznorona/status/1541555830679650304) | 21 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 09:25:45
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 13:51:41
 *****
-¡Ah qué caray! Que te recuperes pronto y estés al 100% para lograr tus objetivos. Y mira que yo tengo en mente la misma meta. Abrazote @m_ebrard.
-[Permalink](https://twitter.com/fernandeznorona/status/1541472869032542212) | 81 Me Gusta | 11 Retweets
+Llegamos a la ola 5 millones del coví y siguen diciendo que quienes no nos vacunamos, moriremos. Es cierto, moriremos porque somos mortales.
+[Permalink](https://twitter.com/fernandeznorona/status/1541539793326247936) | 147 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 09:15:32
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 13:50:35
 *****
-¡No te imagino con 90 kilos! ¡Qué fuerte!
-[Permalink](https://twitter.com/fernandeznorona/status/1541470295038517250) | 25 Me Gusta | 1 Retweets
+RT @maquilator: @fernandeznorona Los Noroñerrimos estamos a  otro nivel.
+[Permalink](https://twitter.com/fernandeznorona/status/1541539515361378306) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-06-2022 a las 19:10:21
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2022 a las 13:50:21
 *****
-RT @fuedicho: "Yo no soy lo que me sucedió, yo soy lo que elegí ser".
-Carl Gustav Jung 
-\#Fuedicho
-[Permalink](https://twitter.com/fernandeznorona/status/1541257598703370241) | 0 Me Gusta | 1,305 Retweets
+Jejeje, abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1541539456850731008) | 27 Me Gusta | 3 Retweets

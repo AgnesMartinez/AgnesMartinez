@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 15:57:47
+**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 21:05:19
 *****
-19,355 en Facebook y, 7479 en YouTube. Yo creo que me están haciendo medidas fraudulentas en esta última Red.
-[Permalink](https://twitter.com/fernandeznorona/status/1541933913601351683) | 33 Me Gusta | 3 Retweets
+@Mike28dev Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1542011308052209664) | 3 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 13:52:21
+**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 21:03:30
 *****
-Teotihuacán, a pesar de la lluvia.
-[Permalink](https://twitter.com/fernandeznorona/status/1541902346824851458) | 98 Me Gusta | 14 Retweets
+Apenas llegando a casa después de una exitosa y fuerte gira por el Estado de México. Zona oriente.
+[Permalink](https://twitter.com/fernandeznorona/status/1542010851040923649) | 96 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 13:07:19
+**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 19:24:34
 *****
-Pensé que eras decente, pero tu desvergüenza es inaudita. El asesinato de niños y niñas en retenes militares; el baño de sangre, las desapariciones forzadas durante los gobiernos de tu partido no te importaron nunca un pepino, @SantiagoCreelM.
-[Permalink](https://twitter.com/fernandeznorona/status/1541891013672935431) | 212 Me Gusta | 87 Retweets
+No hay grupos cerrados. Todo el que quiera apoyarme lo puede hacer.
+[Permalink](https://twitter.com/fernandeznorona/status/1541985954608648192) | 46 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 13:04:18
+**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 19:23:45
 *****
-RT @abrahamendieta: Buscar un reparto más equitativo de la riqueza no es luchar por el comunismo, es luchar por la decencia. 
-
-
-Es indecente…
-[Permalink](https://twitter.com/fernandeznorona/status/1541890257280434177) | 0 Me Gusta | 453 Retweets
+@Mike28dev Echan.
+[Permalink](https://twitter.com/fernandeznorona/status/1541985748202700800) | 17 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 13:02:55
+**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 17:02:06
 *****
-Pronta recuperación, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1541889906657660932) | 22 Me Gusta | 2 Retweets
+San Bartolomé Actopan, Temascalapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1541950101291163648) | 42 Me Gusta | 15 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 05:51:36
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 15:51:56
 *****
-Pronta recuperación, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1542143748846624769) | 37 Me Gusta | 3 Retweets
+RT @rijave62:
+[Permalink](https://twitter.com/fernandeznorona/status/1542294831237476352) | 0 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 05:47:47
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 15:44:02
 *****
-Ya voy rumbo al @senadomexicano para la sesión de hoy de la Comisión Permanente. #DoctorNoroña.
-[Permalink](https://twitter.com/fernandeznorona/status/1542142789818916865) | 298 Me Gusta | 49 Retweets
+Muy contentito.
+[Permalink](https://twitter.com/fernandeznorona/status/1542292842378174465) | 80 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 21:05:19
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 15:42:52
 *****
-@Mike28dev Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1542011308052209664) | 5 Me Gusta | 3 Retweets
+Chingón.
+[Permalink](https://twitter.com/fernandeznorona/status/1542292548915326976) | 234 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 21:03:30
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 15:30:19
 *****
-Apenas llegando a casa después de una exitosa y fuerte gira por el Estado de México. Zona oriente.
-[Permalink](https://twitter.com/fernandeznorona/status/1542010851040923649) | 320 Me Gusta | 29 Retweets
+Por fortuna aún no se arroga el @TEPJF_informa la emisión de sentencias de muerte, pues de lo contrario, la Santa Inquisición Electoral ya habría ejecutado a dos inocentes.
+[Permalink](https://twitter.com/fernandeznorona/status/1542289389048303616) | 35 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2022 a las 19:24:34
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 15:30:19
 *****
-No hay grupos cerrados. Todo el que quiera apoyarme lo puede hacer.
-[Permalink](https://twitter.com/fernandeznorona/status/1541985954608648192) | 70 Me Gusta | 13 Retweets
+La resolución del @TEPJF_informa es tan burda, que amonesta a @AlbertoAnayaGt que no participó en la pasada reunión de la JUCOPO y a Carlos Puente Islas, que ni diputado es, mucho menos miembro de la JUCOPO. Por fortuna aún no se arroga el citado tribuna la emisión…
+[Permalink](https://twitter.com/fernandeznorona/status/1542289387660070913) | 40 Me Gusta | 9 Retweets

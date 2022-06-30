@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 20:25:38
+**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 09:17:58
 *****
-La luz del chayote no regresará @hdemiaulion. @hdemauleon
-[Permalink](https://twitter.com/fernandeznorona/status/1542363706822168577) | 188 Me Gusta | 37 Retweets
+San Pedro Xalostoc, Ecatepec.
+[Permalink](https://twitter.com/fernandeznorona/status/1542558073289572352) | 54 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 20:21:28
+**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 08:16:20
 *****
-RT @rosendomarind: Gerardo Fernández Noroña @fernandeznorona en
-Acolman 
-Delegación Municipal de
-Xometla.
-Jueves 30 de junio
-16 hrs
-No falt…
-[Permalink](https://twitter.com/fernandeznorona/status/1542362661836431360) | 0 Me Gusta | 24 Retweets
+San Pedro Xalistoc, Ecatepec.
+[Permalink](https://twitter.com/fernandeznorona/status/1542542563093188608) | 62 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 19:13:39
+**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 07:54:47
 *****
-Para variar, la plaza de Leandro Valle como estacionamiento ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1542345593988780033) | 43 Me Gusta | 9 Retweets
+Si es dinero público, en los demás estás en lo correcto.
+[Permalink](https://twitter.com/fernandeznorona/status/1542537136913760257) | 20 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 18:10:50
+**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 07:48:10
 *****
-8985 en Facebook y, 7785 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1542329783505256450) | 86 Me Gusta | 16 Retweets
+@jpau74 Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1542535473217896449) | 5 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2022 a las 15:51:56
+**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 07:06:38
 *****
-RT @rijave62:
-[Permalink](https://twitter.com/fernandeznorona/status/1542294831237476352) | 0 Me Gusta | 108 Retweets
+Ahí sigue, están tranquilo. ⁦@UCS_GCDMX⁩. ¿Es mucho pedir una grúa?
+[Permalink](https://twitter.com/fernandeznorona/status/1542525019443585024) | 58 Me Gusta | 14 Retweets

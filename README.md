@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 16:50:56
+**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 21:10:22
 *****
-Si te comes lo que siempre subes a las redes, es impresionante que te mantengas en forma.
-[Permalink](https://twitter.com/fernandeznorona/status/1542672066599600129) | 0 Me Gusta | 0 Retweets
+Urge ambulancia y más policía en Flores Magón y Zarco, Col. Guerrero. .
+[Permalink](https://twitter.com/fernandeznorona/status/1542737354124828672) | 68 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 16:41:24
+**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 21:01:57
 *****
-Lamentable que siendo mujer quieras mantener la cadena de sumisión de las mujeres obligándolas a parir en contra de su voluntad.
-[Permalink](https://twitter.com/fernandeznorona/status/1542669664458792960) | 7 Me Gusta | 3 Retweets
+En Flores Magón esquina con Zarco acaba de haber un accidente. Una persona atropellada. Urge policía pues la gente está agresiva con el conductor del auto que se quedó a atender al herido. @UCS_GCDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1542735236630446084) | 54 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 16:40:16
+**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 20:18:21
 *****
-RT @m_ebrard: Confirmado encuentro de los Presidentes López Obrador y Biden el próximo 12 de julio. La agenda ya ha sido acordada con el Se…
-[Permalink](https://twitter.com/fernandeznorona/status/1542669379174793216) | 0 Me Gusta | 1,205 Retweets
+Pronta recuperación, abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1542724263228149760) | 53 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 16:35:58
+**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 19:48:43
 *****
-RT @adrisaa05: @Beatriz84981597 @fernandeznorona Soy la que está con la cartulina 🤣.
-[Permalink](https://twitter.com/fernandeznorona/status/1542668300848594944) | 0 Me Gusta | 1 Retweets
+RT @rosendomarind: Las asambleas informativas encabezadas por 
+Gerardo Fernández Noroña (@fernandeznorona)
+\#SanPedroXalostoc  #Ecatepec y…
+[Permalink](https://twitter.com/fernandeznorona/status/1542716806779047936) | 0 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 16:33:20
+**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 17:56:55
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1542667636265320448) | 45 Me Gusta | 4 Retweets
+Pronta recuperación, abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1542688670636974080) | 52 Me Gusta | 2 Retweets

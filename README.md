@@ -1,28 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 21:10:22
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 09:54:58
 *****
-Urge ambulancia y más policía en Flores Magón y Zarco, Col. Guerrero. .
-[Permalink](https://twitter.com/fernandeznorona/status/1542737354124828672) | 123 Me Gusta | 37 Retweets
+Miren ⁦@PRI_Nacional⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1542929770131881986) | 39 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 21:01:57
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 09:53:21
 *****
-En Flores Magón esquina con Zarco acaba de haber un accidente. Una persona atropellada. Urge policía pues la gente está agresiva con el conductor del auto que se quedó a atender al herido. @UCS_GCDMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1542735236630446084) | 95 Me Gusta | 36 Retweets
+Qué dura autocrítica te estás haciendo leoncito @leozuckermann.
+[Permalink](https://twitter.com/fernandeznorona/status/1542929365486419968) | 48 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 20:18:21
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 09:47:05
 *****
-Pronta recuperación, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1542724263228149760) | 64 Me Gusta | 10 Retweets
+RT @lximenezsarro: Es correcto, un engaño más.
+
+
+¿Cómo pueden hacer una refinería donde la gente no sale hablando refinadamente?
+[Permalink](https://twitter.com/fernandeznorona/status/1542927788033843202) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 19:48:43
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 09:46:53
 *****
-RT @rosendomarind: Las asambleas informativas encabezadas por 
-Gerardo Fernández Noroña (@fernandeznorona)
-\#SanPedroXalostoc  #Ecatepec y…
-[Permalink](https://twitter.com/fernandeznorona/status/1542716806779047936) | 0 Me Gusta | 25 Retweets
+@MojoTNC @PlinioAlfonso Ha tenido. Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1542927739145097218) | 2 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-06-2022 a las 17:56:55
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 09:24:12
 *****
-Pronta recuperación, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1542688670636974080) | 66 Me Gusta | 2 Retweets
+RT @cristina_sada: Rt 🙏🏻📣
+@Netzai_Sandoval, Ana Georgina tiene 13 años presa sin juicio. Es injusto, inhumano, un franco vejámen a sus dere…
+[Permalink](https://twitter.com/fernandeznorona/status/1542922028612829186) | 0 Me Gusta | 386 Retweets

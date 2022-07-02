@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 16:23:23
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 20:21:22
 *****
-17,842 en Facebook y, 10,848 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1543027521184272385) | 23 Me Gusta | 4 Retweets
+RT @LiliaEscalona1: Buenas noches, un favor, compartan a esta persona al parecer fue atropellada y ya tiene semanas en el hospital, se encu…
+[Permalink](https://twitter.com/fernandeznorona/status/1543087410292072450) | 0 Me Gusta | 245 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 14:34:52
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 20:16:44
 *****
-RT @CamiLicona27: La Refinería Olmeca ya refinó su primer barril, pero fue de lágrimas de los opositores. 😭😭
-[Permalink](https://twitter.com/fernandeznorona/status/1543000211638870016) | 0 Me Gusta | 65 Retweets
+RT @saph1627: Invitando a todos los seguidores del próximo presidente de México , @fernandeznorona a qué coloquen este cartel en su hogar o…
+[Permalink](https://twitter.com/fernandeznorona/status/1543086242916614144) | 0 Me Gusta | 38 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 13:35:49
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 20:16:04
 *****
-RT @PonchoGutz: Aunque la refinería ya estuviera produciendo gasolina la estarían haciendo de pedo; aunque no contaminara nada ya la estarí…
-[Permalink](https://twitter.com/fernandeznorona/status/1542985350716473345) | 0 Me Gusta | 458 Retweets
+Es muy buena.
+[Permalink](https://twitter.com/fernandeznorona/status/1543086076859908098) | 22 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 13:34:56
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 18:35:40
 *****
-RT @GloryOropeza: Alguien sabe dónde venden está preciosidad? 👇
-\#RefineriaOlmeca
-[Permalink](https://twitter.com/fernandeznorona/status/1542985128728748033) | 0 Me Gusta | 33 Retweets
+Vamos saliendo de Pueblo quieto rumbo al D.F. para salir mañana muy temprano a Yucatán.
+[Permalink](https://twitter.com/fernandeznorona/status/1543060808283873283) | 239 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 13:18:30
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 17:43:52
 *****
-RT @epigmenioibarra: En 2017 filmamos furtivamente con AMLO y @BeatrizGMuller en Dos Bocas. “Aquí -dijo- vamos a hacer una refinería” y lue…
-[Permalink](https://twitter.com/fernandeznorona/status/1542980994709553153) | 0 Me Gusta | 1,686 Retweets
+RT @Metzxik: “La Montaña siempre tiene la última palabra”.
+[Permalink](https://twitter.com/fernandeznorona/status/1543047773574103041) | 0 Me Gusta | 7 Retweets

@@ -1,30 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 09:54:58
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 16:23:23
 *****
-Miren ⁦@PRI_Nacional⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1542929770131881986) | 39 Me Gusta | 15 Retweets
+17,842 en Facebook y, 10,848 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1543027521184272385) | 23 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 09:53:21
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 14:34:52
 *****
-Qué dura autocrítica te estás haciendo leoncito @leozuckermann.
-[Permalink](https://twitter.com/fernandeznorona/status/1542929365486419968) | 48 Me Gusta | 17 Retweets
+RT @CamiLicona27: La Refinería Olmeca ya refinó su primer barril, pero fue de lágrimas de los opositores. 😭😭
+[Permalink](https://twitter.com/fernandeznorona/status/1543000211638870016) | 0 Me Gusta | 65 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 09:47:05
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 13:35:49
 *****
-RT @lximenezsarro: Es correcto, un engaño más.
-
-
-¿Cómo pueden hacer una refinería donde la gente no sale hablando refinadamente?
-[Permalink](https://twitter.com/fernandeznorona/status/1542927788033843202) | 0 Me Gusta | 8 Retweets
+RT @PonchoGutz: Aunque la refinería ya estuviera produciendo gasolina la estarían haciendo de pedo; aunque no contaminara nada ya la estarí…
+[Permalink](https://twitter.com/fernandeznorona/status/1542985350716473345) | 0 Me Gusta | 458 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 09:46:53
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 13:34:56
 *****
-@MojoTNC @PlinioAlfonso Ha tenido. Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1542927739145097218) | 2 Me Gusta | 1 Retweets
+RT @GloryOropeza: Alguien sabe dónde venden está preciosidad? 👇
+\#RefineriaOlmeca
+[Permalink](https://twitter.com/fernandeznorona/status/1542985128728748033) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 09:24:12
+**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 13:18:30
 *****
-RT @cristina_sada: Rt 🙏🏻📣
-@Netzai_Sandoval, Ana Georgina tiene 13 años presa sin juicio. Es injusto, inhumano, un franco vejámen a sus dere…
-[Permalink](https://twitter.com/fernandeznorona/status/1542922028612829186) | 0 Me Gusta | 386 Retweets
+RT @epigmenioibarra: En 2017 filmamos furtivamente con AMLO y @BeatrizGMuller en Dos Bocas. “Aquí -dijo- vamos a hacer una refinería” y lue…
+[Permalink](https://twitter.com/fernandeznorona/status/1542980994709553153) | 0 Me Gusta | 1,686 Retweets

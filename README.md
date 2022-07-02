@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 04:11:08
+**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 09:52:14
 *****
-@xX_DarkAdria_Xx Hay.
-[Permalink](https://twitter.com/fernandeznorona/status/1543205632962183168) | 1 Me Gusta | 1 Retweets
+Yo creo que está enamorado de mí.
+[Permalink](https://twitter.com/fernandeznorona/status/1543291470983168008) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 04:09:27
+**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 09:51:58
 *****
-Ya en el aeropuerto para viajar a Mérida.
-[Permalink](https://twitter.com/fernandeznorona/status/1543205209593331713) | 8 Me Gusta | 2 Retweets
+Que fue al aeropuerto, pero se le arrugó el corazón.
+[Permalink](https://twitter.com/fernandeznorona/status/1543291404742529025) | 8 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 20:21:22
+**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 09:51:13
 *****
-RT @LiliaEscalona1: Buenas noches, un favor, compartan a esta persona al parecer fue atropellada y ya tiene semanas en el hospital, se encu…
-[Permalink](https://twitter.com/fernandeznorona/status/1543087410292072450) | 0 Me Gusta | 354 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1543291216778887169) | 18 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 20:16:44
+**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 08:30:00
 *****
-RT @saph1627: Invitando a todos los seguidores del próximo presidente de México , @fernandeznorona a qué coloquen este cartel en su hogar o…
-[Permalink](https://twitter.com/fernandeznorona/status/1543086242916614144) | 0 Me Gusta | 56 Retweets
+Estoy en la “Chaya Maya”, la Casona.
+[Permalink](https://twitter.com/fernandeznorona/status/1543270776069054464) | 104 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-07-2022 a las 20:16:04
+**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 07:20:46
 *****
-Es muy buena.
-[Permalink](https://twitter.com/fernandeznorona/status/1543086076859908098) | 31 Me Gusta | 3 Retweets
+Ahí @UCS_GCDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1543253355337814016) | 28 Me Gusta | 27 Retweets

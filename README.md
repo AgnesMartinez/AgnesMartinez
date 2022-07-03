@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 09:52:14
+**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 16:13:47
 *****
-Yo creo que está enamorado de mí.
-[Permalink](https://twitter.com/fernandeznorona/status/1543291470983168008) | 15 Me Gusta | 1 Retweets
+7552 en Facebook y, 6773 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1543387491922739200) | 20 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 09:51:58
+**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 10:56:15
 *****
-Que fue al aeropuerto, pero se le arrugó el corazón.
-[Permalink](https://twitter.com/fernandeznorona/status/1543291404742529025) | 8 Me Gusta | 2 Retweets
+Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1543307582500216832) | 40 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 09:51:13
+**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 10:55:07
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1543291216778887169) | 18 Me Gusta | 3 Retweets
+Abrazote, me da mucho gusto verte recuperado.
+[Permalink](https://twitter.com/fernandeznorona/status/1543307298218676225) | 27 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 08:30:00
+**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 10:47:59
 *****
-Estoy en la “Chaya Maya”, la Casona.
-[Permalink](https://twitter.com/fernandeznorona/status/1543270776069054464) | 104 Me Gusta | 7 Retweets
+RT @HNoticiasMX: Una vecina denunció el maltrato a la que es sometida esta "hermosa lomita", sin un techo que la proteja de la lluvia, y si…
+[Permalink](https://twitter.com/fernandeznorona/status/1543305503492771840) | 0 Me Gusta | 121 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 07:20:46
+**Fernández Noroña** (**@fernandeznorona**) • 02-07-2022 a las 10:47:43
 *****
-Ahí @UCS_GCDMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1543253355337814016) | 28 Me Gusta | 27 Retweets
+RT @FreddyOliviery: Como cuando @FelipeCalderon del pasado contradice al @FelipeCalderon del presente.
+
+
+Así les daban atole con el dedo a l…
+[Permalink](https://twitter.com/fernandeznorona/status/1543305434647363584) | 0 Me Gusta | 793 Retweets

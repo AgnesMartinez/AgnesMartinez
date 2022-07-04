@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 10:09:02
+**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 16:04:01
 *****
-Vamos a la comunidad de Baca, perteneciente al municipio de Mérida. Di una vuelta por la plaza grande y muy bien la gente conmigo.
-[Permalink](https://twitter.com/fernandeznorona/status/1543658088552710144) | 0 Me Gusta | 0 Retweets
+10,170 en Facebook y, 12,247 en YouTube. No es común que YouTube tenga más vistas que Facebook.
+[Permalink](https://twitter.com/fernandeznorona/status/1543747422744154115) | 22 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 08:34:30
+**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 10:20:25
 *****
-Los gabinetes…
-[Permalink](https://twitter.com/fernandeznorona/status/1543634297520799745) | 36 Me Gusta | 12 Retweets
+Serías mejor ejemplo tú mismo, presumiendo de que piensas y no has inaugurado tu cerebro.@hdemauleon. Y seguiría siendo un ejemplo sesgado pues esa refinería está terminada, sólo faltan los meses de prueba de seguridad que cualquier refinería requiere antes de empezar a funcionar
+[Permalink](https://twitter.com/fernandeznorona/status/1543660950884073474) | 151 Me Gusta | 42 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 08:34:12
+**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 10:14:55
 *****
-Los comerciales…
-[Permalink](https://twitter.com/fernandeznorona/status/1543634223889776641) | 18 Me Gusta | 7 Retweets
+RT @jgnaredo: Señores de la oposición: las bardas no producen gasolina, las refinerías sí.
+[Permalink](https://twitter.com/fernandeznorona/status/1543659567615205376) | 0 Me Gusta | 1,500 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 08:33:49
+**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 10:12:04
 *****
-Dizque analistas…
-[Permalink](https://twitter.com/fernandeznorona/status/1543634124669427713) | 11 Me Gusta | 5 Retweets
+Paseo Montejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1543658850263384064) | 156 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 08:33:28
+**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 10:11:49
 *****
-“Comentocratas”…
-[Permalink](https://twitter.com/fernandeznorona/status/1543634037985648640) | 17 Me Gusta | 5 Retweets
+En el Paseo Montejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1543658788506505220) | 75 Me Gusta | 17 Retweets

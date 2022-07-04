@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 16:04:01
+**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 21:21:07
 *****
-10,170 en Facebook y, 12,247 en YouTube. No es común que YouTube tenga más vistas que Facebook.
-[Permalink](https://twitter.com/fernandeznorona/status/1543747422744154115) | 22 Me Gusta | 10 Retweets
+@edd_lite Pobrecillos.
+[Permalink](https://twitter.com/fernandeznorona/status/1543827222351446016) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 10:20:25
+**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 21:03:56
 *****
-Serías mejor ejemplo tú mismo, presumiendo de que piensas y no has inaugurado tu cerebro.@hdemauleon. Y seguiría siendo un ejemplo sesgado pues esa refinería está terminada, sólo faltan los meses de prueba de seguridad que cualquier refinería requiere antes de empezar a funcionar
-[Permalink](https://twitter.com/fernandeznorona/status/1543660950884073474) | 151 Me Gusta | 42 Retweets
+“Para qué sirve la vida, si las preocupaciones/No nos dejan pararnos y observar”. parte de un poema de William Henry Davies.
+[Permalink](https://twitter.com/fernandeznorona/status/1543822896870686722) | 29 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 10:14:55
+**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 20:03:51
 *****
-RT @jgnaredo: Señores de la oposición: las bardas no producen gasolina, las refinerías sí.
-[Permalink](https://twitter.com/fernandeznorona/status/1543659567615205376) | 0 Me Gusta | 1,500 Retweets
+Además de qué la aeronáutica civil no es autoridad sanitaria.
+[Permalink](https://twitter.com/fernandeznorona/status/1543807779047198720) | 43 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 10:12:04
+**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 19:39:14
 *****
-Paseo Montejo.
-[Permalink](https://twitter.com/fernandeznorona/status/1543658850263384064) | 156 Me Gusta | 17 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1543801583070285824) | 23 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 10:11:49
+**Fernández Noroña** (**@fernandeznorona**) • 03-07-2022 a las 19:32:53
 *****
-En el Paseo Montejo.
-[Permalink](https://twitter.com/fernandeznorona/status/1543658788506505220) | 75 Me Gusta | 17 Retweets
+¿Podrían compartirnos el documento de sustento? Porque en el caso de @SSalud_mx, es voluntario el uso de cubrebocas.
+[Permalink](https://twitter.com/fernandeznorona/status/1543799983673065473) | 64 Me Gusta | 19 Retweets

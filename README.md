@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-07-2022 a las 16:35:15
+**Fernández Noroña** (**@fernandeznorona**) • 04-07-2022 a las 20:25:47
 *****
-Con mucho pesar me entero de la muerte de Alejandro Colín Mejía, Director de Eventos en la @Mx_Diputados. Toda mi solidaridad para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1544117668470575104) | 38 Me Gusta | 9 Retweets
+@AurelioHrdez Sucesión.
+[Permalink](https://twitter.com/fernandeznorona/status/1544175685157228546) | 12 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-07-2022 a las 16:17:25
+**Fernández Noroña** (**@fernandeznorona**) • 04-07-2022 a las 20:19:09
 *****
-Es decir que reeditamos al @PRI_Nacional. ¡Qué fuerte! ¿Para eso luchamos por décadas?
-[Permalink](https://twitter.com/fernandeznorona/status/1544113181768830976) | 38 Me Gusta | 17 Retweets
+@MAKIALOBO @Marianamg86 Deleznables.
+[Permalink](https://twitter.com/fernandeznorona/status/1544174017137070080) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-07-2022 a las 16:10:27
+**Fernández Noroña** (**@fernandeznorona**) • 04-07-2022 a las 20:16:11
 *****
-RT @aura_fdez: “Mucha gente, especialmente la ignorante, desea castigarte por decir la verdad, por ser correcto, por ser tú. Nunca te discu…
-[Permalink](https://twitter.com/fernandeznorona/status/1544111429627908101) | 0 Me Gusta | 18 Retweets
+RT @aura_fdez: Constancia de que llevo 23 años aprendiendo de los mejores ✌🏼❤ @fernandeznorona @adela_bicha
+[Permalink](https://twitter.com/fernandeznorona/status/1544173271544991746) | 0 Me Gusta | 67 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-07-2022 a las 16:08:43
+**Fernández Noroña** (**@fernandeznorona**) • 04-07-2022 a las 20:14:29
 *****
-18,567 en Facebook y, 6399 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1544110990802833408) | 31 Me Gusta | 3 Retweets
+Esa foto es falsa. NUNCA he comido, ni convivido con Diego Fernández de Cevallos.
+[Permalink](https://twitter.com/fernandeznorona/status/1544172840953548800) | 52 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-07-2022 a las 10:57:30
+**Fernández Noroña** (**@fernandeznorona**) • 04-07-2022 a las 20:11:45
 *****
-Miren la genialidad que compré.
-[Permalink](https://twitter.com/fernandeznorona/status/1544032671378116609) | 156 Me Gusta | 17 Retweets
+@Marianamg86 Te agradezco y te reitero el abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1544172153997860864) | 5 Me Gusta | 0 Retweets

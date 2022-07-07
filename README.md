@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 16:33:36
+**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 19:27:43
 *****
-16,054 en Facebook y, 7477 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1544842032371359744) | 17 Me Gusta | 2 Retweets
+RT @monerohernandez: ¡Pinche Gertz Manero, no me sale!
+[Permalink](https://twitter.com/fernandeznorona/status/1544885849434865664) | 0 Me Gusta | 174 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 15:03:14
+**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 19:26:39
 *****
-@isrenz1 @Arman_doCA Extorsión.
-[Permalink](https://twitter.com/fernandeznorona/status/1544819290796343302) | 25 Me Gusta | 1 Retweets
+Si soy..,
+[Permalink](https://twitter.com/fernandeznorona/status/1544885578210197510) | 47 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 14:58:00
+**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 18:27:15
 *****
-@peruzziurrutia @JuanitaIzaguir5 @palomaSnchez Extorsionaba.
-[Permalink](https://twitter.com/fernandeznorona/status/1544817972400775173) | 9 Me Gusta | 0 Retweets
+RT @Jolus2505: Se asegura que en la refineria Dos Bocas, el único crudo que no se podrá refinar es Felipe Calderón.
+[Permalink](https://twitter.com/fernandeznorona/status/1544870630537011200) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 14:56:42
+**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 18:26:26
 *****
-@IgnacioBCamposE @ARBedolla Abrimos, no existe el verbo aperturar. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1544817643219288066) | 1 Me Gusta | 0 Retweets
+¡Eso chingao!
+[Permalink](https://twitter.com/fernandeznorona/status/1544870425041281025) | 77 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 14:56:10
+**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 17:47:11
 *****
-RT @rosy1alex: Ya me veo ganadora en la rifa de la mansión de "Alito" 😍
-[Permalink](https://twitter.com/fernandeznorona/status/1544817511878762496) | 0 Me Gusta | 138 Retweets
+¡Qué bonito gato! Toda mi solidaridad.
+[Permalink](https://twitter.com/fernandeznorona/status/1544860548046753794) | 49 Me Gusta | 4 Retweets

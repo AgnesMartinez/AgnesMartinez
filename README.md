@@ -3,17 +3,17 @@
 **Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 18:28:56
 *****
 Lamentable comentario.
-[Permalink](https://twitter.com/fernandeznorona/status/1545233441712750593) | 84 Me Gusta | 9 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1545233441712750593) | 96 Me Gusta | 12 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 18:25:05
 *****
 No me gustó. Es un manejo sesgado. Deberían presentar el video completo, en su contexto.
-[Permalink](https://twitter.com/fernandeznorona/status/1545232475407933441) | 31 Me Gusta | 4 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1545232475407933441) | 38 Me Gusta | 4 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 17:29:22
 *****
 Compañera exdiputada, ahora resulta que la responsable de la bárbara violencia política de género contra legisladoras de tu partido es la gobernadora @LaydaSansores y no el misérrimo de tu líder @alitomorenoc. Lo que hay que leer.
-[Permalink](https://twitter.com/fernandeznorona/status/1545218450926325770) | 213 Me Gusta | 88 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1545218450926325770) | 240 Me Gusta | 94 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 17:23:41
 *****

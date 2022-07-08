@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 18:28:56
+**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 09:30:19
 *****
-Lamentable comentario.
-[Permalink](https://twitter.com/fernandeznorona/status/1545233441712750593) | 96 Me Gusta | 12 Retweets
+La “Estafa maestra” ya no es reclamable, recuerda que sólo tiene responsabilidad un año después de su mandato. Los depósitos los hizo de 2013 a 2022, por lo tanto son ilícitos que se le pueden reclamar.
+[Permalink](https://twitter.com/fernandeznorona/status/1545460282776080385) | 23 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 18:25:05
+**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 08:22:43
 *****
-No me gustó. Es un manejo sesgado. Deberían presentar el video completo, en su contexto.
-[Permalink](https://twitter.com/fernandeznorona/status/1545232475407933441) | 38 Me Gusta | 4 Retweets
+RT @danielvazquez91: @El_Universal_Mx Así es.
+[Permalink](https://twitter.com/fernandeznorona/status/1545443272729976832) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 17:29:22
+**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 08:17:35
 *****
-Compañera exdiputada, ahora resulta que la responsable de la bárbara violencia política de género contra legisladoras de tu partido es la gobernadora @LaydaSansores y no el misérrimo de tu líder @alitomorenoc. Lo que hay que leer.
-[Permalink](https://twitter.com/fernandeznorona/status/1545218450926325770) | 240 Me Gusta | 94 Retweets
+Recién aterrizamos en Campeche.
+[Permalink](https://twitter.com/fernandeznorona/status/1545441977755385857) | 83 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 17:23:41
+**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 06:36:26
 *****
-RT @SupsipS: Que dice mi bendi que el diseño está muy infantil 😂😂😂 pero dice que ese niño sí se parece un poco más a él.
-[Permalink](https://twitter.com/fernandeznorona/status/1545217023575314433) | 0 Me Gusta | 11 Retweets
+@chioreya Dizque.
+[Permalink](https://twitter.com/fernandeznorona/status/1545416523073966082) | 9 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 17:21:21
+**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 06:34:19
 *****
-RT @polimniaromana: Llévelos, llévelos
-[Permalink](https://twitter.com/fernandeznorona/status/1545216436305543168) | 0 Me Gusta | 18 Retweets
+RT @PonchoGutz: En Japón existe una estatua realizada en honor a Hachikō, un perro que murió esperando la construcción de la refinería de C…
+[Permalink](https://twitter.com/fernandeznorona/status/1545415990758219776) | 0 Me Gusta | 470 Retweets

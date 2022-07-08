@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 16:15:53
+**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 18:28:56
 *****
-14,084 en Facebook y, 10,221 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1545199959225647106) | 37 Me Gusta | 5 Retweets
+Lamentable comentario.
+[Permalink](https://twitter.com/fernandeznorona/status/1545233441712750593) | 84 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 13:27:50
+**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 18:25:05
 *****
-RT @Aposematico: ¿Cuántos años/cubrebocas/vacunas/restricciones/ crisis/escasez más necesitas para saber que todo este fenómeno del virus e…
-[Permalink](https://twitter.com/fernandeznorona/status/1545157667097903105) | 0 Me Gusta | 13 Retweets
+No me gustó. Es un manejo sesgado. Deberían presentar el video completo, en su contexto.
+[Permalink](https://twitter.com/fernandeznorona/status/1545232475407933441) | 31 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 12:05:17
+**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 17:29:22
 *****
-RT @LOVREGA: Me tiene tan molesta la actitud de la Sekta, que en una de esas y me vuelvo noroñista.
-
-
-No ayudan a @Claudiashein, la perjudic…
-[Permalink](https://twitter.com/fernandeznorona/status/1545136896237510658) | 0 Me Gusta | 36 Retweets
+Compañera exdiputada, ahora resulta que la responsable de la bárbara violencia política de género contra legisladoras de tu partido es la gobernadora @LaydaSansores y no el misérrimo de tu líder @alitomorenoc. Lo que hay que leer.
+[Permalink](https://twitter.com/fernandeznorona/status/1545218450926325770) | 213 Me Gusta | 88 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 12:05:12
+**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 17:23:41
 *****
-Una compañera con tus cualidades siempre será bienvenida a las filas de la absoluta libertad de acción, de opinión y de criterio. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1545136872481079302) | 70 Me Gusta | 9 Retweets
+RT @SupsipS: Que dice mi bendi que el diseño está muy infantil 😂😂😂 pero dice que ese niño sí se parece un poco más a él.
+[Permalink](https://twitter.com/fernandeznorona/status/1545217023575314433) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 12:02:41
+**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 17:21:21
 *****
-RT @JulioRazona:
-[Permalink](https://twitter.com/fernandeznorona/status/1545136240902676481) | 0 Me Gusta | 472 Retweets
+RT @polimniaromana: Llévelos, llévelos
+[Permalink](https://twitter.com/fernandeznorona/status/1545216436305543168) | 0 Me Gusta | 18 Retweets

@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 07:08:28
+**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 16:15:53
 *****
-RT @La_Patty_Boop: Estimado Presidente @lopezobrador_ alguien no está haciendo bien su trabajo,corrieron a muchos #ServidoresDeLaNacion alg…
-[Permalink](https://twitter.com/fernandeznorona/status/1545062196136247296) | 0 Me Gusta | 101 Retweets
+14,084 en Facebook y, 10,221 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1545199959225647106) | 37 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 06:59:53
+**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 13:27:50
 *****
-@chioreya Extorsionarlas.
-[Permalink](https://twitter.com/fernandeznorona/status/1545060038829494273) | 31 Me Gusta | 4 Retweets
+RT @Aposematico: ¿Cuántos años/cubrebocas/vacunas/restricciones/ crisis/escasez más necesitas para saber que todo este fenómeno del virus e…
+[Permalink](https://twitter.com/fernandeznorona/status/1545157667097903105) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 06:59:20
+**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 12:05:17
 *****
-Dizque.
-[Permalink](https://twitter.com/fernandeznorona/status/1545059900564258819) | 62 Me Gusta | 21 Retweets
+RT @LOVREGA: Me tiene tan molesta la actitud de la Sekta, que en una de esas y me vuelvo noroñista.
+
+
+No ayudan a @Claudiashein, la perjudic…
+[Permalink](https://twitter.com/fernandeznorona/status/1545136896237510658) | 0 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 19:27:43
+**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 12:05:12
 *****
-RT @monerohernandez: ¡Pinche Gertz Manero, no me sale!
-[Permalink](https://twitter.com/fernandeznorona/status/1544885849434865664) | 0 Me Gusta | 315 Retweets
+Una compañera con tus cualidades siempre será bienvenida a las filas de la absoluta libertad de acción, de opinión y de criterio. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1545136872481079302) | 70 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-07-2022 a las 19:26:39
+**Fernández Noroña** (**@fernandeznorona**) • 07-07-2022 a las 12:02:41
 *****
-Si soy..,
-[Permalink](https://twitter.com/fernandeznorona/status/1544885578210197510) | 65 Me Gusta | 14 Retweets
+RT @JulioRazona:
+[Permalink](https://twitter.com/fernandeznorona/status/1545136240902676481) | 0 Me Gusta | 472 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 16:37:45
+**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 20:05:22
 *****
-17,036 en Facebook y, 8009 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1545567851167219713) | 3 Me Gusta | 1 Retweets
+Noooo, bueno. Ahora resulta que la malvada es @LaydaSansores y no el perverso y pervertido de @alitomorenoc. El @PRI_Nacional no tiene remedio.
+[Permalink](https://twitter.com/fernandeznorona/status/1545620100845379584) | 134 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 14:35:41
+**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 19:55:54
 *****
-Estos chiquitos son muy buenos.
-[Permalink](https://twitter.com/fernandeznorona/status/1545537133447942150) | 61 Me Gusta | 8 Retweets
+Pues francamente creo que no es para presumir. Me parece una barbaridad.
+[Permalink](https://twitter.com/fernandeznorona/status/1545617716635209729) | 90 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 14:34:33
+**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 19:53:00
 *****
-Muy bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1545536848264679426) | 23 Me Gusta | 4 Retweets
+Muy buen consejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1545616986813652999) | 49 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 14:32:58
+**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 19:47:38
 *****
-Dzitbalche, Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1545536446789992461) | 27 Me Gusta | 8 Retweets
+Estos mamones mantienen bloqueado mi WhatsApp.
+[Permalink](https://twitter.com/fernandeznorona/status/1545615637480882176) | 84 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 14:09:04
+**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 17:21:11
 *****
-Muy bien Dzitbalche, Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1545530434892750849) | 46 Me Gusta | 9 Retweets
+Bellísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1545578782748299264) | 55 Me Gusta | 9 Retweets

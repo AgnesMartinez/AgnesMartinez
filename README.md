@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 08:37:37
+**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 16:52:54
 *****
-Iniciamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1545809409410056194) | 42 Me Gusta | 6 Retweets
+Está maravilloso.
+[Permalink](https://twitter.com/fernandeznorona/status/1545934051747446786) | 5 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 08:28:45
+**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 16:51:31
 *****
-Ya en Hopelchén, Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1545807178300358657) | 76 Me Gusta | 15 Retweets
+Bellísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1545933702697467906) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 08:26:59
+**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 16:51:09
 *****
-Hopelchén, Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1545806734794534912) | 35 Me Gusta | 3 Retweets
+Maravilloso.
+[Permalink](https://twitter.com/fernandeznorona/status/1545933611576315904) | 12 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 20:05:22
+**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 16:50:54
 *****
-Noooo, bueno. Ahora resulta que la malvada es @LaydaSansores y no el perverso y pervertido de @alitomorenoc. El @PRI_Nacional no tiene remedio.
-[Permalink](https://twitter.com/fernandeznorona/status/1545620100845379584) | 267 Me Gusta | 95 Retweets
+Atardecer en Xpujil.
+[Permalink](https://twitter.com/fernandeznorona/status/1545933548204466177) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-07-2022 a las 19:55:54
+**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 16:27:30
 *****
-Pues francamente creo que no es para presumir. Me parece una barbaridad.
-[Permalink](https://twitter.com/fernandeznorona/status/1545617716635209729) | 163 Me Gusta | 41 Retweets
+13,803 en Facebook y, 9453 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1545927660475383809) | 17 Me Gusta | 2 Retweets

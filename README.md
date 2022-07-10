@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 16:52:54
+**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 18:29:33
 *****
-Está maravilloso.
-[Permalink](https://twitter.com/fernandeznorona/status/1545934051747446786) | 5 Me Gusta | 0 Retweets
+RT @Sanx415: Una precisión importante sobre el genocida y ex agente de la @CIA #Echeverria.  Murió arropado por la impunidad judicial pero…
+[Permalink](https://twitter.com/fernandeznorona/status/1545958375942459392) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 16:51:31
+**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 18:23:21
 *****
-Bellísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1545933702697467906) | 7 Me Gusta | 1 Retweets
+Abrazote. Me honra tu comentario.
+[Permalink](https://twitter.com/fernandeznorona/status/1545956811567775744) | 137 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 16:51:09
+**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 18:22:09
 *****
-Maravilloso.
-[Permalink](https://twitter.com/fernandeznorona/status/1545933611576315904) | 12 Me Gusta | 0 Retweets
+RT @JRicardoRocha1: @sevillacritico @Tu_IMSS @zoerobledo La mamada,  llevo 40 años usando Dr. Martens y soy super Chairo. Lo que cuesten  ¿…
+[Permalink](https://twitter.com/fernandeznorona/status/1545956512585203714) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 16:50:54
+**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 18:19:57
 *****
-Atardecer en Xpujil.
-[Permalink](https://twitter.com/fernandeznorona/status/1545933548204466177) | 6 Me Gusta | 0 Retweets
+RT @lximenezsarro: Una vez más la criminal gestión de Gatell se hace presente.
+
+
+Luis Echeverría murió gracias a la criminal gestión de Gate…
+[Permalink](https://twitter.com/fernandeznorona/status/1545955957976489984) | 0 Me Gusta | 525 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 16:27:30
+**Fernández Noroña** (**@fernandeznorona**) • 09-07-2022 a las 18:12:23
 *****
-13,803 en Facebook y, 9453 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1545927660475383809) | 17 Me Gusta | 2 Retweets
+Naa, quisiera.
+[Permalink](https://twitter.com/fernandeznorona/status/1545954054827909129) | 18 Me Gusta | 3 Retweets

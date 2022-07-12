@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 09:22:44
+**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 16:21:41
 *****
-Llamamos rumbo a Chetumal desde Xpujil.
-[Permalink](https://twitter.com/fernandeznorona/status/1546545537746362369) | 66 Me Gusta | 6 Retweets
+Está cerrada la calle de Chile a la altura de Perú, una pesadilla entrar a esta zona del centro histórico donde vivo.
+[Permalink](https://twitter.com/fernandeznorona/status/1546650971756953602) | 25 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-07-2022 a las 16:49:17
+**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 16:15:01
 *****
-RT @VictorCastroCos: Con Paty, mi compañera. Seguimos caminando juntos. ¡Gracias por tanto!
-[Permalink](https://twitter.com/fernandeznorona/status/1546295530875133958) | 0 Me Gusta | 18 Retweets
+La video charla será 7: 30 de la noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1546649294500798465) | 29 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-07-2022 a las 16:35:05
+**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 15:42:39
 *****
-Esta foto es una chingonería. La estaba buscando. Hay una de Lenin muy similar.
-[Permalink](https://twitter.com/fernandeznorona/status/1546291953226113024) | 561 Me Gusta | 132 Retweets
+Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1546641146834714628) | 16 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-07-2022 a las 16:31:56
+**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 15:36:09
 *****
-Chango León.
-[Permalink](https://twitter.com/fernandeznorona/status/1546291163774291976) | 390 Me Gusta | 44 Retweets
+Seguir usando el saturado @AICM_mx es una necedad de las líneas aéreas. Ya voy para en 30 minutos y no bajamos del avión, además de que nos trajeron a una posición remota.
+[Permalink](https://twitter.com/fernandeznorona/status/1546639513329491976) | 149 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-07-2022 a las 16:31:30
+**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 15:33:43
 *****
-12,489 en Facebook y, 8216 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1546291052314853376) | 149 Me Gusta | 22 Retweets
+RT @diazpol: Que los autores de este crimen ardan en el infierno. No hay que olvidar.
+Le abrazo Alejandra.
+[Permalink](https://twitter.com/fernandeznorona/status/1546638901586153472) | 0 Me Gusta | 10 Retweets

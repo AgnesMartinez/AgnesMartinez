@@ -1,27 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 16:21:41
+**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 21:25:25
 *****
-Está cerrada la calle de Chile a la altura de Perú, una pesadilla entrar a esta zona del centro histórico donde vivo.
-[Permalink](https://twitter.com/fernandeznorona/status/1546650971756953602) | 25 Me Gusta | 7 Retweets
+¿Te refieres a @alitomorenoc y sus “packs” #TomandanteBorolas alias @FelipeCalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1546727406144311296) | 61 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 16:15:01
+**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 21:22:22
 *****
-La video charla será 7: 30 de la noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1546649294500798465) | 29 Me Gusta | 6 Retweets
+Pero que además uses a una persona en situación de calle para pretender insultarme pinta tu racismo y clasismo de cuerpo completo. Te sobreestime @RicardoBSalinas, pensé que eras inteligente. Abur.
+[Permalink](https://twitter.com/fernandeznorona/status/1546726640797073408) | 104 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 15:42:39
+**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 21:22:22
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1546641146834714628) | 16 Me Gusta | 2 Retweets
+Primero deberías confirmar la información; segundo, deberías verificar los datos sobre la persona a la que te refieres. Tengo 62 años y solo en siete de ellos he ejercido un cargo público.
+[Permalink](https://twitter.com/fernandeznorona/status/1546726639299616768) | 85 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 15:36:09
+**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 21:07:37
 *****
-Seguir usando el saturado @AICM_mx es una necedad de las líneas aéreas. Ya voy para en 30 minutos y no bajamos del avión, además de que nos trajeron a una posición remota.
-[Permalink](https://twitter.com/fernandeznorona/status/1546639513329491976) | 149 Me Gusta | 28 Retweets
+@ballinagato @Luna_Tagg Ha enseñado.
+[Permalink](https://twitter.com/fernandeznorona/status/1546722926468153345) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 15:33:43
+**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 21:06:37
 *****
-RT @diazpol: Que los autores de este crimen ardan en el infierno. No hay que olvidar.
-Le abrazo Alejandra.
-[Permalink](https://twitter.com/fernandeznorona/status/1546638901586153472) | 0 Me Gusta | 10 Retweets
+RT @lximenezsarro: Murió Benedicto XVI.
+
+
+Una vida más que se lleva la criminal gestión de Gatell. Tenía un futuro muy grande como papa, sue…
+[Permalink](https://twitter.com/fernandeznorona/status/1546722675128778754) | 0 Me Gusta | 82 Retweets

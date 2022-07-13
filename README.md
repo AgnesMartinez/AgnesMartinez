@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 21:25:25
+**Fernández Noroña** (**@fernandeznorona**) • 12-07-2022 a las 16:44:12
 *****
-¿Te refieres a @alitomorenoc y sus “packs” #TomandanteBorolas alias @FelipeCalderon?
-[Permalink](https://twitter.com/fernandeznorona/status/1546727406144311296) | 136 Me Gusta | 36 Retweets
+15,104 en Facebook y, 10,216 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1547019026802659329) | 5 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 21:22:22
+**Fernández Noroña** (**@fernandeznorona**) • 12-07-2022 a las 14:45:46
 *****
-Pero que además uses a una persona en situación de calle para pretender insultarme pinta tu racismo y clasismo de cuerpo completo. Te sobreestime @RicardoBSalinas, pensé que eras inteligente. Abur.
-[Permalink](https://twitter.com/fernandeznorona/status/1546726640797073408) | 360 Me Gusta | 58 Retweets
+Voy saliendo de Oacalco. La charla será 6 30 Pueblo quieto.
+[Permalink](https://twitter.com/fernandeznorona/status/1546989219876376579) | 92 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 21:22:22
+**Fernández Noroña** (**@fernandeznorona**) • 12-07-2022 a las 13:39:54
 *****
-Primero deberías confirmar la información; segundo, deberías verificar los datos sobre la persona a la que te refieres. Tengo 62 años y solo en siete de ellos he ejercido un cargo público.
-[Permalink](https://twitter.com/fernandeznorona/status/1546726639299616768) | 359 Me Gusta | 64 Retweets
+Oacalco, Morelos.
+[Permalink](https://twitter.com/fernandeznorona/status/1546972643852787713) | 71 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 21:07:37
+**Fernández Noroña** (**@fernandeznorona**) • 12-07-2022 a las 13:20:03
 *****
-@ballinagato @Luna_Tagg Ha enseñado.
-[Permalink](https://twitter.com/fernandeznorona/status/1546722926468153345) | 4 Me Gusta | 1 Retweets
+Oacalco, Morelos.
+[Permalink](https://twitter.com/fernandeznorona/status/1546967649074176000) | 61 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-07-2022 a las 21:06:37
+**Fernández Noroña** (**@fernandeznorona**) • 12-07-2022 a las 13:08:46
 *****
-RT @lximenezsarro: Murió Benedicto XVI.
-
-
-Una vida más que se lleva la criminal gestión de Gatell. Tenía un futuro muy grande como papa, sue…
-[Permalink](https://twitter.com/fernandeznorona/status/1546722675128778754) | 0 Me Gusta | 135 Retweets
+“Dios está contigo, sé feliz” pintado en la barda del panteón de Oacalco, Morelos. No sé si es humor negro.
+[Permalink](https://twitter.com/fernandeznorona/status/1546964809312256000) | 91 Me Gusta | 16 Retweets

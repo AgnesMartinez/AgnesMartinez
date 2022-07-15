@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-07-2022 a las 19:45:36
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 09:32:35
 *****
-Aquí @Pemex, @OctavioRomero_O, @rocionahle.
-[Permalink](https://twitter.com/fernandeznorona/status/1547789453732614147) | 84 Me Gusta | 51 Retweets
+“Le digo a los jóvenes: triunfar en la vida no es ganar; Triunfar en la vida es levantarse y volver empezar cada vez que uno cae”.   José Mujica
+[Permalink](https://twitter.com/fernandeznorona/status/1547997568520466434) | 99 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-07-2022 a las 19:40:28
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 09:22:52
 *****
-RT @AristeguiOnline: Estados Unidos dará 260 mil visas para trabajadores agrícolas: Moctezuma Barragán
-[Permalink](https://twitter.com/fernandeznorona/status/1547788161752788993) | 0 Me Gusta | 33 Retweets
+“En política no hay sucesión, hay causas”. Esas son las palabras exactas de José Mujica.
+[Permalink](https://twitter.com/fernandeznorona/status/1547995122213629961) | 55 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-07-2022 a las 19:36:52
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 09:19:12
 *****
-“Es el pasado lo que nos dice quiénes (sic) somos. Sin él, perdemos nuestra identidad”. Stephen Hawking, citado por Raynor Winn.
-[Permalink](https://twitter.com/fernandeznorona/status/1547787253547601920) | 43 Me Gusta | 10 Retweets
+“La política es la lucha por la felicidad humana aunque suene a químera”, José Mujica.
+[Permalink](https://twitter.com/fernandeznorona/status/1547994202377572354) | 65 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-07-2022 a las 18:44:03
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 07:28:57
 *****
-Éste es mi gallo.
-[Permalink](https://twitter.com/fernandeznorona/status/1547773961609498624) | 147 Me Gusta | 20 Retweets
+En Chapa de Mota, un compañero cita a José Mujica: “En política no hay herencias, hay causas”. Ya me dirán si el pueblo está despierto o no.
+[Permalink](https://twitter.com/fernandeznorona/status/1547966456364552200) | 117 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-07-2022 a las 18:28:23
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 07:25:16
 *****
-Se acabó la 4 T. A hacer las maletas.
-[Permalink](https://twitter.com/fernandeznorona/status/1547770019743838208) | 80 Me Gusta | 16 Retweets
+San Felipe Coamango, Chapa de Mota
+[Permalink](https://twitter.com/fernandeznorona/status/1547965528693624832) | 59 Me Gusta | 12 Retweets

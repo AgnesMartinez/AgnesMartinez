@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 21:03:29
+**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 09:29:37
 *****
-Me sumo a la solidaridad manifestada a los familiares y amigos de los 14 marinos que perdieron la vida el día de hoy en el desplome de un helicóptero.
-[Permalink](https://twitter.com/fernandeznorona/status/1548171440729362434) | 339 Me Gusta | 63 Retweets
+Tepetitla, Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1548359208281616387) | 59 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 20:59:08
+**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 07:11:59
 *****
-¡Qué bello video! Se me salieron las de cocodrilo. ¡Qué honor y qué orgullo que seas nuestro líder y nuestro compañero presidente!
-[Permalink](https://twitter.com/fernandeznorona/status/1548170343054905346) | 444 Me Gusta | 74 Retweets
+La Candelaria Teotlalpan, Totolac, Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1548324575145967623) | 48 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 20:32:39
+**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 05:11:55
 *****
-Apenas llegando a casa y mañana saldré 7:30 rumbo a Tlaxcala.
-[Permalink](https://twitter.com/fernandeznorona/status/1548163680524574720) | 113 Me Gusta | 16 Retweets
+Ahíta.
+[Permalink](https://twitter.com/fernandeznorona/status/1548294358562025472) | 153 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 18:15:20
+**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 05:07:26
 *****
-Manuela y el ángel.
-[Permalink](https://twitter.com/fernandeznorona/status/1548129122848628737) | 105 Me Gusta | 16 Retweets
+RT @marcelafado: Hilo sobre #plagio, anexo fotos, denle RT: Q pena ver plagios, querido @julioastillero, y + cuando se trata de la obra de…
+[Permalink](https://twitter.com/fernandeznorona/status/1548293230579503108) | 0 Me Gusta | 65 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 16:20:08
+**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 04:48:43
 *****
-¿Qué hace ahí el subcomandante Marcos?
-[Permalink](https://twitter.com/fernandeznorona/status/1548100131722973184) | 88 Me Gusta | 14 Retweets
+Ya vamos rumbo a Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1548288517981122560) | 122 Me Gusta | 14 Retweets

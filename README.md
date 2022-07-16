@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 09:32:35
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 16:20:08
 *****
-“Le digo a los jóvenes: triunfar en la vida no es ganar; Triunfar en la vida es levantarse y volver empezar cada vez que uno cae”.   José Mujica
-[Permalink](https://twitter.com/fernandeznorona/status/1547997568520466434) | 99 Me Gusta | 30 Retweets
+¿Qué hace ahí el subcomandante Marcos?
+[Permalink](https://twitter.com/fernandeznorona/status/1548100131722973184) | 35 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 09:22:52
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 16:17:32
 *****
-“En política no hay sucesión, hay causas”. Esas son las palabras exactas de José Mujica.
-[Permalink](https://twitter.com/fernandeznorona/status/1547995122213629961) | 55 Me Gusta | 13 Retweets
+Te estoy muy agradecido, abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1548099478971752448) | 16 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 09:19:12
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 16:16:32
 *****
-“La política es la lucha por la felicidad humana aunque suene a químera”, José Mujica.
-[Permalink](https://twitter.com/fernandeznorona/status/1547994202377572354) | 65 Me Gusta | 15 Retweets
+RT @SupsipS: Estaba viendo lo de Caro Quintero en facebook y el sentir general, en un 80-90% es un "ya déjenlo en paz, nomás por cumplirle…
+[Permalink](https://twitter.com/fernandeznorona/status/1548099225233240066) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 07:28:57
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 16:07:03
 *****
-En Chapa de Mota, un compañero cita a José Mujica: “En política no hay herencias, hay causas”. Ya me dirán si el pueblo está despierto o no.
-[Permalink](https://twitter.com/fernandeznorona/status/1547966456364552200) | 117 Me Gusta | 33 Retweets
+18,525 en Facebook y, 7971 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1548096839647240193) | 41 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 07:25:16
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 14:14:03
 *****
-San Felipe Coamango, Chapa de Mota
-[Permalink](https://twitter.com/fernandeznorona/status/1547965528693624832) | 59 Me Gusta | 12 Retweets
+RT @GlYordana: ⭐️ Las y los esperamos 16 y 17 de julio en la Asamblea Informativa de nuestro amigo Diputado Federal @fernandeznorona  en co…
+[Permalink](https://twitter.com/fernandeznorona/status/1548068404422066176) | 0 Me Gusta | 22 Retweets

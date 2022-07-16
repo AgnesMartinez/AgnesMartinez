@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 21:03:29
+*****
+Me sumo a la solidaridad manifestada a los familiares y amigos de los 14 marinos que perdieron la vida el día de hoy en el desplome de un helicóptero.
+[Permalink](https://twitter.com/fernandeznorona/status/1548171440729362434) | 158 Me Gusta | 35 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 20:59:08
+*****
+¡Qué bello video! Se me salieron las de cocodrilo. ¡Qué honor y qué orgullo que seas nuestro líder y nuestro compañero presidente!
+[Permalink](https://twitter.com/fernandeznorona/status/1548170343054905346) | 252 Me Gusta | 49 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 20:32:39
+*****
+Apenas llegando a casa y mañana saldré 7:30 rumbo a Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1548163680524574720) | 89 Me Gusta | 14 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 18:15:20
+*****
+Manuela y el ángel.
+[Permalink](https://twitter.com/fernandeznorona/status/1548129122848628737) | 104 Me Gusta | 15 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 16:20:08
 *****
 ¿Qué hace ahí el subcomandante Marcos?
-[Permalink](https://twitter.com/fernandeznorona/status/1548100131722973184) | 35 Me Gusta | 5 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 16:17:32
-*****
-Te estoy muy agradecido, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1548099478971752448) | 16 Me Gusta | 5 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 16:16:32
-*****
-RT @SupsipS: Estaba viendo lo de Caro Quintero en facebook y el sentir general, en un 80-90% es un "ya déjenlo en paz, nomás por cumplirle…
-[Permalink](https://twitter.com/fernandeznorona/status/1548099225233240066) | 0 Me Gusta | 12 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 16:07:03
-*****
-18,525 en Facebook y, 7971 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1548096839647240193) | 41 Me Gusta | 10 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 15-07-2022 a las 14:14:03
-*****
-RT @GlYordana: ⭐️ Las y los esperamos 16 y 17 de julio en la Asamblea Informativa de nuestro amigo Diputado Federal @fernandeznorona  en co…
-[Permalink](https://twitter.com/fernandeznorona/status/1548068404422066176) | 0 Me Gusta | 22 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1548100131722973184) | 81 Me Gusta | 11 Retweets

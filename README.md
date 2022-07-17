@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 16:15:01
+*****
+12,631 en Facebook y, 8279 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1548461232100782081) | 60 Me Gusta | 4 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 13:32:34
+*****
+Corrijo: Ayometitla, Santa Cruz Quilehtla, Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1548420348793614336) | 70 Me Gusta | 14 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 13:26:47
+*****
+Ayometitla, Santa Cruz Quiletla, Tlax.
+[Permalink](https://twitter.com/fernandeznorona/status/1548418896272580614) | 94 Me Gusta | 9 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 09:29:37
 *****
 Tepetitla, Tlaxcala.
-[Permalink](https://twitter.com/fernandeznorona/status/1548359208281616387) | 59 Me Gusta | 16 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1548359208281616387) | 155 Me Gusta | 38 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 07:11:59
 *****
 La Candelaria Teotlalpan, Totolac, Tlaxcala.
-[Permalink](https://twitter.com/fernandeznorona/status/1548324575145967623) | 48 Me Gusta | 7 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 05:11:55
-*****
-Ahíta.
-[Permalink](https://twitter.com/fernandeznorona/status/1548294358562025472) | 153 Me Gusta | 27 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 05:07:26
-*****
-RT @marcelafado: Hilo sobre #plagio, anexo fotos, denle RT: Q pena ver plagios, querido @julioastillero, y + cuando se trata de la obra de…
-[Permalink](https://twitter.com/fernandeznorona/status/1548293230579503108) | 0 Me Gusta | 65 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 16-07-2022 a las 04:48:43
-*****
-Ya vamos rumbo a Tlaxcala.
-[Permalink](https://twitter.com/fernandeznorona/status/1548288517981122560) | 122 Me Gusta | 14 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1548324575145967623) | 63 Me Gusta | 10 Retweets

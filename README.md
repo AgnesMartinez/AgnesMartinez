@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 16:33:55
+**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 19:55:41
 *****
-Ya vamos  rumbo a Puebla. Tráiler de doble remolque salió volando, trasladaba autos nuevos. Cayó parado, pero me temo que el conductor no salió bien librado. Ello en la carretera rumbo a Xalapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1548828377347391490) | 29 Me Gusta | 5 Retweets
+Les contaré un secreto: soy feliz, soy un hombre feliz, y quiero que me perdonen todos los derechosos por mi felicidad…
+[Permalink](https://twitter.com/fernandeznorona/status/1548879151125262336) | 416 Me Gusta | 62 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 16:11:50
+**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 19:34:41
 *****
-11,113 en Facebook y, 7237 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1548822818296516608) | 33 Me Gusta | 6 Retweets
+Naa, recuerda que el que por otro pide, por sí aboga.
+[Permalink](https://twitter.com/fernandeznorona/status/1548873869703819264) | 24 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 13:25:54
+**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 19:31:48
 *****
-Ixtenco, Tlax.
-[Permalink](https://twitter.com/fernandeznorona/status/1548781062800568320) | 92 Me Gusta | 19 Retweets
+Alta traición.
+[Permalink](https://twitter.com/fernandeznorona/status/1548873142860488705) | 55 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 12:51:23
+**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 19:31:04
 *****
-Sin duda lo procesaría, desde Salinas hasta Peña.
-[Permalink](https://twitter.com/fernandeznorona/status/1548772373876224000) | 264 Me Gusta | 72 Retweets
+Retelejos @ChicChillon.
+[Permalink](https://twitter.com/fernandeznorona/status/1548872957673578496) | 33 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 09:53:28
+**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 19:30:21
 *****
-Huamantla, Tlaxcala.
-[Permalink](https://twitter.com/fernandeznorona/status/1548727600054505473) | 120 Me Gusta | 22 Retweets
+Harto lejos.
+[Permalink](https://twitter.com/fernandeznorona/status/1548872775980417025) | 44 Me Gusta | 12 Retweets

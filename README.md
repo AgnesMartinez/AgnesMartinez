@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 19:55:41
+**Fernández Noroña** (**@fernandeznorona**) • 18-07-2022 a las 09:53:19
 *****
-Les contaré un secreto: soy feliz, soy un hombre feliz, y quiero que me perdonen todos los derechosos por mi felicidad…
-[Permalink](https://twitter.com/fernandeznorona/status/1548879151125262336) | 644 Me Gusta | 95 Retweets
+“Huele a rebelión”, en resentida por Francisco Jacob Maza Archila.
+[Permalink](https://twitter.com/fernandeznorona/status/1549089951656148993) | 17 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 19:34:41
+**Fernández Noroña** (**@fernandeznorona**) • 18-07-2022 a las 09:47:28
 *****
-Naa, recuerda que el que por otro pide, por sí aboga.
-[Permalink](https://twitter.com/fernandeznorona/status/1548873869703819264) | 28 Me Gusta | 4 Retweets
+RT @edd_lite: Los Claudios se van a cansar de denunciar este tuit para desaparezca.
+[Permalink](https://twitter.com/fernandeznorona/status/1549088476460711940) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 19:31:48
+**Fernández Noroña** (**@fernandeznorona**) • 18-07-2022 a las 09:40:52
 *****
-Alta traición.
-[Permalink](https://twitter.com/fernandeznorona/status/1548873142860488705) | 74 Me Gusta | 27 Retweets
+Jejeje. Con razón te quiere el compañero presidente.
+[Permalink](https://twitter.com/fernandeznorona/status/1549086817613406208) | 36 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 19:31:04
+**Fernández Noroña** (**@fernandeznorona**) • 18-07-2022 a las 07:29:44
 *****
-Retelejos @ChicChillon.
-[Permalink](https://twitter.com/fernandeznorona/status/1548872957673578496) | 44 Me Gusta | 9 Retweets
+Amargados, pero les digo “amarguetas”.
+[Permalink](https://twitter.com/fernandeznorona/status/1549053818029371393) | 32 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-07-2022 a las 19:30:21
+**Fernández Noroña** (**@fernandeznorona**) • 18-07-2022 a las 07:24:32
 *****
-Harto lejos.
-[Permalink](https://twitter.com/fernandeznorona/status/1548872775980417025) | 59 Me Gusta | 14 Retweets
+Ya rumbo a la rueda de prensa en Puebla capital.
+[Permalink](https://twitter.com/fernandeznorona/status/1549052507879419904) | 119 Me Gusta | 19 Retweets

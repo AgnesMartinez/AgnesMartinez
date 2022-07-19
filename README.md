@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-07-2022 a las 20:01:50
+**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 08:04:57
 *****
-Apenas vamos a cenar. Estoy en Izúcar de Matamoros.
-[Permalink](https://twitter.com/fernandeznorona/status/1549243090317221889) | 195 Me Gusta | 14 Retweets
+Otra zona que tiene tiempo complicada es Tecamachalco, Puebla. Me dicen que en la carretera entre Huixcolotla y Tecamachalco, frecuentemente le roban unidades a transportistas. @GN_MEXICO_.
+[Permalink](https://twitter.com/fernandeznorona/status/1549425067523575808) | 41 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-07-2022 a las 18:05:41
+**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 07:58:26
 *****
-Izúcar de Matamoros.
-[Permalink](https://twitter.com/fernandeznorona/status/1549213857150693376) | 90 Me Gusta | 17 Retweets
+Hace rato que hay información de que la situación es muy grave en Frontera Comalapa, Chiapas. @GN_MEXICO_.
+[Permalink](https://twitter.com/fernandeznorona/status/1549423425403363328) | 23 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-07-2022 a las 17:06:10
+**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 07:55:50
 *****
-Izúcar de Matamoros.
-[Permalink](https://twitter.com/fernandeznorona/status/1549198881887465472) | 118 Me Gusta | 17 Retweets
+También me reportan que en San Gregorio Chamic, Frontera Comalapa, Chiapas, los enfrentamientos entre grupos del narco están asesinando a pobladores.
+[Permalink](https://twitter.com/fernandeznorona/status/1549422773952548866) | 101 Me Gusta | 40 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-07-2022 a las 16:44:08
+**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 07:54:17
 *****
-Atardecer.
-[Permalink](https://twitter.com/fernandeznorona/status/1549193336195403777) | 79 Me Gusta | 8 Retweets
+Carajo, me hablan de Chiapas para decirme que los ingenieros de sembrando vida le quieren quitar su ingreso a los campesinos. Obvio, los reportaré.
+[Permalink](https://twitter.com/fernandeznorona/status/1549422383626346496) | 357 Me Gusta | 101 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-07-2022 a las 16:22:37
+**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 07:38:20
 *****
-Les digo que ⁦@adela_bicha⁩ me quiere matar. Ya debe tener pacto con otro precandidato.
-[Permalink](https://twitter.com/fernandeznorona/status/1549187919935524864) | 66 Me Gusta | 12 Retweets
+Ya vamos rumbo a Ayoxuxtla, Huehuetlán el Chico.
+[Permalink](https://twitter.com/fernandeznorona/status/1549418369912225793) | 56 Me Gusta | 9 Retweets

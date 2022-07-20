@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 13:52:24
+**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 20:46:44
 *****
-Chietla, Escape Lagunillas.
-[Permalink](https://twitter.com/fernandeznorona/status/1549512505910853638) | 74 Me Gusta | 15 Retweets
+@Maramensaje @CiroGomezL @alitomorenoc Extorsionador.
+[Permalink](https://twitter.com/fernandeznorona/status/1549616775368773632) | 16 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 12:07:35
+**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 20:28:16
 *****
-En Ayoxuxtla.
-[Permalink](https://twitter.com/fernandeznorona/status/1549486125948907520) | 79 Me Gusta | 6 Retweets
+RT @LJyDMX: ¡Qué se vaya Peña!, una iniciativa que estuvo durante meses promoviendo @fernandeznorona, ¿Participaste?
+
+
+Colab : @AnaMendoza19…
+[Permalink](https://twitter.com/fernandeznorona/status/1549612129141096449) | 0 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 08:04:57
+**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 20:26:40
 *****
-Otra zona que tiene tiempo complicada es Tecamachalco, Puebla. Me dicen que en la carretera entre Huixcolotla y Tecamachalco, frecuentemente le roban unidades a transportistas. @GN_MEXICO_.
-[Permalink](https://twitter.com/fernandeznorona/status/1549425067523575808) | 131 Me Gusta | 45 Retweets
+@edd_lite Transa.
+[Permalink](https://twitter.com/fernandeznorona/status/1549611727456813057) | 5 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 07:58:26
+**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 20:13:04
 *****
-Hace rato que hay información de que la situación es muy grave en Frontera Comalapa, Chiapas. @GN_MEXICO_.
-[Permalink](https://twitter.com/fernandeznorona/status/1549423425403363328) | 46 Me Gusta | 19 Retweets
+@Mike28dev Transa
+[Permalink](https://twitter.com/fernandeznorona/status/1549608304472727552) | 8 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 07:55:50
+**Fernández Noroña** (**@fernandeznorona**) • 19-07-2022 a las 17:26:36
 *****
-También me reportan que en San Gregorio Chamic, Frontera Comalapa, Chiapas, los enfrentamientos entre grupos del narco están asesinando a pobladores.
-[Permalink](https://twitter.com/fernandeznorona/status/1549422773952548866) | 247 Me Gusta | 95 Retweets
+Está hecha una desgracia la carretera que va a Cuautla desde Escape Lagunillas.
+[Permalink](https://twitter.com/fernandeznorona/status/1549566409813942274) | 207 Me Gusta | 31 Retweets

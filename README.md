@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 16:28:31
+**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 19:54:56
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1549914180941189123) | 13 Me Gusta | 3 Retweets
+¿Dónde estaban los guardianes de la esencia de MORENA en ese tiempo?
+[Permalink](https://twitter.com/fernandeznorona/status/1549966127954120704) | 147 Me Gusta | 45 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 16:14:40
+**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 19:31:47
 *****
-9181 en Facebook y, 7583 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1549910694971187200) | 22 Me Gusta | 1 Retweets
+RT @LOVREGA: ¿No habrá algún priista que por dignidad se pronuncie por la renuncia de Alito Moreno?
+
+
+¿Y no habrá algún panista que exprese…
+[Permalink](https://twitter.com/fernandeznorona/status/1549960302187499526) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 14:52:42
+**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 19:21:46
 *****
-RT @epigmenioibarra: En una “Santa Alianza” para detener la transformación se han unido; la oligarquía rapaz y la empresas más corruptas, j…
-[Permalink](https://twitter.com/fernandeznorona/status/1549890066511798273) | 0 Me Gusta | 857 Retweets
+Tú sólo subiste una foto ingenuamente, yo sólo hice una respuesta general donde nunca dije que tú fueras aviador. A confesión de parte, relevo de pruebas @ZuritaCarpio. Además de hipócrita, eres cobarde y quejica.
+[Permalink](https://twitter.com/fernandeznorona/status/1549957780534018050) | 136 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 14:49:20
+**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 19:14:11
 *****
-RT @julioastillero: #JusticiaParaLuz Terrible lo sucedido en #Zapopan #Jalisco, donde Luz Raquel Padilla (35 años), madre de un niño (11 añ…
-[Permalink](https://twitter.com/fernandeznorona/status/1549889218960363526) | 0 Me Gusta | 2,256 Retweets
+RT @PlinioAlfonso: Aviso importante: En la realización de este meme no se daño conejo alguno..
+[Permalink](https://twitter.com/fernandeznorona/status/1549955874130501633) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 14:46:31
+**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 19:12:43
 *****
-RT @GutirrezPadilla: Hasta cuando voy a tener que vivir con miedo 😨 de que me pueda pasar algo y a mi familia y mi agresor sigue campante p…
-[Permalink](https://twitter.com/fernandeznorona/status/1549888512270503936) | 0 Me Gusta | 1,199 Retweets
+RT @jibarra889: Jajajajajajaja…la MariCruz calzándo al Conejo Buenfil por donde le gusta…!!!😂😂
+[Permalink](https://twitter.com/fernandeznorona/status/1549955502989225984) | 0 Me Gusta | 6 Retweets

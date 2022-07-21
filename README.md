@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 19:54:56
+**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 10:09:32
 *****
-¿Dónde estaban los guardianes de la esencia de MORENA en ese tiempo?
-[Permalink](https://twitter.com/fernandeznorona/status/1549966127954120704) | 213 Me Gusta | 61 Retweets
+RT @guautama: En los Cabos y en La Paz BCS, donde las temperaturas oscilan entre los 33°-37° en verano, la gente trae cubrebocas en las cal…
+[Permalink](https://twitter.com/fernandeznorona/status/1550181194960093187) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 19:31:47
+**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 10:08:58
 *****
-RT @LOVREGA: ¿No habrá algún priista que por dignidad se pronuncie por la renuncia de Alito Moreno?
+@GloryOropeza @Luna_Tagg Ras.
+[Permalink](https://twitter.com/fernandeznorona/status/1550181051796004864) | 0 Me Gusta | 0 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 09:54:16
+*****
+RT @rocionahle: Capítulo 8 del T-MEC en materia de energía. 🇲🇽🇺🇸🇨🇦
 
 
-¿Y no habrá algún panista que exprese…
-[Permalink](https://twitter.com/fernandeznorona/status/1549960302187499526) | 0 Me Gusta | 42 Retweets
+RECONOCIMIENTO DEL DOMINIO DIRECTO Y LA PROPIEDAD INALIENABLE E IMPRESC…
+[Permalink](https://twitter.com/fernandeznorona/status/1550177354873438210) | 0 Me Gusta | 1,091 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 19:21:46
+**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 09:53:52
 *****
-Tú sólo subiste una foto ingenuamente, yo sólo hice una respuesta general donde nunca dije que tú fueras aviador. A confesión de parte, relevo de pruebas @ZuritaCarpio. Además de hipócrita, eres cobarde y quejica.
-[Permalink](https://twitter.com/fernandeznorona/status/1549957780534018050) | 162 Me Gusta | 47 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1550177250284281859) | 10 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 19:14:11
+**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 09:53:09
 *****
-RT @PlinioAlfonso: Aviso importante: En la realización de este meme no se daño conejo alguno..
-[Permalink](https://twitter.com/fernandeznorona/status/1549955874130501633) | 0 Me Gusta | 3 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 19:12:43
-*****
-RT @jibarra889: Jajajajajajaja…la MariCruz calzándo al Conejo Buenfil por donde le gusta…!!!😂😂
-[Permalink](https://twitter.com/fernandeznorona/status/1549955502989225984) | 0 Me Gusta | 7 Retweets
+Creo que deberías ver en @CondusefMX. Me avisas por MD si se resuelve. Toda mi solidaridad.
+[Permalink](https://twitter.com/fernandeznorona/status/1550177070894006274) | 13 Me Gusta | 4 Retweets

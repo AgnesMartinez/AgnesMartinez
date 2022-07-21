@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 09:57:35
+**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 16:28:31
 *****
-De la plaza de Leandro Valle con Estacionamiento ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1549815798750912512) | 9 Me Gusta | 3 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1549914180941189123) | 13 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 09:39:18
+**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 16:14:40
 *****
-Debe pedir el desafuero el fiscal de Campeche, Renato Sales. Entiendo que hasta ahora los presuntos ilícitos no son federales.
-[Permalink](https://twitter.com/fernandeznorona/status/1549811197293350912) | 26 Me Gusta | 9 Retweets
+9181 en Facebook y, 7583 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1549910694971187200) | 22 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 09:31:18
+**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 14:52:42
 *****
-Hoy se cumplen 99 años del asesinato del general Francisco Villa.
-[Permalink](https://twitter.com/fernandeznorona/status/1549809186221035520) | 140 Me Gusta | 31 Retweets
+RT @epigmenioibarra: En una “Santa Alianza” para detener la transformación se han unido; la oligarquía rapaz y la empresas más corruptas, j…
+[Permalink](https://twitter.com/fernandeznorona/status/1549890066511798273) | 0 Me Gusta | 857 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 09:28:23
+**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 14:49:20
 *****
-RT @LOVREGA: Atacan a Noroña que se la ha jugado por el movimiento, pero defienden rabiosamente a todo el cascajo prianista que se está adu…
-[Permalink](https://twitter.com/fernandeznorona/status/1549808450833727489) | 0 Me Gusta | 127 Retweets
+RT @julioastillero: #JusticiaParaLuz Terrible lo sucedido en #Zapopan #Jalisco, donde Luz Raquel Padilla (35 años), madre de un niño (11 añ…
+[Permalink](https://twitter.com/fernandeznorona/status/1549889218960363526) | 0 Me Gusta | 2,256 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 09:07:24
+**Fernández Noroña** (**@fernandeznorona**) • 20-07-2022 a las 14:46:31
 *****
-Hoy se salvarán los paniaguados. No iré a la Comisión Permanente, estoy citado a la una de la tarde  en @Mx_Diputados, a JUCOPO.
-[Permalink](https://twitter.com/fernandeznorona/status/1549803170729172992) | 109 Me Gusta | 20 Retweets
+RT @GutirrezPadilla: Hasta cuando voy a tener que vivir con miedo 😨 de que me pueda pasar algo y a mi familia y mi agresor sigue campante p…
+[Permalink](https://twitter.com/fernandeznorona/status/1549888512270503936) | 0 Me Gusta | 1,199 Retweets

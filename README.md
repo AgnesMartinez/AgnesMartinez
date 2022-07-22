@@ -1,26 +1,39 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 16:45:14
+**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 19:51:45
 *****
-Son bellos los cabrones y cabronas, que también hay gatas.
-[Permalink](https://twitter.com/fernandeznorona/status/1550280776046055424) | 19 Me Gusta | 2 Retweets
+Lo terminé. Lloro, es un libro muy bello. Muy fuerte.
+[Permalink](https://twitter.com/fernandeznorona/status/1550327714682388481) | 79 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 16:31:47
+**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 18:56:45
 *****
-22,100 en Facebook y, 9444 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1550277392740098050) | 22 Me Gusta | 2 Retweets
+@jon_aleman7 @fergali_25 @Beatriz84981597 @adrisaa05 Ay.
+[Permalink](https://twitter.com/fernandeznorona/status/1550313873454006274) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 14:37:48
+**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 18:13:32
 *****
-Jejeje
-[Permalink](https://twitter.com/fernandeznorona/status/1550248706745798658) | 29 Me Gusta | 6 Retweets
+RT @SupsipS: Primero te van a ignorar,
+enseguida se burlarán de tí,
+luego te van a atacar (buena señal),
+después... Ya ganaste!
+
+
+Muchos no…
+[Permalink](https://twitter.com/fernandeznorona/status/1550302995652419586) | 0 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 14:37:12
+**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 18:11:41
 *****
-RT @aran_tirado: Ya van, que yo sepa, tres trabajadores muertos en Madrid por la ola de calor. ¿Alguien me puede decir cuántos empresarios…
-[Permalink](https://twitter.com/fernandeznorona/status/1550248554408689664) | 0 Me Gusta | 706 Retweets
+Eso que voy en Vocho.
+[Permalink](https://twitter.com/fernandeznorona/status/1550302532282601473) | 30 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 14:02:24
+**Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 18:11:03
 *****
-RT @Meteoro7319: Hola, sigo en busca de trabajo como chófer de Uber si alguien sabe de una persona que quiera mis servicios aquí estoy pend…
-[Permalink](https://twitter.com/fernandeznorona/status/1550239796743774213) | 0 Me Gusta | 281 Retweets
+RT @Navegaciones: ¿Nos echamos el 𝐂𝐨𝐫𝐫𝐢𝐝𝐨 𝐝𝐞 𝐀𝐥𝐢𝐭𝐨 𝐌𝐨𝐫𝐞𝐧𝐨, @ByronBarranco?
+
+
+La primera dice así:
+
+
+Vengo a contarles el caso 
+de un tipo fal…
+[Permalink](https://twitter.com/fernandeznorona/status/1550302374014623744) | 0 Me Gusta | 333 Retweets

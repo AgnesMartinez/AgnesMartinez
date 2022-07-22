@@ -3,7 +3,7 @@
 **Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 19:51:45
 *****
 Lo terminé. Lloro, es un libro muy bello. Muy fuerte.
-[Permalink](https://twitter.com/fernandeznorona/status/1550327714682388481) | 79 Me Gusta | 21 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1550327714682388481) | 111 Me Gusta | 26 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 18:56:45
 *****
@@ -19,12 +19,12 @@ después... Ya ganaste!
 
 
 Muchos no…
-[Permalink](https://twitter.com/fernandeznorona/status/1550302995652419586) | 0 Me Gusta | 22 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1550302995652419586) | 0 Me Gusta | 25 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 18:11:41
 *****
 Eso que voy en Vocho.
-[Permalink](https://twitter.com/fernandeznorona/status/1550302532282601473) | 30 Me Gusta | 6 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1550302532282601473) | 37 Me Gusta | 8 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 21-07-2022 a las 18:11:03
 *****
@@ -36,4 +36,4 @@ La primera dice así:
 
 Vengo a contarles el caso 
 de un tipo fal…
-[Permalink](https://twitter.com/fernandeznorona/status/1550302374014623744) | 0 Me Gusta | 333 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1550302374014623744) | 0 Me Gusta | 341 Retweets

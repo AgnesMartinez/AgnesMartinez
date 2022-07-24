@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 08:02:06
+**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 16:44:05
 *****
-RT @LOVREGA: Es muy sencillo reconocer a un conservador: Siempre defienden el interés extranjero.
-[Permalink](https://twitter.com/fernandeznorona/status/1550873899260432385) | 0 Me Gusta | 87 Retweets
+Abrazote compañera diputada, todo saldrá bien.
+[Permalink](https://twitter.com/fernandeznorona/status/1551005263213338625) | 13 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 08:01:46
+**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 16:35:50
 *****
-Y esa es la zona comercial.
-[Permalink](https://twitter.com/fernandeznorona/status/1550873817601417216) | 32 Me Gusta | 6 Retweets
+Puej ji
+[Permalink](https://twitter.com/fernandeznorona/status/1551003187271897088) | 19 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 07:42:26
+**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 16:18:05
 *****
-Los derechos son simpáticos. Se la pasan chingue y chingue y les das un papirotazo, y pegan de alaridos como si hubieran sido desollados. #aviador.
-[Permalink](https://twitter.com/fernandeznorona/status/1550868953643220992) | 207 Me Gusta | 38 Retweets
+Vamos camino a Tultepec desde Teoloyucan.
+[Permalink](https://twitter.com/fernandeznorona/status/1550998718161338369) | 47 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 07:36:56
+**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 16:17:21
 *****
-Éste es el tipo que se hace la víctima y que lleva toda la semana colgado de mi popularidad para que le hagan caso. Esfúmate a ver si hay plazas en @Aeromexico. @ZuritaCarpio interpretando el melodrama ¿y dónde está el piloto?
-[Permalink](https://twitter.com/fernandeznorona/status/1550867568008757248) | 52 Me Gusta | 12 Retweets
+5777 en Facebook y, 5084 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1550998536187174912) | 25 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 07:33:29
+**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 13:41:11
 *****
-RT @LOVREGA: En una pena que siendo parte del movimiento no se puede criticar, cuestionar o señalar.
-
-
-Como que esta izquierda no es tan de…
-[Permalink](https://twitter.com/fernandeznorona/status/1550866699209015297) | 0 Me Gusta | 55 Retweets
+Ahita
+[Permalink](https://twitter.com/fernandeznorona/status/1550959236003291137) | 151 Me Gusta | 28 Retweets

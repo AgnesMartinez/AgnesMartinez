@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 04:01:09
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 09:16:53
 *****
-No sé para que chingados pusieron unas vallas en la lateral de circuito interior, a un costado del aeropuerto, hacen un desmadre de tránsito.
-[Permalink](https://twitter.com/fernandeznorona/status/1551175650568019969) | 13 Me Gusta | 1 Retweets
+RT @rosendomarind: Como siempre @fernandeznorona apoyando a @delfinagomeza, Estado de México 2017
+[Permalink](https://twitter.com/fernandeznorona/status/1551255107337166848) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 03:53:07
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 09:06:53
 *****
-Ya rumbo al aeropuerto para salir a Guadalajara.
-[Permalink](https://twitter.com/fernandeznorona/status/1551173632038240256) | 12 Me Gusta | 0 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1551252594080743424) | 29 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 02:59:14
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 09:04:15
 *****
-¡Ta cabrón! Y el compañero presidente todos los días ya está en su oficina a esta hora.
-[Permalink](https://twitter.com/fernandeznorona/status/1551160070188195846) | 119 Me Gusta | 14 Retweets
+De por sí tarde se les hace para talar árboles. Mucha ignorancia e inconsciencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1551251928578985984) | 15 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 20:59:14
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 08:35:52
 *****
-Apenas llegando a casa y mañana deberé salir 6:30 de la mañana rumbo al aeropuerto.
-[Permalink](https://twitter.com/fernandeznorona/status/1551069474593316866) | 155 Me Gusta | 12 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1551244787642163200) | 17 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 19:38:54
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 08:35:03
 *****
-Tultepec.
-[Permalink](https://twitter.com/fernandeznorona/status/1551049258278731784) | 109 Me Gusta | 28 Retweets
+Será.
+[Permalink](https://twitter.com/fernandeznorona/status/1551244581701828610) | 30 Me Gusta | 8 Retweets

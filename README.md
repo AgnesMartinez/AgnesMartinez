@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 20:59:14
+*****
+Apenas llegando a casa y mañana deberé salir 6:30 de la mañana rumbo al aeropuerto.
+[Permalink](https://twitter.com/fernandeznorona/status/1551069474593316866) | 92 Me Gusta | 6 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 19:38:54
+*****
+Tultepec.
+[Permalink](https://twitter.com/fernandeznorona/status/1551049258278731784) | 84 Me Gusta | 22 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 19:37:14
+*****
+En Tultepec.
+[Permalink](https://twitter.com/fernandeznorona/status/1551048838940614656) | 154 Me Gusta | 26 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 17:13:54
+*****
+Tultepec.
+[Permalink](https://twitter.com/fernandeznorona/status/1551012765535543296) | 150 Me Gusta | 33 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 16:44:05
 *****
 Abrazote compañera diputada, todo saldrá bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1551005263213338625) | 13 Me Gusta | 1 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 16:35:50
-*****
-Puej ji
-[Permalink](https://twitter.com/fernandeznorona/status/1551003187271897088) | 19 Me Gusta | 3 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 16:18:05
-*****
-Vamos camino a Tultepec desde Teoloyucan.
-[Permalink](https://twitter.com/fernandeznorona/status/1550998718161338369) | 47 Me Gusta | 2 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 16:17:21
-*****
-5777 en Facebook y, 5084 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1550998536187174912) | 25 Me Gusta | 3 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 23-07-2022 a las 13:41:11
-*****
-Ahita
-[Permalink](https://twitter.com/fernandeznorona/status/1550959236003291137) | 151 Me Gusta | 28 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1551005263213338625) | 66 Me Gusta | 9 Retweets

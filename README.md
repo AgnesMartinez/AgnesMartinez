@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 19:46:09
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 09:34:26
 *****
-RT @SupsipS: Se llaman "pequeño que come fuego" porque ustedes no están para saberlo, pero hay una leyenda que cuenta que un tlacuache robó…
-[Permalink](https://twitter.com/fernandeznorona/status/1551413468292603904) | 0 Me Gusta | 29 Retweets
+@sabymr @AntonioAttolini @LibreriasGandhi @perezricart Zas.
+[Permalink](https://twitter.com/fernandeznorona/status/1551621914363367424) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 19:39:38
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 09:31:50
 *****
-Oaxaca. Me la regalaron. Regularmente las hacen de algodón y esa es de lino.
-[Permalink](https://twitter.com/fernandeznorona/status/1551411829469024258) | 93 Me Gusta | 13 Retweets
+@aga10mx @lopezobrador_ Raso.
+[Permalink](https://twitter.com/fernandeznorona/status/1551621259196252165) | 5 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 19:19:55
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 09:24:44
 *****
-“… por que una revolución que no infunde en la población del país sus ideales es una revolución que fracasará indefectiblemente; y entonces, más bien hubiera convenido no ejecutarla”. Juan Domingo Perón.
-[Permalink](https://twitter.com/fernandeznorona/status/1551406865673764864) | 71 Me Gusta | 23 Retweets
+Apenas vamos a salir de Guadalajara rumbo al DF.
+[Permalink](https://twitter.com/fernandeznorona/status/1551619474029174784) | 60 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 19:12:22
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 09:02:47
 *****
-Ni les alegra ni lo escuchan. Está haciendo una fuerte denuncia de maltrato animal y a ustedes les tiene sin cuidado.
-[Permalink](https://twitter.com/fernandeznorona/status/1551404965641478145) | 39 Me Gusta | 14 Retweets
+¿Qué pasa ahí @bbva?
+[Permalink](https://twitter.com/fernandeznorona/status/1551613946200727553) | 36 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 19:11:10
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 09:01:06
 *****
-Jejeje
-[Permalink](https://twitter.com/fernandeznorona/status/1551404664838553600) | 109 Me Gusta | 28 Retweets
+RT @iRazasdePerros: Ni creas que se me antoja tu comida, es más ni tengo hambre 😌
+[Permalink](https://twitter.com/fernandeznorona/status/1551613525503647745) | 0 Me Gusta | 1,522 Retweets

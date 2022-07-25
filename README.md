@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 09:16:53
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 16:27:16
 *****
-RT @rosendomarind: Como siempre @fernandeznorona apoyando a @delfinagomeza, Estado de México 2017
-[Permalink](https://twitter.com/fernandeznorona/status/1551255107337166848) | 0 Me Gusta | 14 Retweets
+Me encantó ir a la “Estancia Gaucha” y ver a todos los meseros sin cubrebocas.
+[Permalink](https://twitter.com/fernandeznorona/status/1551363417801428994) | 18 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 09:06:53
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 16:15:47
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1551252594080743424) | 29 Me Gusta | 12 Retweets
+8748 en Facebook y, 7650 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1551360529297457152) | 33 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 09:04:15
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 13:29:37
 *****
-De por sí tarde se les hace para talar árboles. Mucha ignorancia e inconsciencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1551251928578985984) | 15 Me Gusta | 6 Retweets
+RT @rubengluengas: Sin comentarios #EntreNoticias Clase magistral de ortografía 👁⬇️👁
+[Permalink](https://twitter.com/fernandeznorona/status/1551318710652207109) | 0 Me Gusta | 138 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 08:35:52
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 13:28:17
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1551244787642163200) | 17 Me Gusta | 5 Retweets
+RT @LOVREGA: Me repugnan quienes respaldan las campañas de odio que promueve el esquirol de Notimex.
+
+
+Nadie que apoye a López Obrador puede…
+[Permalink](https://twitter.com/fernandeznorona/status/1551318376366104576) | 0 Me Gusta | 54 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 08:35:03
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 13:27:56
 *****
-Será.
-[Permalink](https://twitter.com/fernandeznorona/status/1551244581701828610) | 30 Me Gusta | 8 Retweets
+No perderemos la capital, la recuperaremos. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1551318288927543296) | 46 Me Gusta | 10 Retweets

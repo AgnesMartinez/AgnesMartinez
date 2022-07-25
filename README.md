@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 16:27:16
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 19:46:09
 *****
-Me encantó ir a la “Estancia Gaucha” y ver a todos los meseros sin cubrebocas.
-[Permalink](https://twitter.com/fernandeznorona/status/1551363417801428994) | 18 Me Gusta | 2 Retweets
+RT @SupsipS: Se llaman "pequeño que come fuego" porque ustedes no están para saberlo, pero hay una leyenda que cuenta que un tlacuache robó…
+[Permalink](https://twitter.com/fernandeznorona/status/1551413468292603904) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 16:15:47
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 19:39:38
 *****
-8748 en Facebook y, 7650 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1551360529297457152) | 33 Me Gusta | 4 Retweets
+Oaxaca. Me la regalaron. Regularmente las hacen de algodón y esa es de lino.
+[Permalink](https://twitter.com/fernandeznorona/status/1551411829469024258) | 72 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 13:29:37
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 19:19:55
 *****
-RT @rubengluengas: Sin comentarios #EntreNoticias Clase magistral de ortografía 👁⬇️👁
-[Permalink](https://twitter.com/fernandeznorona/status/1551318710652207109) | 0 Me Gusta | 138 Retweets
+“… por que una revolución que no infunde en la población del país sus ideales es una revolución que fracasará indefectiblemente; y entonces, más bien hubiera convenido no ejecutarla”. Juan Domingo Perón.
+[Permalink](https://twitter.com/fernandeznorona/status/1551406865673764864) | 51 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 13:28:17
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 19:12:22
 *****
-RT @LOVREGA: Me repugnan quienes respaldan las campañas de odio que promueve el esquirol de Notimex.
-
-
-Nadie que apoye a López Obrador puede…
-[Permalink](https://twitter.com/fernandeznorona/status/1551318376366104576) | 0 Me Gusta | 54 Retweets
+Ni les alegra ni lo escuchan. Está haciendo una fuerte denuncia de maltrato animal y a ustedes les tiene sin cuidado.
+[Permalink](https://twitter.com/fernandeznorona/status/1551404965641478145) | 34 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 13:27:56
+**Fernández Noroña** (**@fernandeznorona**) • 24-07-2022 a las 19:11:10
 *****
-No perderemos la capital, la recuperaremos. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1551318288927543296) | 46 Me Gusta | 10 Retweets
+Jejeje
+[Permalink](https://twitter.com/fernandeznorona/status/1551404664838553600) | 73 Me Gusta | 22 Retweets

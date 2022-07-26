@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 09:34:26
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 14:47:18
 *****
-@sabymr @AntonioAttolini @LibreriasGandhi @perezricart Zas.
-[Permalink](https://twitter.com/fernandeznorona/status/1551621914363367424) | 1 Me Gusta | 0 Retweets
+Y eunucos. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1551700647510265857) | 19 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 09:31:50
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 14:43:48
 *****
-@aga10mx @lopezobrador_ Raso.
-[Permalink](https://twitter.com/fernandeznorona/status/1551621259196252165) | 5 Me Gusta | 0 Retweets
+Yo defendiendo a @Claudiashein de ataques infames y la gente que dizque la apoya, generando insidias en mi contra. Ahí la llevan.
+[Permalink](https://twitter.com/fernandeznorona/status/1551699765871648770) | 244 Me Gusta | 54 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 09:24:44
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 14:32:48
 *****
-Apenas vamos a salir de Guadalajara rumbo al DF.
-[Permalink](https://twitter.com/fernandeznorona/status/1551619474029174784) | 60 Me Gusta | 9 Retweets
+Es muy fácil identificar un hipócrita: se escandaliza de ver en otros lo que él hace permanentemente.
+[Permalink](https://twitter.com/fernandeznorona/status/1551696997614231552) | 138 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 09:02:47
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 14:30:54
 *****
-¿Qué pasa ahí @bbva?
-[Permalink](https://twitter.com/fernandeznorona/status/1551613946200727553) | 36 Me Gusta | 25 Retweets
+Lo bueno ⁦@Nubia_SCG⁩ y @beto1170 es que no puedo ni ver los mensajes.
+[Permalink](https://twitter.com/fernandeznorona/status/1551696520545796101) | 18 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 09:01:06
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 14:25:01
 *****
-RT @iRazasdePerros: Ni creas que se me antoja tu comida, es más ni tengo hambre 😌
-[Permalink](https://twitter.com/fernandeznorona/status/1551613525503647745) | 0 Me Gusta | 1,522 Retweets
+¿Qué fue lo qué pasó?
+[Permalink](https://twitter.com/fernandeznorona/status/1551695039180353537) | 13 Me Gusta | 3 Retweets

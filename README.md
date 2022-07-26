@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 14:47:18
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 20:36:31
 *****
-Y eunucos. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1551700647510265857) | 19 Me Gusta | 4 Retweets
+RT @EricU_VG: ¿Como ve Dip. @fernandeznorona ?
+¡Y lo que falta!
+\#NoroñaVa
+[Permalink](https://twitter.com/fernandeznorona/status/1551788532758347778) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 14:43:48
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 20:36:29
 *****
-Yo defendiendo a @Claudiashein de ataques infames y la gente que dizque la apoya, generando insidias en mi contra. Ahí la llevan.
-[Permalink](https://twitter.com/fernandeznorona/status/1551699765871648770) | 244 Me Gusta | 54 Retweets
+Chingón.
+[Permalink](https://twitter.com/fernandeznorona/status/1551788524344573952) | 47 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 14:32:48
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 20:11:46
 *****
-Es muy fácil identificar un hipócrita: se escandaliza de ver en otros lo que él hace permanentemente.
-[Permalink](https://twitter.com/fernandeznorona/status/1551696997614231552) | 138 Me Gusta | 26 Retweets
+RT @BerCorHer: ¡A darle! 🤟 #NoroñaVa #MovimientoNoroñista
+[Permalink](https://twitter.com/fernandeznorona/status/1551782301792624640) | 0 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 14:30:54
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 20:08:36
 *****
-Lo bueno ⁦@Nubia_SCG⁩ y @beto1170 es que no puedo ni ver los mensajes.
-[Permalink](https://twitter.com/fernandeznorona/status/1551696520545796101) | 18 Me Gusta | 4 Retweets
+RT @xX_DarkAdria_Xx: Jajajaja ya vieron que bonita quedó la animación de la última versión
+❤️NoroñaToon ❤️ Rocker ‼️⁉️❤️
+
+
+Excelente el trab…
+[Permalink](https://twitter.com/fernandeznorona/status/1551781506263252993) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 14:25:01
+**Fernández Noroña** (**@fernandeznorona**) • 25-07-2022 a las 20:07:18
 *****
-¿Qué fue lo qué pasó?
-[Permalink](https://twitter.com/fernandeznorona/status/1551695039180353537) | 13 Me Gusta | 3 Retweets
+Es @NormanPeorl.
+[Permalink](https://twitter.com/fernandeznorona/status/1551781179602489345) | 19 Me Gusta | 4 Retweets

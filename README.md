@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 16:32:51
+**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 20:30:44
 *****
-RT @Ilianalimon: Llegó la comida de los gatitos, ayer alguien medio de mala leche (así lo sentí) me dijo q seguro tenía el descuentote porq…
-[Permalink](https://twitter.com/fernandeznorona/status/1552089598393737218) | 0 Me Gusta | 1 Retweets
+El charro negro.
+[Permalink](https://twitter.com/fernandeznorona/status/1552149465443848192) | 123 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 16:31:42
+**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 20:29:04
 *****
-La desesperación de @PedroFerriz seria de risa loca, si no manifestara en el fondo la percepción de un sector bastante fascista, racista y clasista de nuestra sociedad.
-[Permalink](https://twitter.com/fernandeznorona/status/1552089310119301120) | 46 Me Gusta | 11 Retweets
+RT @cafodeivid: Me bajo a orinar. Me ven unos estatales. Acepto mi error. Me llevan al MP de Naucalpan. Me siembran siete bolsitas de Marih…
+[Permalink](https://twitter.com/fernandeznorona/status/1552149043421364224) | 0 Me Gusta | 222 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 16:27:20
+**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 20:27:16
 *****
-RT @SupsipS: Atacan, insultan, corren gente de "su" movimiento todos los días, sectarizan, descalifican, pendejean, acosan, se burlan y se…
-[Permalink](https://twitter.com/fernandeznorona/status/1552088212738396160) | 0 Me Gusta | 15 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1552148592596377600) | 38 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 16:27:00
+**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 20:26:59
 *****
-RT @naty_cmr: Update: la última solución que me pudieron dar fue 60% de beca 30% a crédito y 10% de contado en las últimas materias que me…
-[Permalink](https://twitter.com/fernandeznorona/status/1552088125496868864) | 0 Me Gusta | 2 Retweets
+Es un imbécil @PedroFerriz, pero en ningún momento está convocando un golpe de estado. Creo que debemos ser más serios en nuestras aseveraciones y no caer en la misma ligereza que la derecha. Es un esquizofrénico político: llama a una rebelión popular pero desprecia al pueblo.
+[Permalink](https://twitter.com/fernandeznorona/status/1552148522656534529) | 51 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 16:26:01
+**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 20:00:52
 *****
-RT @_VicenteSerrano: Esperé para enviar los últimos tuits hasta que alguno de los “presidenciables” de @PartidoMorenaMx respondiera. Debo i…
-[Permalink](https://twitter.com/fernandeznorona/status/1552087877755994112) | 0 Me Gusta | 116 Retweets
+Pues yo si te contesté, aunque hagas como que no los viste. Abur.
+[Permalink](https://twitter.com/fernandeznorona/status/1552141949112549378) | 67 Me Gusta | 15 Retweets

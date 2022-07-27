@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 20:30:44
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 10:09:11
 *****
-El charro negro.
-[Permalink](https://twitter.com/fernandeznorona/status/1552149465443848192) | 214 Me Gusta | 50 Retweets
+El petróleo no se produce, se extrae. Aunque es cierto que, coloquialmente, se habla de producir petróleo.
+[Permalink](https://twitter.com/fernandeznorona/status/1552355433993707521) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 20:29:04
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 10:06:08
 *****
-RT @cafodeivid: Me bajo a orinar. Me ven unos estatales. Acepto mi error. Me llevan al MP de Naucalpan. Me siembran siete bolsitas de Marih…
-[Permalink](https://twitter.com/fernandeznorona/status/1552149043421364224) | 0 Me Gusta | 396 Retweets
+¡Imprudencia! ¡Qué audacia de crítica! En fin, disculpas por no pedirte asesoría. Iluso que soy de pensar que sé de política sólo porque llevo 40 años dedicado a ella.
+[Permalink](https://twitter.com/fernandeznorona/status/1552354666578575360) | 8 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 20:27:16
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 10:02:02
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1552148592596377600) | 51 Me Gusta | 6 Retweets
+Nada de llorar, yo echado para adelante. Besitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1552353634834325505) | 6 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 20:26:59
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 10:00:25
 *****
-Es un imbécil @PedroFerriz, pero en ningún momento está convocando un golpe de estado. Creo que debemos ser más serios en nuestras aseveraciones y no caer en la misma ligereza que la derecha. Es un esquizofrénico político: llama a una rebelión popular pero desprecia al pueblo.
-[Permalink](https://twitter.com/fernandeznorona/status/1552148522656534529) | 71 Me Gusta | 16 Retweets
+¡Qué jóvenes estábamos @adela_bicha!
+[Permalink](https://twitter.com/fernandeznorona/status/1552353229610094592) | 7 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 20:00:52
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 09:59:33
 *****
-Pues yo si te contesté, aunque hagas como que no los viste. Abur.
-[Permalink](https://twitter.com/fernandeznorona/status/1552141949112549378) | 87 Me Gusta | 20 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1552353007777587202) | 20 Me Gusta | 9 Retweets

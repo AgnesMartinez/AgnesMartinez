@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 10:00:57
+**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 16:32:51
 *****
-Salgo rumbo a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1551990976234852352) | 16 Me Gusta | 3 Retweets
+RT @Ilianalimon: Llegó la comida de los gatitos, ayer alguien medio de mala leche (así lo sentí) me dijo q seguro tenía el descuentote porq…
+[Permalink](https://twitter.com/fernandeznorona/status/1552089598393737218) | 0 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 09:39:08
+**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 16:31:42
 *****
-Eleno y Fitz Roy.
-[Permalink](https://twitter.com/fernandeznorona/status/1551985485827940352) | 24 Me Gusta | 4 Retweets
+La desesperación de @PedroFerriz seria de risa loca, si no manifestara en el fondo la percepción de un sector bastante fascista, racista y clasista de nuestra sociedad.
+[Permalink](https://twitter.com/fernandeznorona/status/1552089310119301120) | 46 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 09:36:11
+**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 16:27:20
 *****
-Hoy, en una charla de las seis de la tarde, haré un aviso importante.
-[Permalink](https://twitter.com/fernandeznorona/status/1551984740093378563) | 63 Me Gusta | 17 Retweets
+RT @SupsipS: Atacan, insultan, corren gente de "su" movimiento todos los días, sectarizan, descalifican, pendejean, acosan, se burlan y se…
+[Permalink](https://twitter.com/fernandeznorona/status/1552088212738396160) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 07:35:35
+**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 16:27:00
 *****
-Ya rumbo a @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1551954391816671235) | 80 Me Gusta | 8 Retweets
+RT @naty_cmr: Update: la última solución que me pudieron dar fue 60% de beca 30% a crédito y 10% de contado en las últimas materias que me…
+[Permalink](https://twitter.com/fernandeznorona/status/1552088125496868864) | 0 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 07:34:04
+**Fernández Noroña** (**@fernandeznorona**) • 26-07-2022 a las 16:26:01
 *****
-Ya se va, aunque más gráfico, imposible. ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1551954010017603584) | 18 Me Gusta | 7 Retweets
+RT @_VicenteSerrano: Esperé para enviar los últimos tuits hasta que alguno de los “presidenciables” de @PartidoMorenaMx respondiera. Debo i…
+[Permalink](https://twitter.com/fernandeznorona/status/1552087877755994112) | 0 Me Gusta | 116 Retweets

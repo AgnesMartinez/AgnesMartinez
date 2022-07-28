@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 10:09:11
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 15:09:32
 *****
-El petróleo no se produce, se extrae. Aunque es cierto que, coloquialmente, se habla de producir petróleo.
-[Permalink](https://twitter.com/fernandeznorona/status/1552355433993707521) | 3 Me Gusta | 0 Retweets
+“Mi arrogante atrevimiento”, se llamará mi video charla que empezará apenas llegue a la casa.
+[Permalink](https://twitter.com/fernandeznorona/status/1552431021223976961) | 88 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 10:06:08
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 15:07:26
 *****
-¡Imprudencia! ¡Qué audacia de crítica! En fin, disculpas por no pedirte asesoría. Iluso que soy de pensar que sé de política sólo porque llevo 40 años dedicado a ella.
-[Permalink](https://twitter.com/fernandeznorona/status/1552354666578575360) | 8 Me Gusta | 2 Retweets
+Oye @BerCorHer, hay que parar todo. El único que puede hacer muñequitos es @monerohernandez y, solo AMLO y la candidata del citado caricaturista tienen los méritos para que les hagan muñequitos. Dicen que dice.
+[Permalink](https://twitter.com/fernandeznorona/status/1552430491953156097) | 67 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 10:02:02
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 15:02:13
 *****
-Nada de llorar, yo echado para adelante. Besitos.
-[Permalink](https://twitter.com/fernandeznorona/status/1552353634834325505) | 6 Me Gusta | 3 Retweets
+RT @jenarovillamil: #LuzRaquel. Qué sentido tiene que la Fiscalía de Jalisco aporte elementos que orientan a desacreditar a la propia vícti…
+[Permalink](https://twitter.com/fernandeznorona/status/1552429178498301955) | 0 Me Gusta | 386 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 10:00:25
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 15:01:19
 *****
-¡Qué jóvenes estábamos @adela_bicha!
-[Permalink](https://twitter.com/fernandeznorona/status/1552353229610094592) | 7 Me Gusta | 2 Retweets
+RT @SupsipS: En Guadalajara esto es común. No son casos aislados...
+[Permalink](https://twitter.com/fernandeznorona/status/1552428950428827650) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 09:59:33
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 15:00:31
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1552353007777587202) | 20 Me Gusta | 9 Retweets
+RT @jgnaredo: Si piensan que el “verdadero periodista” es el que “incomoda” al poder, pues deberían primero que nada incomodar a sus medios…
+[Permalink](https://twitter.com/fernandeznorona/status/1552428749291139072) | 0 Me Gusta | 1,089 Retweets

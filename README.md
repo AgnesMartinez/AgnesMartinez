@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 20:01:01
+**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 09:12:34
 *****
-RT @epigmenioibarra: Que le vaya mal a México
-En esta visión apocalíptica coinciden desde los más ilustrados de los intelectuales hasta los…
-[Permalink](https://twitter.com/fernandeznorona/status/1552504372436819969) | 0 Me Gusta | 1,211 Retweets
+Va bien Actopan.
+[Permalink](https://twitter.com/fernandeznorona/status/1552703572441194506) | 37 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 19:28:56
+**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 09:06:16
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1552496300310102016) | 88 Me Gusta | 16 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1552701987199787014) | 48 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 19:27:14
+**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 09:05:37
 *****
-RT @jpau74: Y luego, que entró al Youtube de mi Teléfono personal, digo... No más pa'curiosear y Zas.. Zas..!!! 172,557 Vistas a eso de las…
-[Permalink](https://twitter.com/fernandeznorona/status/1552495873619279873) | 0 Me Gusta | 13 Retweets
+Actopan, Hidalgo.
+[Permalink](https://twitter.com/fernandeznorona/status/1552701824209244161) | 47 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 19:27:07
+**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 08:59:53
 *****
-¡Un amor!
-[Permalink](https://twitter.com/fernandeznorona/status/1552495841050591232) | 43 Me Gusta | 7 Retweets
+Ya en Actopan.
+[Permalink](https://twitter.com/fernandeznorona/status/1552700383012724738) | 56 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 19:25:08
+**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 08:50:55
 *****
-RT @jpau74: Y que prendo mi Televisor, entro a Youtube y Zas... Zas..!! 😀167,430 Vistas hasta las 9:14pm. ✅👍🏻 Qué tal..??!! Casi ni lo ven,…
-[Permalink](https://twitter.com/fernandeznorona/status/1552495345229242368) | 0 Me Gusta | 18 Retweets
+Relax. No me está apoyando. Pretende que siga de legislador para darle paso a su candidata.
+[Permalink](https://twitter.com/fernandeznorona/status/1552698124153536513) | 21 Me Gusta | 6 Retweets

@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 15:09:32
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 20:01:01
 *****
-“Mi arrogante atrevimiento”, se llamará mi video charla que empezará apenas llegue a la casa.
-[Permalink](https://twitter.com/fernandeznorona/status/1552431021223976961) | 88 Me Gusta | 16 Retweets
+RT @epigmenioibarra: Que le vaya mal a México
+En esta visión apocalíptica coinciden desde los más ilustrados de los intelectuales hasta los…
+[Permalink](https://twitter.com/fernandeznorona/status/1552504372436819969) | 0 Me Gusta | 1,111 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 15:07:26
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 19:28:56
 *****
-Oye @BerCorHer, hay que parar todo. El único que puede hacer muñequitos es @monerohernandez y, solo AMLO y la candidata del citado caricaturista tienen los méritos para que les hagan muñequitos. Dicen que dice.
-[Permalink](https://twitter.com/fernandeznorona/status/1552430491953156097) | 67 Me Gusta | 24 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1552496300310102016) | 71 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 15:02:13
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 19:27:14
 *****
-RT @jenarovillamil: #LuzRaquel. Qué sentido tiene que la Fiscalía de Jalisco aporte elementos que orientan a desacreditar a la propia vícti…
-[Permalink](https://twitter.com/fernandeznorona/status/1552429178498301955) | 0 Me Gusta | 386 Retweets
+RT @jpau74: Y luego, que entró al Youtube de mi Teléfono personal, digo... No más pa'curiosear y Zas.. Zas..!!! 172,557 Vistas a eso de las…
+[Permalink](https://twitter.com/fernandeznorona/status/1552495873619279873) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 15:01:19
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 19:27:07
 *****
-RT @SupsipS: En Guadalajara esto es común. No son casos aislados...
-[Permalink](https://twitter.com/fernandeznorona/status/1552428950428827650) | 0 Me Gusta | 17 Retweets
+¡Un amor!
+[Permalink](https://twitter.com/fernandeznorona/status/1552495841050591232) | 32 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 15:00:31
+**Fernández Noroña** (**@fernandeznorona**) • 27-07-2022 a las 19:25:08
 *****
-RT @jgnaredo: Si piensan que el “verdadero periodista” es el que “incomoda” al poder, pues deberían primero que nada incomodar a sus medios…
-[Permalink](https://twitter.com/fernandeznorona/status/1552428749291139072) | 0 Me Gusta | 1,089 Retweets
+RT @jpau74: Y que prendo mi Televisor, entro a Youtube y Zas... Zas..!! 😀167,430 Vistas hasta las 9:14pm. ✅👍🏻 Qué tal..??!! Casi ni lo ven,…
+[Permalink](https://twitter.com/fernandeznorona/status/1552495345229242368) | 0 Me Gusta | 14 Retweets

@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 16:10:02
+**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 20:30:45
 *****
-10,776 en Facebook y, 6348 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1552808634169565184) | 43 Me Gusta | 9 Retweets
+RT @YouleeGuzman: Mensaje dirigido a Simpatizantes y Militantes de #MORENA 🇲🇽
+
+
+Afíliate o ratifica tu afiliación el sábado 30 de julio en l…
+[Permalink](https://twitter.com/fernandeznorona/status/1552874244685668353) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 12:09:47
+**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 20:22:49
 *****
-Cabeza hueca @VicenteFoxQue, yo no toleraré tu impunidad. Prometido.
-[Permalink](https://twitter.com/fernandeznorona/status/1552748170425270275) | 116 Me Gusta | 43 Retweets
+Apenas llegando al DF.
+[Permalink](https://twitter.com/fernandeznorona/status/1552872247529979904) | 90 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 12:08:25
+**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 18:26:25
 *****
-Pregúntale al ardilla, seguro él encabeza la oficina. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1552747826580422661) | 38 Me Gusta | 13 Retweets
+Opino que es una reverenda tontería. @Silvano_A debe ir a la cárcel.
+[Permalink](https://twitter.com/fernandeznorona/status/1552842956012503043) | 116 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 12:06:50
+**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 18:25:17
 *****
-RT @liliaaguilarmx: Lesvy se suicidó, #Debanhi se lanzó a una cisterna y ahora, #LuzRaquel se prendió fuego a sí misma. ¡Las fiscalías no h…
-[Permalink](https://twitter.com/fernandeznorona/status/1552747431145750528) | 0 Me Gusta | 22 Retweets
+Ya vamos de regreso. Estamos apenas en Actopan.
+[Permalink](https://twitter.com/fernandeznorona/status/1552842671328317445) | 95 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 12:04:03
+**Fernández Noroña** (**@fernandeznorona**) • 28-07-2022 a las 18:24:46
 *****
-Para que los que quieren dividir hagan números y se den cuenta de la enorme torpeza de su sectarismo.
-[Permalink](https://twitter.com/fernandeznorona/status/1552746728843010049) | 147 Me Gusta | 51 Retweets
+Empezamos con un con un puñado, al final muy bien en Xuchitlán. Voy muy motivado. Ahí vamos, carpita tras carpita.
+[Permalink](https://twitter.com/fernandeznorona/status/1552842538607906817) | 281 Me Gusta | 38 Retweets

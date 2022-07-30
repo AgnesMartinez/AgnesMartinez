@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 20:23:05
+**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 09:01:32
 *****
-RT @Lamalquerida_12: Una vecina dejó a un gatito dentro del cuarto de servicio encerrado y lleva dos días llorando ¿ Donde lo puedo reporta…
-[Permalink](https://twitter.com/fernandeznorona/status/1553234702022189056) | 0 Me Gusta | 17 Retweets
+Pues espero que atiendan porque es una mala persona.
+[Permalink](https://twitter.com/fernandeznorona/status/1553425573980110851) | 23 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 20:22:54
+**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 06:25:33
 *****
-RT @Gerardonoticia: @azucenau,buena noche, soy el periodista Gerardo Hernández de la ciudad de Irapuato, vi que subió el video que hice de…
-[Permalink](https://twitter.com/fernandeznorona/status/1553234655029116928) | 0 Me Gusta | 2,174 Retweets
+Así que autoridades de bienes comunales, les pido su intervención para que pongan en orden a este sujeto deleznable.
+[Permalink](https://twitter.com/fernandeznorona/status/1553386316838174721) | 65 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 20:16:26
+**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 06:24:58
 *****
-En realidad es una foto del 29 de julio de 2020.
-[Permalink](https://twitter.com/fernandeznorona/status/1553233028431990784) | 51 Me Gusta | 10 Retweets
+4. Los caminantes habituales de estos senderos tratan de no venir el fin de semana para no encontrarse Fabriciano. Es majadero y agresivo. Hoy me amenazó con su machete, es un tipejo, cobarde y miserable.
+[Permalink](https://twitter.com/fernandeznorona/status/1553386173355245568) | 70 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 20:12:45
+**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 06:24:14
 *****
-Lo terminé. Es un libro espléndido, no lloré porque me aguanté. Para mí su lectura ha sido de enorme utilidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1553232101536894977) | 42 Me Gusta | 13 Retweets
+3. Fabriciano, los viernes, sábados y domingos, pone una vara en la entrada para decidir quién pasa y quen no, cobrando porque pases y cobrando más si traen un perro.
+[Permalink](https://twitter.com/fernandeznorona/status/1553385987065126912) | 46 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 20:10:52
+**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 06:23:16
 *****
-Acordando la unidad rumbo a 2024.
-[Permalink](https://twitter.com/fernandeznorona/status/1553231627714760707) | 355 Me Gusta | 64 Retweets
+2. Fabriciano se dice guardabosques pero es un sableador. Se esconde, para espantar a la gente y sacarle dinero. Desprecia y habla mal de quién es se juega en la vida para apagar los incendios en la montaña
+[Permalink](https://twitter.com/fernandeznorona/status/1553385744240197632) | 48 Me Gusta | 23 Retweets

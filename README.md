@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 15:20:05
+**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 20:23:05
 *****
-Falso. Mi respeto y reconocimiento a @Claudiashein. Hablé de su equipo.
-[Permalink](https://twitter.com/fernandeznorona/status/1553158449323720704) | 52 Me Gusta | 18 Retweets
+RT @Lamalquerida_12: Una vecina dejó a un gatito dentro del cuarto de servicio encerrado y lleva dos días llorando ¿ Donde lo puedo reporta…
+[Permalink](https://twitter.com/fernandeznorona/status/1553234702022189056) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 15:20:03
+**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 20:22:54
 *****
-¿Así como llegaré a transmitir?
-[Permalink](https://twitter.com/fernandeznorona/status/1553158440343801863) | 30 Me Gusta | 2 Retweets
+RT @Gerardonoticia: @azucenau,buena noche, soy el periodista Gerardo Hernández de la ciudad de Irapuato, vi que subió el video que hice de…
+[Permalink](https://twitter.com/fernandeznorona/status/1553234655029116928) | 0 Me Gusta | 1,981 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 15:19:56
+**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 20:16:26
 *****
-\#azinoanlo
-[Permalink](https://twitter.com/fernandeznorona/status/1553158413269483520) | 21 Me Gusta | 3 Retweets
+En realidad es una foto del 29 de julio de 2020.
+[Permalink](https://twitter.com/fernandeznorona/status/1553233028431990784) | 39 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 15:14:19
+**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 20:12:45
 *****
-Haré la video charla en la carretera. En breve.
-[Permalink](https://twitter.com/fernandeznorona/status/1553156999034044417) | 68 Me Gusta | 7 Retweets
+Lo terminé. Es un libro espléndido, no lloré porque me aguanté. Para mí su lectura ha sido de enorme utilidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1553232101536894977) | 34 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 15:13:16
+**Fernández Noroña** (**@fernandeznorona**) • 29-07-2022 a las 20:10:52
 *****
-Totalmente parado el tráfico en la carretera México Cuernavaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1553156733119434752) | 24 Me Gusta | 4 Retweets
+Acordando la unidad rumbo a 2024.
+[Permalink](https://twitter.com/fernandeznorona/status/1553231627714760707) | 249 Me Gusta | 46 Retweets

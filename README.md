@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 16:47:32
+**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 20:14:59
 *****
-RT @ramooonvqz: @alvaro_delgado Ojalá vean la entrevista completa en youtube para que no se dejen llevar por el encabezado escandaloso al p…
-[Permalink](https://twitter.com/fernandeznorona/status/1553542847076438016) | 0 Me Gusta | 4 Retweets
+Con veinte vacunas y usando cubrebocas @POTUS vuelve a tener coví. Pronta recuperación, pero síganle dizque protegidos.
+[Permalink](https://twitter.com/fernandeznorona/status/1553595050227015680) | 112 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 16:46:18
+**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 19:57:46
 *****
-RT @mauryzio: Desde Matamoros, Tamps....@fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1553542535091523585) | 0 Me Gusta | 1 Retweets
+@Doppledlkb Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1553590720312840194) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 16:45:32
+**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 19:55:17
 *****
-Ya en el avión de @VivaAerobus para salir a Oaxaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1553542343353147393) | 10 Me Gusta | 1 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1553590096091398147) | 31 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 16:45:05
+**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 19:45:06
 *****
-Ahitoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1553542227393236994) | 11 Me Gusta | 1 Retweets
+Cené un tamalito oaxaqueño de mole.
+[Permalink](https://twitter.com/fernandeznorona/status/1553587533073768448) | 144 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 16:26:04
+**Fernández Noroña** (**@fernandeznorona**) • 30-07-2022 a las 19:11:12
 *****
-Me parece que antes de intrigar debes leer la nota, que no dice absolutamente nada de lo que el encabezado manifiesta.
-[Permalink](https://twitter.com/fernandeznorona/status/1553537443323838465) | 25 Me Gusta | 8 Retweets
+RT @zenenzeferino: Se acuerdan de Don Miguel.  Muchas veces lo entrevistó @_VicenteSerrano . 
+Hoy me entero que ha fallecido hace unos de d…
+[Permalink](https://twitter.com/fernandeznorona/status/1553578999598747648) | 0 Me Gusta | 37 Retweets

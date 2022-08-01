@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 13:07:02
+**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 19:49:57
 *****
-Deja de intrigar. Olé es la entrevista completa hola hoy es completa, pero no seas huevón y deja de leer sólo los titulares.
-[Permalink](https://twitter.com/fernandeznorona/status/1553849743998058496) | 67 Me Gusta | 21 Retweets
+RT @PonchoGutz: Amigos, por salud mental voy a empezar a bloquear a personas que sólo se dedican a insultar y rabiar como mandriles. No ten…
+[Permalink](https://twitter.com/fernandeznorona/status/1553951140928274434) | 0 Me Gusta | 587 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 12:23:18
+**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 19:48:00
 *****
-Hicimos compras de pánico de arte popular oaxaqueño.
-[Permalink](https://twitter.com/fernandeznorona/status/1553838738794459136) | 158 Me Gusta | 19 Retweets
+RT @AliteyU: Ni modo 🤷🏻‍♀️
+[Permalink](https://twitter.com/fernandeznorona/status/1553950651381678081) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 11:09:27
+**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 17:14:13
 *****
-Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1553820152625451008) | 41 Me Gusta | 12 Retweets
+¡No hay de ubre!
+[Permalink](https://twitter.com/fernandeznorona/status/1553911947904663552) | 71 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 09:31:07
+**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 17:10:44
 *****
-Miren esta belleza
-[Permalink](https://twitter.com/fernandeznorona/status/1553795407330754561) | 101 Me Gusta | 7 Retweets
+Ahora bien, los mejores son los que hace Rosario, la esposa de @MBarbosaMX. Pero esos no se venden.
+[Permalink](https://twitter.com/fernandeznorona/status/1553911073920749568) | 22 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 08:33:21
+**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 17:10:11
 *****
-La intriga de hoy es que me están inflando, y romperé por torpe y engreído. Pero si estoy inflado, ¿qué importancia tendría mi rompimiento?, pregunto yo. Además que he declarado hasta la náusea que no romperé.
-[Permalink](https://twitter.com/fernandeznorona/status/1553780868035973121) | 378 Me Gusta | 105 Retweets
+En @casareynapuebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1553910935684845568) | 16 Me Gusta | 2 Retweets

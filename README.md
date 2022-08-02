@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 20:37:33
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 09:39:51
 *****
-A dormir, mañana deberé salir por tierra desde Oaxaca a San Gabriel Chilac, Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1554325507390554114) | 103 Me Gusta | 13 Retweets
+Bien San Sebastián Cuacnopala.
+[Permalink](https://twitter.com/fernandeznorona/status/1554522377958182912) | 24 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 20:36:43
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 08:41:03
 *****
-El #TomandanteBorolas alias @FelipeCalderon y Carlos Salinas no fueron presidentes, usurparon la presidencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1554325295561379842) | 59 Me Gusta | 20 Retweets
+En San Sebastián  Cuacnopalan,Puebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1554507580067676160) | 40 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 20:34:33
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 05:59:14
 *****
-RT @Cesar_Reyes: 😬 Ya lo vi!
-Todos los créditos a Bernardo Cortés
-[Permalink](https://twitter.com/fernandeznorona/status/1554324750004002816) | 0 Me Gusta | 37 Retweets
+Ahora voy a San Sebastián Cuacnopalan.
+[Permalink](https://twitter.com/fernandeznorona/status/1554466858568454144) | 102 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 20:14:37
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 05:43:15
 *****
-En la Guelaguetza.
-[Permalink](https://twitter.com/fernandeznorona/status/1554319736984461318) | 247 Me Gusta | 36 Retweets
+Resulta que cancelaron el evento en San Gabriel Chilac y apenas me están comentando.
+[Permalink](https://twitter.com/fernandeznorona/status/1554462835928883202) | 81 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 20:13:59
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 04:44:43
 *****
-13,049 en Facebook y, 5222 en YouTube. Francamente los números de esta última Red me parece que no reflejan.
-[Permalink](https://twitter.com/fernandeznorona/status/1554319577080893440) | 45 Me Gusta | 11 Retweets
+Por cierto, ya vamos de Oaxaca a San Gabriel Chilac, Puebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1554448106367991809) | 153 Me Gusta | 18 Retweets

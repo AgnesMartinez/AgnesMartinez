@@ -1,27 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 12:19:07
+**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 20:37:33
 *****
-RT @DiegodelBosqueV: El pueblo manda en Morena: dos millones y medio de militantes marcando el rumbo. ¿Que hubo actos indebidos? Sí. Hay qu…
-[Permalink](https://twitter.com/fernandeznorona/status/1554200072463831044) | 0 Me Gusta | 255 Retweets
+A dormir, mañana deberé salir por tierra desde Oaxaca a San Gabriel Chilac, Puebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1554325507390554114) | 65 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 12:18:24
+**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 20:36:43
 *****
-RT @Ilianalimon: En verdad es increíble q siendo adultos, medianamente cuerdos, le entren a acosar a la gente en redes sociales sin importa…
-[Permalink](https://twitter.com/fernandeznorona/status/1554199891978686464) | 0 Me Gusta | 11 Retweets
+El #TomandanteBorolas alias @FelipeCalderon y Carlos Salinas no fueron presidentes, usurparon la presidencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1554325295561379842) | 47 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 12:17:56
+**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 20:34:33
 *****
-@Ceciliaaaoooo @CarmentA55 @NachoRgz Echará.
-[Permalink](https://twitter.com/fernandeznorona/status/1554199774487842816) | 10 Me Gusta | 3 Retweets
+RT @Cesar_Reyes: 😬 Ya lo vi!
+Todos los créditos a Bernardo Cortés
+[Permalink](https://twitter.com/fernandeznorona/status/1554324750004002816) | 0 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 12:07:01
+**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 20:14:37
 *****
-No le cedió nada, reconoció un triunfo muy apretado -en una encuesta- y eso lo ennoblece. @m_ebrard.
-[Permalink](https://twitter.com/fernandeznorona/status/1554197027805925377) | 117 Me Gusta | 32 Retweets
+En la Guelaguetza.
+[Permalink](https://twitter.com/fernandeznorona/status/1554319736984461318) | 173 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 12:05:54
+**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 20:13:59
 *****
-RT @Jjlopez_almejo: Y como el tema no se resolverá pronto, Reino Unido seguirá con la "administración" de ese oro. 
-Más allá de las cantida…
-[Permalink](https://twitter.com/fernandeznorona/status/1554196745709559817) | 0 Me Gusta | 43 Retweets
+13,049 en Facebook y, 5222 en YouTube. Francamente los números de esta última Red me parece que no reflejan.
+[Permalink](https://twitter.com/fernandeznorona/status/1554319577080893440) | 37 Me Gusta | 7 Retweets

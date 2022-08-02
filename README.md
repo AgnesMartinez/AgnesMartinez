@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 19:49:57
+**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 12:19:07
 *****
-RT @PonchoGutz: Amigos, por salud mental voy a empezar a bloquear a personas que sólo se dedican a insultar y rabiar como mandriles. No ten…
-[Permalink](https://twitter.com/fernandeznorona/status/1553951140928274434) | 0 Me Gusta | 688 Retweets
+RT @DiegodelBosqueV: El pueblo manda en Morena: dos millones y medio de militantes marcando el rumbo. ¿Que hubo actos indebidos? Sí. Hay qu…
+[Permalink](https://twitter.com/fernandeznorona/status/1554200072463831044) | 0 Me Gusta | 255 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 19:48:00
+**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 12:18:24
 *****
-RT @AliteyU: Ni modo 🤷🏻‍♀️
-[Permalink](https://twitter.com/fernandeznorona/status/1553950651381678081) | 0 Me Gusta | 6 Retweets
+RT @Ilianalimon: En verdad es increíble q siendo adultos, medianamente cuerdos, le entren a acosar a la gente en redes sociales sin importa…
+[Permalink](https://twitter.com/fernandeznorona/status/1554199891978686464) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 17:14:13
+**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 12:17:56
 *****
-¡No hay de ubre!
-[Permalink](https://twitter.com/fernandeznorona/status/1553911947904663552) | 99 Me Gusta | 17 Retweets
+@Ceciliaaaoooo @CarmentA55 @NachoRgz Echará.
+[Permalink](https://twitter.com/fernandeznorona/status/1554199774487842816) | 10 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 17:10:44
+**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 12:07:01
 *****
-Ahora bien, los mejores son los que hace Rosario, la esposa de @MBarbosaMX. Pero esos no se venden.
-[Permalink](https://twitter.com/fernandeznorona/status/1553911073920749568) | 31 Me Gusta | 3 Retweets
+No le cedió nada, reconoció un triunfo muy apretado -en una encuesta- y eso lo ennoblece. @m_ebrard.
+[Permalink](https://twitter.com/fernandeznorona/status/1554197027805925377) | 117 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-07-2022 a las 17:10:11
+**Fernández Noroña** (**@fernandeznorona**) • 01-08-2022 a las 12:05:54
 *****
-En @casareynapuebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1553910935684845568) | 23 Me Gusta | 3 Retweets
+RT @Jjlopez_almejo: Y como el tema no se resolverá pronto, Reino Unido seguirá con la "administración" de ese oro. 
+Más allá de las cantida…
+[Permalink](https://twitter.com/fernandeznorona/status/1554196745709559817) | 0 Me Gusta | 43 Retweets

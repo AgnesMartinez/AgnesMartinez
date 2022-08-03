@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 16:38:07
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 21:33:45
 *****
-11,207 en Facebook y, 6780 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1554627639461167111) | 18 Me Gusta | 3 Retweets
+Apenas en casa. Mañana iré a la Permanente.
+[Permalink](https://twitter.com/fernandeznorona/status/1554702036800880641) | 43 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 15:09:46
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 19:32:51
 *****
-Calípan.
-[Permalink](https://twitter.com/fernandeznorona/status/1554605405304659969) | 42 Me Gusta | 9 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1554671613794189312) | 18 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 14:15:14
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 19:28:55
 *****
-Así vamos en Calipan, Coxcatlán
-[Permalink](https://twitter.com/fernandeznorona/status/1554591683664400384) | 52 Me Gusta | 8 Retweets
+La carretera de la caseta de Amozoc a Puebla está peor que nunca @CAPUFE @SCT_mx.
+[Permalink](https://twitter.com/fernandeznorona/status/1554670622994735104) | 98 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 14:03:57
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 18:57:26
 *****
-Así va Calipan, Coxcatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1554588840798609409) | 82 Me Gusta | 14 Retweets
+RT @alvaro_delgado: El diputado @fernandeznorona estará en la encuesta de Morena, si quiere; incluso sin alianza con PT: @mario_delgado; se…
+[Permalink](https://twitter.com/fernandeznorona/status/1554662698742386688) | 0 Me Gusta | 99 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 13:57:24
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 18:56:07
 *****
-Calipan, Coxcatlán, Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1554587192596615173) | 63 Me Gusta | 11 Retweets
+Pues yo se los había dicho.
+[Permalink](https://twitter.com/fernandeznorona/status/1554662366444457985) | 73 Me Gusta | 20 Retweets

@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 21:33:45
+**Fernández Noroña** (**@fernandeznorona**) • 03-08-2022 a las 09:56:03
 *****
-Apenas en casa. Mañana iré a la Permanente.
-[Permalink](https://twitter.com/fernandeznorona/status/1554702036800880641) | 114 Me Gusta | 6 Retweets
+Xacto, nadie pide venganza, simple justicia, justicia a secas.
+[Permalink](https://twitter.com/fernandeznorona/status/1554888842737500160) | 22 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 19:32:51
+**Fernández Noroña** (**@fernandeznorona**) • 03-08-2022 a las 09:55:18
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1554671613794189312) | 23 Me Gusta | 1 Retweets
+RT @EstefaniaVeloz: @James4Tmas @JackSpicerSanji @jefekoala1245 @alejandrodngr @bio_beatriz @ZuritaCarpio @FGRMexico @SSPCMexico Hola @Jame…
+[Permalink](https://twitter.com/fernandeznorona/status/1554888654690164738) | 0 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 19:28:55
+**Fernández Noroña** (**@fernandeznorona**) • 03-08-2022 a las 09:39:30
 *****
-La carretera de la caseta de Amozoc a Puebla está peor que nunca @CAPUFE @SCT_mx.
-[Permalink](https://twitter.com/fernandeznorona/status/1554670622994735104) | 124 Me Gusta | 28 Retweets
+Pronta recuperación, abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1554884679899152384) | 20 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 18:57:26
+**Fernández Noroña** (**@fernandeznorona**) • 03-08-2022 a las 09:35:09
 *****
-RT @alvaro_delgado: El diputado @fernandeznorona estará en la encuesta de Morena, si quiere; incluso sin alianza con PT: @mario_delgado; se…
-[Permalink](https://twitter.com/fernandeznorona/status/1554662698742386688) | 0 Me Gusta | 121 Retweets
+No soy afiliado, soy externo, para ser preciso.
+[Permalink](https://twitter.com/fernandeznorona/status/1554883582715379712) | 24 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 18:56:07
+**Fernández Noroña** (**@fernandeznorona**) • 03-08-2022 a las 09:23:07
 *****
-Pues yo se los había dicho.
-[Permalink](https://twitter.com/fernandeznorona/status/1554662366444457985) | 90 Me Gusta | 23 Retweets
+RT @SinLinea_Mx: 👉El presidente López Obrador señaló que no se ha censurado o perseguido a la periodista Reyna Haydee.
+
+
+📍“Somos respetuosos…
+[Permalink](https://twitter.com/fernandeznorona/status/1554880556298543104) | 0 Me Gusta | 122 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 09:39:51
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 16:38:07
 *****
-Bien San Sebastián Cuacnopala.
-[Permalink](https://twitter.com/fernandeznorona/status/1554522377958182912) | 24 Me Gusta | 7 Retweets
+11,207 en Facebook y, 6780 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1554627639461167111) | 18 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 08:41:03
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 15:09:46
 *****
-En San Sebastián  Cuacnopalan,Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1554507580067676160) | 40 Me Gusta | 6 Retweets
+Calípan.
+[Permalink](https://twitter.com/fernandeznorona/status/1554605405304659969) | 42 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 05:59:14
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 14:15:14
 *****
-Ahora voy a San Sebastián Cuacnopalan.
-[Permalink](https://twitter.com/fernandeznorona/status/1554466858568454144) | 102 Me Gusta | 8 Retweets
+Así vamos en Calipan, Coxcatlán
+[Permalink](https://twitter.com/fernandeznorona/status/1554591683664400384) | 52 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 05:43:15
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 14:03:57
 *****
-Resulta que cancelaron el evento en San Gabriel Chilac y apenas me están comentando.
-[Permalink](https://twitter.com/fernandeznorona/status/1554462835928883202) | 81 Me Gusta | 5 Retweets
+Así va Calipan, Coxcatlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1554588840798609409) | 82 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 04:44:43
+**Fernández Noroña** (**@fernandeznorona**) • 02-08-2022 a las 13:57:24
 *****
-Por cierto, ya vamos de Oaxaca a San Gabriel Chilac, Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1554448106367991809) | 153 Me Gusta | 18 Retweets
+Calipan, Coxcatlán, Puebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1554587192596615173) | 63 Me Gusta | 11 Retweets

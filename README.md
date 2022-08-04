@@ -1,28 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-08-2022 a las 20:25:56
+**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 08:41:31
 *****
-RT @fuedicho: "De la conducta de cada uno, depende el destino de todos".
-Alejandro Magno
-\#Fuedicho
-[Permalink](https://twitter.com/fernandeznorona/status/1555047361042272259) | 0 Me Gusta | 204 Retweets
+Voy a empezar la entrevista con @_VicenteSerrano.
+[Permalink](https://twitter.com/fernandeznorona/status/1555232476271878144) | 114 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-08-2022 a las 20:25:50
+**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 05:52:56
 *****
-RT @Navegaciones: La oligarquía reaccionaria de #Colombia repite contra el presidente @petrogustavo el discurso de odio que la mexicana esg…
-[Permalink](https://twitter.com/fernandeznorona/status/1555047334840455168) | 0 Me Gusta | 130 Retweets
+RT @Nubia_SCG: He visto a cuentas que hace 4 años eran gentiles, convertirse en tremendos trolles.
+
+
+Poquita atención, una supuesta "red de…
+[Permalink](https://twitter.com/fernandeznorona/status/1555190049117016066) | 0 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-08-2022 a las 20:23:01
+**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 05:52:34
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1555046625512263680) | 33 Me Gusta | 6 Retweets
+Hay que ganarles por nocaut.
+[Permalink](https://twitter.com/fernandeznorona/status/1555189958402625537) | 36 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-08-2022 a las 20:19:16
+**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 05:51:59
 *****
-Ah que el Noroñas que le saca a contestar las sesudas tres preguntas del senador independiente de la realidad durante el vasto tiempo de dos minutos.
-[Permalink](https://twitter.com/fernandeznorona/status/1555045681651339265) | 46 Me Gusta | 10 Retweets
+Pues ya me tendrán que medir con @PartidoMorenaMx. Ya oyeron a @mario_delgado. @sdpnoticias.
+[Permalink](https://twitter.com/fernandeznorona/status/1555189812285652992) | 30 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-08-2022 a las 20:18:04
+**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 05:50:28
 *****
-RT @lopezobrador_: A las 13:35 horas se registró un derrumbe en una mina de carbón en el municipio de Sabinas, Coahuila, lo cual provocó qu…
-[Permalink](https://twitter.com/fernandeznorona/status/1555045380106047488) | 0 Me Gusta | 2,777 Retweets
+¡13! Número cabalístico.
+[Permalink](https://twitter.com/fernandeznorona/status/1555189429299560449) | 18 Me Gusta | 4 Retweets

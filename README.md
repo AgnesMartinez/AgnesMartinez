@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 08:41:31
+**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 16:09:44
 *****
-Voy a empezar la entrevista con @_VicenteSerrano.
-[Permalink](https://twitter.com/fernandeznorona/status/1555232476271878144) | 114 Me Gusta | 16 Retweets
+Y tú que creías que tenías muchos gatitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1555345273391616000) | 11 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 05:52:56
+**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 16:06:58
 *****
-RT @Nubia_SCG: He visto a cuentas que hace 4 años eran gentiles, convertirse en tremendos trolles.
-
-
-Poquita atención, una supuesta "red de…
-[Permalink](https://twitter.com/fernandeznorona/status/1555190049117016066) | 0 Me Gusta | 19 Retweets
+Naa, como la Martina, no me he movido de aquí.
+[Permalink](https://twitter.com/fernandeznorona/status/1555344578017992705) | 8 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 05:52:34
+**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 16:03:25
 *****
-Hay que ganarles por nocaut.
-[Permalink](https://twitter.com/fernandeznorona/status/1555189958402625537) | 36 Me Gusta | 12 Retweets
+¿Medialog?
+[Permalink](https://twitter.com/fernandeznorona/status/1555343680935952389) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 05:51:59
+**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 16:00:14
 *****
-Pues ya me tendrán que medir con @PartidoMorenaMx. Ya oyeron a @mario_delgado. @sdpnoticias.
-[Permalink](https://twitter.com/fernandeznorona/status/1555189812285652992) | 30 Me Gusta | 8 Retweets
+RT @_VicenteSerrano: Con la novedad que me voy a ver con @PelonGomis. He recibido la solicitud de audiencia inicial por parte del @PJCDMX.…
+[Permalink](https://twitter.com/fernandeznorona/status/1555342881073799170) | 0 Me Gusta | 100 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 05:50:28
+**Fernández Noroña** (**@fernandeznorona**) • 04-08-2022 a las 15:59:20
 *****
-¡13! Número cabalístico.
-[Permalink](https://twitter.com/fernandeznorona/status/1555189429299560449) | 18 Me Gusta | 4 Retweets
+Jejeje, abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1555342654115905538) | 13 Me Gusta | 2 Retweets

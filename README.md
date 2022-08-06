@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 18:39:24
+**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 05:47:02
 *****
-No se los enseñen a @monerohernandez porque se le hace la cabeza como a Linda Blair en “El exorcista”.
-[Permalink](https://twitter.com/fernandeznorona/status/1555745326610399232) | 132 Me Gusta | 37 Retweets
+RT @LOVREGA: ¿Sabían que la designación de Enrique Vargas como candidato del PAN al gobierno del EdoMex es una decisión unipersonal de @Mar…
+[Permalink](https://twitter.com/fernandeznorona/status/1555913340379168768) | 0 Me Gusta | 102 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 18:38:17
+**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 05:31:22
 *****
-RT @jon_aleman7: Aquí está ya, su Noroñita con manzanas, muy útil para explicarle a la oposición como van a perder Edo. De Mex. Y Coahuila…
-[Permalink](https://twitter.com/fernandeznorona/status/1555745042840666113) | 0 Me Gusta | 44 Retweets
+Siempre ha sido así. Es un aguado.
+[Permalink](https://twitter.com/fernandeznorona/status/1555909397729140736) | 27 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 18:36:30
-*****
-RT @DamianSantos194: El Dr. Noroña a la tribuna.
-
-
-@fernandeznorona
-
-
-\#FernándezNoroña #DrNoroña #DoctorNoroña #Noroña
-[Permalink](https://twitter.com/fernandeznorona/status/1555744593932582912) | 0 Me Gusta | 27 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 18:34:17
-*****
-Ahora sí @PedroFerriz se fue al estrellato: “Carlos Salinas hazte presente …”. Nunca se ha ido, pelmazo. No da la cara porque peor les iría @PerroFerriz.
-[Permalink](https://twitter.com/fernandeznorona/status/1555744036668964866) | 701 Me Gusta | 195 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 18:31:10
+**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 05:29:51
 *****
 Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1555743254678847489) | 49 Me Gusta | 11 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1555909015481335809) | 44 Me Gusta | 8 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 05:27:04
+*****
+Jejeje, está buenísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1555908315078688771) | 92 Me Gusta | 17 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 05:26:36
+*****
+RT @Arman_doCA: Ahhh ese esta espectacular!
+[Permalink](https://twitter.com/fernandeznorona/status/1555908197348687872) | 0 Me Gusta | 26 Retweets

@@ -1,27 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 13:52:54
+**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 18:39:24
 *****
-RT @sdpnoticias: @colosioriojas @fernandeznorona @adan_augusto @Mzavalagc En el tracking diario 📈🤓📉 de hoy:
-Luis Donaldo Colosio (@colosior…
-[Permalink](https://twitter.com/fernandeznorona/status/1555673224402321409) | 0 Me Gusta | 3 Retweets
+No se los enseñen a @monerohernandez porque se le hace la cabeza como a Linda Blair en “El exorcista”.
+[Permalink](https://twitter.com/fernandeznorona/status/1555745326610399232) | 99 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 11:11:11
+**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 18:38:17
 *****
-Con ⁦@MATalibli⁩, embajador de Azerbaiyán, en Muza, viendo el tallado de esmeraldas.
-[Permalink](https://twitter.com/fernandeznorona/status/1555632526642872320) | 144 Me Gusta | 27 Retweets
+RT @jon_aleman7: Aquí está ya, su Noroñita con manzanas, muy útil para explicarle a la oposición como van a perder Edo. De Mex. Y Coahuila…
+[Permalink](https://twitter.com/fernandeznorona/status/1555745042840666113) | 0 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 11:04:57
+**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 18:36:30
 *****
-Eso dice ⁦@sdpnoticias⁩. Empatado con los punteros.
-[Permalink](https://twitter.com/fernandeznorona/status/1555630959197814785) | 118 Me Gusta | 41 Retweets
+RT @DamianSantos194: El Dr. Noroña a la tribuna.
+
+
+@fernandeznorona
+
+
+\#FernándezNoroña #DrNoroña #DoctorNoroña #Noroña
+[Permalink](https://twitter.com/fernandeznorona/status/1555744593932582912) | 0 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 11:01:43
+**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 18:34:17
 *****
-@Ceciliaaaoooo @_VicenteSerrano A.
-[Permalink](https://twitter.com/fernandeznorona/status/1555630144588488704) | 19 Me Gusta | 1 Retweets
+Ahora sí @PedroFerriz se fue al estrellato: “Carlos Salinas hazte presente …”. Nunca se ha ido, pelmazo. No da la cara porque peor les iría @PerroFerriz.
+[Permalink](https://twitter.com/fernandeznorona/status/1555744036668964866) | 552 Me Gusta | 163 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 04:56:09
+**Fernández Noroña** (**@fernandeznorona**) • 05-08-2022 a las 18:31:10
 *****
-Pero dicen que no pinto. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1555538147290894336) | 135 Me Gusta | 26 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1555743254678847489) | 41 Me Gusta | 11 Retweets

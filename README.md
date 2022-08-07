@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 15:09:58
+**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 20:31:41
 *****
-RT @PonchoGutz: Hace exactamente siete años llegué a CDMX con sólo un par de chones, unos calcetines y mi computadora.
-
-
-Hoy puedo decir que…
-[Permalink](https://twitter.com/fernandeznorona/status/1556055009137250305) | 0 Me Gusta | 71 Retweets
+Sip, abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1556135969383907328) | 27 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 15:09:41
+**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 19:52:59
 *****
-RT @librofilos: La belleza de los libros.
-[Permalink](https://twitter.com/fernandeznorona/status/1556054936756125696) | 0 Me Gusta | 223 Retweets
+8184 en Facebook y, 5348 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1556126231300562948) | 60 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 15:07:10
+**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 17:29:56
 *****
-Yo creo que la video charla será hacia las 8:30 PM.
-[Permalink](https://twitter.com/fernandeznorona/status/1556054304661950467) | 26 Me Gusta | 5 Retweets
+Con el embajador de Azerbaijan ⁦@MATalibli⁩ y ⁦la vicepresidente de Colombia @FranciaMarquezM⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1556090229991346176) | 181 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 15:06:35
+**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 17:16:30
 *****
-Mandé un mensaje y nunca salió de que la video charla la haré después de las siete de la noche. Ya que nos recibirá en un momento más la vicepresidente Francia Márquez.
-[Permalink](https://twitter.com/fernandeznorona/status/1556054157429297157) | 138 Me Gusta | 26 Retweets
+Cenaré y me iré al hotel para hacer la video charla que creo que será a las 9: 30 de la noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1556086852008001536) | 194 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 05:47:02
+**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 17:15:24
 *****
-RT @LOVREGA: ¿Sabían que la designación de Enrique Vargas como candidato del PAN al gobierno del EdoMex es una decisión unipersonal de @Mar…
-[Permalink](https://twitter.com/fernandeznorona/status/1555913340379168768) | 0 Me Gusta | 225 Retweets
+Con la vicepresidente de Colombia Francia Márquez. ⁦@FranciaMarquezM⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1556086575326437376) | 1,301 Me Gusta | 239 Retweets

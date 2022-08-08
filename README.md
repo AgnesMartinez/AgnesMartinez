@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 16:00:02
+**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 18:16:33
 *****
-10,483 en Facebook y no pude ver cuantos en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1556429996721410056) | 45 Me Gusta | 10 Retweets
+@Mike28dev @EricU_VG Obsesionado.
+[Permalink](https://twitter.com/fernandeznorona/status/1556464349681782784) | 7 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 14:28:15
+**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 18:16:02
 *****
-6:00 de la tarde y será la video charla de hoy: “ Colombia: una segunda oportunidad”.
-[Permalink](https://twitter.com/fernandeznorona/status/1556406894746603521) | 133 Me Gusta | 27 Retweets
+En vez de ir al Felipe Angeles, lo llevan a Guadalajara. Absurdo. @AIFA_MX
+[Permalink](https://twitter.com/fernandeznorona/status/1556464219259813891) | 46 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 05:30:47
+**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 18:14:31
 *****
-Apenas vi el video de Jesús Lemus y me parece burdo y francamente irresponsables sus señalamientos.
-[Permalink](https://twitter.com/fernandeznorona/status/1556271638848700416) | 264 Me Gusta | 54 Retweets
+RT @LOVREGA: Entiendo que los panistas odien a Fernández Noroña después de las arrastradas que les ha puesto desde la máxima tribuna del pa…
+[Permalink](https://twitter.com/fernandeznorona/status/1556463836898754560) | 0 Me Gusta | 46 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 20:31:41
+**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 18:11:50
 *****
-Sip, abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1556135969383907328) | 54 Me Gusta | 6 Retweets
+RT @librofilos: #RincónDeLectura
+[Permalink](https://twitter.com/fernandeznorona/status/1556463164253954050) | 0 Me Gusta | 143 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-08-2022 a las 19:52:59
+**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 18:11:37
 *****
-8184 en Facebook y, 5348 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1556126231300562948) | 173 Me Gusta | 22 Retweets
+Muchas felicidades a mi amiga y compañera de lucha @LaydaSansores por su cumpleaños. Más vale tarde.
+[Permalink](https://twitter.com/fernandeznorona/status/1556463110097014784) | 363 Me Gusta | 46 Retweets

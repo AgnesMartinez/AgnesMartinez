@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 18:16:33
+**Fernández Noroña** (**@fernandeznorona**) • 08-08-2022 a las 09:41:19
 *****
-@Mike28dev @EricU_VG Obsesionado.
-[Permalink](https://twitter.com/fernandeznorona/status/1556464349681782784) | 7 Me Gusta | 2 Retweets
+Serena. La adhesión de @LOVREGA es muy valiosa. Justo salió repudiando el sectarismo. Un malentendido no debe tensar una relación entre seres humanos libres.
+[Permalink](https://twitter.com/fernandeznorona/status/1556697075248660480) | 19 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 18:16:02
+**Fernández Noroña** (**@fernandeznorona**) • 08-08-2022 a las 09:37:46
 *****
-En vez de ir al Felipe Angeles, lo llevan a Guadalajara. Absurdo. @AIFA_MX
-[Permalink](https://twitter.com/fernandeznorona/status/1556464219259813891) | 56 Me Gusta | 10 Retweets
+Naa, Dr. Chapatín @JesusMartinMx, un hotel es un espacio público. La única manera de ser discreto es hospedarse en un lugar todavía más caro, o en una casa.
+[Permalink](https://twitter.com/fernandeznorona/status/1556696184143679494) | 22 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 18:14:31
+**Fernández Noroña** (**@fernandeznorona**) • 08-08-2022 a las 09:36:06
 *****
-RT @LOVREGA: Entiendo que los panistas odien a Fernández Noroña después de las arrastradas que les ha puesto desde la máxima tribuna del pa…
-[Permalink](https://twitter.com/fernandeznorona/status/1556463836898754560) | 0 Me Gusta | 54 Retweets
+1:35 PM saldremos rumbo al D.F. desde Bogotá. Por allá nos veremos más tarde en la video charla quizás 7:30.
+[Permalink](https://twitter.com/fernandeznorona/status/1556695763748589569) | 41 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 18:11:50
+**Fernández Noroña** (**@fernandeznorona**) • 08-08-2022 a las 09:01:50
 *****
-RT @librofilos: #RincónDeLectura
-[Permalink](https://twitter.com/fernandeznorona/status/1556463164253954050) | 0 Me Gusta | 183 Retweets
+Encima fue al único que mencionó el presidente del congreso por su nombre, bueno por su apodo.
+[Permalink](https://twitter.com/fernandeznorona/status/1556687137390698498) | 23 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-08-2022 a las 18:11:37
+**Fernández Noroña** (**@fernandeznorona**) • 08-08-2022 a las 08:57:18
 *****
-Muchas felicidades a mi amiga y compañera de lucha @LaydaSansores por su cumpleaños. Más vale tarde.
-[Permalink](https://twitter.com/fernandeznorona/status/1556463110097014784) | 471 Me Gusta | 64 Retweets
+¿En qué consiste la hipocresía doctor Chapatín @JesusMartinMx? ¿Tiene que dormir en la playa o cuál es la tarifa aceptable a la que los hijos del pueblo pueden acceder? Racismo y clasismo se llama esa rabia.
+[Permalink](https://twitter.com/fernandeznorona/status/1556685997034938370) | 91 Me Gusta | 25 Retweets

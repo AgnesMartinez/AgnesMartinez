@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-08-2022 a las 20:36:58
+**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 09:53:49
 *****
-Apenas llegando a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1556862075925942272) | 103 Me Gusta | 9 Retweets
+RT @losangelespress: Un exmiembro de las Panteras Negras perdió la batalla contra el COVID19. 
+Se trata de Albert Woodfox, quien fue encarc…
+[Permalink](https://twitter.com/fernandeznorona/status/1557062610578804743) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-08-2022 a las 19:03:17
+**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 09:40:46
 *****
-Atención @SCT_mx @capufe_mx
-[Permalink](https://twitter.com/fernandeznorona/status/1556838500753981442) | 30 Me Gusta | 10 Retweets
+Corepto
+[Permalink](https://twitter.com/fernandeznorona/status/1557059325847298048) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-08-2022 a las 19:01:57
+**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 09:40:27
 *****
-Se acaba de voltear una camioneta en el kilómetro 25 México Cuernavaca
-[Permalink](https://twitter.com/fernandeznorona/status/1556838161564803074) | 100 Me Gusta | 26 Retweets
+Inexacto. Sólo doné la mitad durante la LXI Legislatura. Ahora el salario es de la mitad de lo que ganaba en 2009.
+[Permalink](https://twitter.com/fernandeznorona/status/1557059244087824391) | 12 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-08-2022 a las 17:48:49
+**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 09:38:52
 *****
-9452 en Facebook y, 5994 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1556819759341215745) | 64 Me Gusta | 11 Retweets
+Aunque ese documento debe ser más falso que el #tomandanteborolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1557058845167558658) | 12 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-08-2022 a las 16:36:40
+**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 09:37:15
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1556801601435828225) | 56 Me Gusta | 5 Retweets
+Guanajuato siempre en la avanzada. Por otra parte, esos estudiantes deben ser superdotados para poner en riesgo la cañería.
+[Permalink](https://twitter.com/fernandeznorona/status/1557058438571741184) | 9 Me Gusta | 0 Retweets

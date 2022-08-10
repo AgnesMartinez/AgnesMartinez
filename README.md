@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 15:12:56
+**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 19:45:18
 *****
-Ya voy a iniciar la video charla.
-[Permalink](https://twitter.com/fernandeznorona/status/1557142918703583234) | 73 Me Gusta | 18 Retweets
+¡Ay Dieguito en la luna, cada día eres más brilloso, no confundir con brillante. @diegoluna_.
+[Permalink](https://twitter.com/fernandeznorona/status/1557211462053122048) | 90 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 14:54:09
+**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 19:43:14
 *****
-¡En Hidalgo!
-[Permalink](https://twitter.com/fernandeznorona/status/1557138188438839297) | 105 Me Gusta | 54 Retweets
+A los pro Yanquis: en Estados Unidos ya no se usa el cubrebocas. A los que se niegan a pensar: en Colombia ya no se usa cubrebocas. A los cretinos: dice @FerVilchisMx que salvó a la humanidad desde Ecatepec reprimiendo a quien no usaba el cubrebocas.
+[Permalink](https://twitter.com/fernandeznorona/status/1557210940348801027) | 71 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 14:52:53
+**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 19:36:13
 *****
-Sé que es voluntario el uso del cubrebocas y la vacunación en México, pero es un hecho que se ha convertido en una exigencia, impuesto incluso en muchos casos, por gente que ni siquiera son autoridad sanitaria. @HLGatell.
-[Permalink](https://twitter.com/fernandeznorona/status/1557137872649609216) | 53 Me Gusta | 17 Retweets
+RT @RaulOjedaZ52: Me lo envía un amigo con el siguiente comentario. “ En Jalpa, Tabasco valen 30 varos” 😂
+[Permalink](https://twitter.com/fernandeznorona/status/1557209175419232256) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 14:52:53
+**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 18:03:16
 *****
-Con toda consideración ya es hora de determinar el retiro de la imposición del cubrebocas en México y de la exigencia ilegal del cuadro de vacunación. Como ejemplo: la @UNAM_MX exige A la comunidad universitaria cubrebocas y cuadro completo de vacunación para asistir a clases.
-[Permalink](https://twitter.com/fernandeznorona/status/1557137871143936009) | 61 Me Gusta | 25 Retweets
+RT @AlbertoAnayaGt: Desde el @PTnacionalMX reconocemos la solidaridad inmediata del @GobiernoMX con Cuba.
+ 
+En las circunstancias más difíc…
+[Permalink](https://twitter.com/fernandeznorona/status/1557185782678421504) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 14:47:49
+**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 17:58:18
 *****
-Muchas felicidades, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1557136597623111683) | 11 Me Gusta | 0 Retweets
+RT @reyes_dad: Las y los diputados del Grupo Parlamentario del PT nos encontramos reunidos con nuestra dirigencia: Dip. Fed. @ReginaldoSF_P…
+[Permalink](https://twitter.com/fernandeznorona/status/1557184534470443009) | 0 Me Gusta | 9 Retweets

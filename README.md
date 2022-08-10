@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 19:45:18
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 10:04:50
 *****
-¡Ay Dieguito en la luna, cada día eres más brilloso, no confundir con brillante. @diegoluna_.
-[Permalink](https://twitter.com/fernandeznorona/status/1557211462053122048) | 131 Me Gusta | 30 Retweets
+RT @vifex: Buenos días!!! Se feliz en lo qué haces, marca la diferencia!! #FelizMiercoles
+[Permalink](https://twitter.com/fernandeznorona/status/1557427769717448706) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 19:43:14
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 09:58:14
 *****
-A los pro Yanquis: en Estados Unidos ya no se usa el cubrebocas. A los que se niegan a pensar: en Colombia ya no se usa cubrebocas. A los cretinos: dice @FerVilchisMx que salvó a la humanidad desde Ecatepec reprimiendo a quien no usaba el cubrebocas.
-[Permalink](https://twitter.com/fernandeznorona/status/1557210940348801027) | 122 Me Gusta | 32 Retweets
+Gerardo Fernández Noroña: Quiero profundizar la 4T y recuperar todo lo que es del pueblo (Entrevista) - El Sol de México | Noticias, Deportes, Gossip, Columnas.
+[Permalink](https://twitter.com/fernandeznorona/status/1557426109591044096) | 13 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 19:36:13
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 09:26:48
 *****
-RT @RaulOjedaZ52: Me lo envía un amigo con el siguiente comentario. “ En Jalpa, Tabasco valen 30 varos” 😂
-[Permalink](https://twitter.com/fernandeznorona/status/1557209175419232256) | 0 Me Gusta | 16 Retweets
+Compañero y amigo, te agradezco la información, pero comedidamente mandes observación al punto señalado. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1557418198550675457) | 12 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 18:03:16
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 09:24:33
 *****
-RT @AlbertoAnayaGt: Desde el @PTnacionalMX reconocemos la solidaridad inmediata del @GobiernoMX con Cuba.
- 
-En las circunstancias más difíc…
-[Permalink](https://twitter.com/fernandeznorona/status/1557185782678421504) | 0 Me Gusta | 10 Retweets
+Muchas gracias, abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1557417629803053056) | 40 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-08-2022 a las 17:58:18
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 09:24:18
 *****
-RT @reyes_dad: Las y los diputados del Grupo Parlamentario del PT nos encontramos reunidos con nuestra dirigencia: Dip. Fed. @ReginaldoSF_P…
-[Permalink](https://twitter.com/fernandeznorona/status/1557184534470443009) | 0 Me Gusta | 10 Retweets
+RT @naocrochet: Buen día, ya va tomando forma Noroña, como lo ven se parece?. #noroña #noroñamigurumi #fernandeznoroña
+[Permalink](https://twitter.com/fernandeznorona/status/1557417569770000386) | 0 Me Gusta | 12 Retweets

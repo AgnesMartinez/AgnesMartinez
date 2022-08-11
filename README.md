@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 04:18:02
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 09:06:06
 *****
-RT @elapagondedic: Me sorprende cómo se le dio muy poca importancia en la prensa y el comentario digital a la conferencia donde @Claudiashe…
-[Permalink](https://twitter.com/fernandeznorona/status/1557702880760664064) | 0 Me Gusta | 100 Retweets
+Miren el regalo que me dio mi sobrina María, la hija de Sor Juana.
+[Permalink](https://twitter.com/fernandeznorona/status/1557775376729772033) | 39 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 04:15:45
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 09:05:40
 *****
-Cada vez más delirantes los pseudo analistas de la derecha.
-[Permalink](https://twitter.com/fernandeznorona/status/1557702308796014593) | 3 Me Gusta | 2 Retweets
+Miren el regalo que me hizo mi sobrina María, la hija de Sor Juana.
+[Permalink](https://twitter.com/fernandeznorona/status/1557775268697104386) | 76 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 04:08:53
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 07:00:01
 *****
-Las elegancias de la sala VIP.
-[Permalink](https://twitter.com/fernandeznorona/status/1557700580482711552) | 9 Me Gusta | 1 Retweets
+Lo terminé. Bien a secas, para pasar el rato.
+[Permalink](https://twitter.com/fernandeznorona/status/1557743647952883713) | 31 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 04:06:44
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 06:53:00
 *****
-Me encontré a @HLGatell en el aeropuerto. Siempre es un gusto saludarlo.
-[Permalink](https://twitter.com/fernandeznorona/status/1557700040168275970) | 29 Me Gusta | 2 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1557741882163499008) | 65 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 03:57:47
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 06:51:01
 *****
-Ya en el aeropuerto para salir a Monterrey.
-[Permalink](https://twitter.com/fernandeznorona/status/1557697784203149312) | 28 Me Gusta | 2 Retweets
+RT @LPOmx: #Mañanera | AMLO advierte que están intensificando trabajos para concluir el Tren Maya: "No nos detendrán"
+
+
+Negó ejercer presión…
+[Permalink](https://twitter.com/fernandeznorona/status/1557741381988208640) | 0 Me Gusta | 13 Retweets

@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 16:19:40
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 19:29:56
 *****
-Me iré mañana muy temprano.
-[Permalink](https://twitter.com/fernandeznorona/status/1557522099069140992) | 22 Me Gusta | 3 Retweets
+RT @mariollergo: Es insostenible e inmoral que @alitomorenoc continúe al frente de la Comisión de Gobernación y Población de la @Mx_Diputad…
+[Permalink](https://twitter.com/fernandeznorona/status/1557569983105773571) | 0 Me Gusta | 162 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 16:19:30
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 19:29:44
 *****
-La chingadera es que ya perdí el vuelo a Monterrey.
-[Permalink](https://twitter.com/fernandeznorona/status/1557522058623451136) | 24 Me Gusta | 3 Retweets
+@HUGOSV2 Zas
+[Permalink](https://twitter.com/fernandeznorona/status/1557569931704537088) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 16:18:26
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 19:01:53
 *****
-A propuesta de su Charro Negro, acabamos de destituir de la presidencia de la Comisión de Gobernación a @alitomorenoc.
-[Permalink](https://twitter.com/fernandeznorona/status/1557521790540324867) | 299 Me Gusta | 82 Retweets
+¡Qué fuerte! Hicimos bien en destituirlo la tarde de hoy de la presidencia de la Comisión de Gobernación de @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1557562923907792896) | 357 Me Gusta | 130 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 15:20:42
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 18:58:24
 *****
-RT @LaydaSansores: De acuerdo a la orden emitida por el juez Décimo Sexto de Distrito en Materia Administrativa de la Ciudad de México, Gab…
-[Permalink](https://twitter.com/fernandeznorona/status/1557507259894218757) | 0 Me Gusta | 2,605 Retweets
+RT @NachoMierV: La mayoría de integrantes de la Comisión de Gobernación se pronunciaron por sustituir a @alitomorenoc como presidente de es…
+[Permalink](https://twitter.com/fernandeznorona/status/1557562045490495488) | 0 Me Gusta | 106 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 13:30:53
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 18:58:00
 *****
-Jóvenes y jóvenas ilustres, la video charla será hasta en la noche desde Monterrey, porque voy a una reunión en @Mx_Diputados, salgo del Senado rumbo para la Cámara. Y luego dicen que no trabajo.
-[Permalink](https://twitter.com/fernandeznorona/status/1557479621590978565) | 166 Me Gusta | 40 Retweets
+RT @JulietaRamirezP: Presidí la Comisión de Gobernación debido a la AUSENCIA de Alito Moreno (@alitomorenoc) a la sesión del día de hoy.
+
+
+E…
+[Permalink](https://twitter.com/fernandeznorona/status/1557561943585603584) | 0 Me Gusta | 1,383 Retweets

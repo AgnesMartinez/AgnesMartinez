@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 10:04:50
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 16:19:40
 *****
-RT @vifex: Buenos días!!! Se feliz en lo qué haces, marca la diferencia!! #FelizMiercoles
-[Permalink](https://twitter.com/fernandeznorona/status/1557427769717448706) | 0 Me Gusta | 5 Retweets
+Me iré mañana muy temprano.
+[Permalink](https://twitter.com/fernandeznorona/status/1557522099069140992) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 09:58:14
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 16:19:30
 *****
-Gerardo Fernández Noroña: Quiero profundizar la 4T y recuperar todo lo que es del pueblo (Entrevista) - El Sol de México | Noticias, Deportes, Gossip, Columnas.
-[Permalink](https://twitter.com/fernandeznorona/status/1557426109591044096) | 13 Me Gusta | 3 Retweets
+La chingadera es que ya perdí el vuelo a Monterrey.
+[Permalink](https://twitter.com/fernandeznorona/status/1557522058623451136) | 24 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 09:26:48
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 16:18:26
 *****
-Compañero y amigo, te agradezco la información, pero comedidamente mandes observación al punto señalado. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1557418198550675457) | 12 Me Gusta | 3 Retweets
+A propuesta de su Charro Negro, acabamos de destituir de la presidencia de la Comisión de Gobernación a @alitomorenoc.
+[Permalink](https://twitter.com/fernandeznorona/status/1557521790540324867) | 299 Me Gusta | 82 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 09:24:33
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 15:20:42
 *****
-Muchas gracias, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1557417629803053056) | 40 Me Gusta | 7 Retweets
+RT @LaydaSansores: De acuerdo a la orden emitida por el juez Décimo Sexto de Distrito en Materia Administrativa de la Ciudad de México, Gab…
+[Permalink](https://twitter.com/fernandeznorona/status/1557507259894218757) | 0 Me Gusta | 2,605 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 09:24:18
+**Fernández Noroña** (**@fernandeznorona**) • 10-08-2022 a las 13:30:53
 *****
-RT @naocrochet: Buen día, ya va tomando forma Noroña, como lo ven se parece?. #noroña #noroñamigurumi #fernandeznoroña
-[Permalink](https://twitter.com/fernandeznorona/status/1557417569770000386) | 0 Me Gusta | 12 Retweets
+Jóvenes y jóvenas ilustres, la video charla será hasta en la noche desde Monterrey, porque voy a una reunión en @Mx_Diputados, salgo del Senado rumbo para la Cámara. Y luego dicen que no trabajo.
+[Permalink](https://twitter.com/fernandeznorona/status/1557479621590978565) | 166 Me Gusta | 40 Retweets

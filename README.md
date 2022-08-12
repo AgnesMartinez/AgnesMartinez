@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 19:58:02
+**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 10:09:26
 *****
-RT @buitengebieden: Final scene of the Titanic..
-[Permalink](https://twitter.com/fernandeznorona/status/1557939441699782656) | 0 Me Gusta | 46,355 Retweets
+Vean que detalle.
+[Permalink](https://twitter.com/fernandeznorona/status/1558153704850833410) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 19:55:50
+**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 08:07:34
 *****
-Jajajajejejejijijijojojojujuju, ya sé qué pasó, ⁦@alitomorenoc⁩ pensó que estaba en el ⁦@PRI_Nacional⁩ y no en la ⁦@Mx_Diputados⁩. Así de perdido anda.
-[Permalink](https://twitter.com/fernandeznorona/status/1557938886344572928) | 348 Me Gusta | 97 Retweets
+Ma. Lina Margarita Martínez Serna, alcaldesa de Vallecillo, NL.
+[Permalink](https://twitter.com/fernandeznorona/status/1558123034837491715) | 24 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 19:49:11
+**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 08:01:32
 *****
-RT @rafitarg: Bienvenido a Monterrey  @fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1557937215652741120) | 0 Me Gusta | 35 Retweets
+Vallecillo, Nuevo León.
+[Permalink](https://twitter.com/fernandeznorona/status/1558121517703110657) | 64 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 19:45:20
+**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 04:41:47
 *****
-Ya fue destituido y no tiene facultades para tomar esa decisión. Imagínate, cualquier diputado que te estorbara en una comisión, que pudiera destituirlo el presidente de la misma, sería el colmo del autoritarismo.
-[Permalink](https://twitter.com/fernandeznorona/status/1557936246646865921) | 85 Me Gusta | 25 Retweets
+RT @yarid_2: Si hubiera sabido a dónde iba, probablemente ni lo hubiera hecho...pero ya estaba ahí y....fue como ir a la loma o más lejos,…
+[Permalink](https://twitter.com/fernandeznorona/status/1558071246545469441) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 19:22:30
+**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 04:40:42
 *****
-Apenas llegando al hotel, intensa jornada la de hoy en Monterrey. Estupenda reunión en el Sindicato de Telefonistas.
-[Permalink](https://twitter.com/fernandeznorona/status/1557930499187810306) | 295 Me Gusta | 47 Retweets
+RT @Mike28dev: ¿En un restaurante voy a comer como porqué tengo que a fuerza ponerme el cubrebocas?
+[Permalink](https://twitter.com/fernandeznorona/status/1558070974737747968) | 0 Me Gusta | 4 Retweets

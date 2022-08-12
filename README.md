@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 09:06:06
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 16:26:08
 *****
-Miren el regalo que me dio mi sobrina María, la hija de Sor Juana.
-[Permalink](https://twitter.com/fernandeznorona/status/1557775376729772033) | 39 Me Gusta | 10 Retweets
+En Monterrey.
+[Permalink](https://twitter.com/fernandeznorona/status/1557886115708710912) | 37 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 09:05:40
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 16:21:14
 *****
-Miren el regalo que me hizo mi sobrina María, la hija de Sor Juana.
-[Permalink](https://twitter.com/fernandeznorona/status/1557775268697104386) | 76 Me Gusta | 10 Retweets
+12,164 en Facebook y, 5826 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1557884880452694017) | 19 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 07:00:01
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 12:59:30
 *****
-Lo terminé. Bien a secas, para pasar el rato.
-[Permalink](https://twitter.com/fernandeznorona/status/1557743647952883713) | 31 Me Gusta | 2 Retweets
+Ahora resulta que ⁦@alitomorenoc⁩, que ya no preside la Comisión de Gobernación, pretende darme de baja de la misma, cuando no tiene facultades para excluir a ningún diputado de la comisión. Es derecho de cada diputado formar parte de tres comisiones.
+[Permalink](https://twitter.com/fernandeznorona/status/1557834115654848513) | 384 Me Gusta | 134 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 06:53:00
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 12:56:19
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1557741882163499008) | 65 Me Gusta | 11 Retweets
+En Tepotzotlán. Me lo mandó ⁦@rosendomarind⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1557833311212429314) | 145 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 06:51:01
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 12:23:18
 *****
-RT @LPOmx: #Mañanera | AMLO advierte que están intensificando trabajos para concluir el Tren Maya: "No nos detendrán"
-
-
-Negó ejercer presión…
-[Permalink](https://twitter.com/fernandeznorona/status/1557741381988208640) | 0 Me Gusta | 13 Retweets
+Lean ese milagro, a mí nunca me sucedió.
+[Permalink](https://twitter.com/fernandeznorona/status/1557825003357356032) | 59 Me Gusta | 5 Retweets

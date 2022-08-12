@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 16:26:08
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 19:58:02
 *****
-En Monterrey.
-[Permalink](https://twitter.com/fernandeznorona/status/1557886115708710912) | 37 Me Gusta | 10 Retweets
+RT @buitengebieden: Final scene of the Titanic..
+[Permalink](https://twitter.com/fernandeznorona/status/1557939441699782656) | 0 Me Gusta | 30,911 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 16:21:14
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 19:55:50
 *****
-12,164 en Facebook y, 5826 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1557884880452694017) | 19 Me Gusta | 5 Retweets
+Jajajajejejejijijijojojojujuju, ya sé qué pasó, ⁦@alitomorenoc⁩ pensó que estaba en el ⁦@PRI_Nacional⁩ y no en la ⁦@Mx_Diputados⁩. Así de perdido anda.
+[Permalink](https://twitter.com/fernandeznorona/status/1557938886344572928) | 224 Me Gusta | 62 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 12:59:30
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 19:49:11
 *****
-Ahora resulta que ⁦@alitomorenoc⁩, que ya no preside la Comisión de Gobernación, pretende darme de baja de la misma, cuando no tiene facultades para excluir a ningún diputado de la comisión. Es derecho de cada diputado formar parte de tres comisiones.
-[Permalink](https://twitter.com/fernandeznorona/status/1557834115654848513) | 384 Me Gusta | 134 Retweets
+RT @rafitarg: Bienvenido a Monterrey  @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1557937215652741120) | 0 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 12:56:19
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 19:45:20
 *****
-En Tepotzotlán. Me lo mandó ⁦@rosendomarind⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1557833311212429314) | 145 Me Gusta | 32 Retweets
+Ya fue destituido y no tiene facultades para tomar esa decisión. Imagínate, cualquier diputado que te estorbara en una comisión, que pudiera destituirlo el presidente de la misma, sería el colmo del autoritarismo.
+[Permalink](https://twitter.com/fernandeznorona/status/1557936246646865921) | 62 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 12:23:18
+**Fernández Noroña** (**@fernandeznorona**) • 11-08-2022 a las 19:22:30
 *****
-Lean ese milagro, a mí nunca me sucedió.
-[Permalink](https://twitter.com/fernandeznorona/status/1557825003357356032) | 59 Me Gusta | 5 Retweets
+Apenas llegando al hotel, intensa jornada la de hoy en Monterrey. Estupenda reunión en el Sindicato de Telefonistas.
+[Permalink](https://twitter.com/fernandeznorona/status/1557930499187810306) | 220 Me Gusta | 37 Retweets

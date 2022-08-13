@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 16:41:30
+**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 19:58:06
 *****
-Que deje la escuela, jejeje
-[Permalink](https://twitter.com/fernandeznorona/status/1558252368558374917) | 0 Me Gusta | 0 Retweets
+Seré curioso: ¿De quién? Es obvio que ni de nuestro gobierno ni de nuestro movimiento vienen esas supuestas amenazas.
+[Permalink](https://twitter.com/fernandeznorona/status/1558301845323661314) | 51 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 16:07:32
+**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 19:28:13
 *****
-14,025 en Facebook y, 5733 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1558243822848598018) | 36 Me Gusta | 9 Retweets
+Apenas saliendo del aeropuerto.
+[Permalink](https://twitter.com/fernandeznorona/status/1558294323887841280) | 71 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 13:06:39
+**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 18:57:56
 *****
-Es que vine. El güey de @samuel_garcias que no me invita más tiempo. Tengo un pacto con Tlaloc.
-[Permalink](https://twitter.com/fernandeznorona/status/1558198301731590144) | 104 Me Gusta | 19 Retweets
+RT @Marilu86053: @MSEQUEYRO @erickramonh ¿Entonces estos tan bien son misóginos? ¡Qué barbara!
+Es usted una mujer inteligente, demuestre qu…
+[Permalink](https://twitter.com/fernandeznorona/status/1558286703231729665) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 12:12:58
+**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 18:50:59
 *****
-Muchas felicidades a mi amiga y compañera de lucha @tatclouthier por su cumpleaños. Aquí ando en su tierra adoptiva, en Monterrey. Por cierto, qué bonito pueblo es Vallecillo.
-[Permalink](https://twitter.com/fernandeznorona/status/1558184791534600193) | 304 Me Gusta | 47 Retweets
+Xacto
+[Permalink](https://twitter.com/fernandeznorona/status/1558284955708424193) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 11:24:49
+**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 18:47:57
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1558172672252473344) | 58 Me Gusta | 9 Retweets
+Mi rancho.
+[Permalink](https://twitter.com/fernandeznorona/status/1558284191258771456) | 54 Me Gusta | 2 Retweets

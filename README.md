@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-08-2022 a las 06:40:54
+**Fernández Noroña** (**@fernandeznorona**) • 13-08-2022 a las 15:45:19
 *****
-Ahí te hablan @MSEQUEYRO.
-[Permalink](https://twitter.com/fernandeznorona/status/1558463611978522624) | 48 Me Gusta | 13 Retweets
+Me tuve que venir caminando en Lázaro Cárdenas. La calle de Perú es una pesadilla. Pero siguen dejando sólo un carril, una necedad de Mancera que perdura.
+[Permalink](https://twitter.com/fernandeznorona/status/1558600618218033153) | 39 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-08-2022 a las 06:35:06
+**Fernández Noroña** (**@fernandeznorona**) • 13-08-2022 a las 14:49:17
 *****
-RT @jgnaredo: Siempre nos preguntábamos: ¿hasta dónde llegarían ciertos sectores de la oposición para desestabilizar al gobierno de AMLO?…
-[Permalink](https://twitter.com/fernandeznorona/status/1558462153790787586) | 0 Me Gusta | 1,117 Retweets
+Paciencia, transmitiré desde mi casa. Llegaré 6: 40.
+[Permalink](https://twitter.com/fernandeznorona/status/1558586518838689792) | 82 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-08-2022 a las 06:34:55
+**Fernández Noroña** (**@fernandeznorona**) • 13-08-2022 a las 13:18:00
 *****
-RT @Nubia_SCG: Un clarísimo intento de desestabilizar el país, la violencia que están desatando.
+Voy camino a Atizapán y el tráfico está infame.
+[Permalink](https://twitter.com/fernandeznorona/status/1558563543137632261) | 127 Me Gusta | 18 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 13-08-2022 a las 11:34:14
+*****
+RT @JulietaRamirezP: Todo mi apoyo al Diputado @fernandeznorona 
 
 
-«La cuarta etapa pasa por ejecutar operac…
-[Permalink](https://twitter.com/fernandeznorona/status/1558462106705461248) | 0 Me Gusta | 37 Retweets
+Lo que pretende hacer Alito se llama patadas de ahogado. Ya no se humille…
+[Permalink](https://twitter.com/fernandeznorona/status/1558537433020596225) | 0 Me Gusta | 166 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-08-2022 a las 06:34:49
+**Fernández Noroña** (**@fernandeznorona**) • 13-08-2022 a las 11:34:04
 *****
-Cretino, ¿con cuánto tiempo de anticipación se debe hacer una reforma electoral? Como sé que lo ignoras, te lo digo: un año antes.
-[Permalink](https://twitter.com/fernandeznorona/status/1558462079035736064) | 168 Me Gusta | 50 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-08-2022 a las 19:58:06
-*****
-Seré curioso: ¿De quién? Es obvio que ni de nuestro gobierno ni de nuestro movimiento vienen esas supuestas amenazas.
-[Permalink](https://twitter.com/fernandeznorona/status/1558301845323661314) | 102 Me Gusta | 25 Retweets
+Me extraña que no te vayas a vivir a Phoenix. Allá sólo tendrás que cuidarte de ir a los supermercados. Bueno y del racismo, no creo que te consideren anglosajón.
+[Permalink](https://twitter.com/fernandeznorona/status/1558537389915734021) | 104 Me Gusta | 22 Retweets

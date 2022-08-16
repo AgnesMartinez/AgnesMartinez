@@ -1,28 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-08-2022 a las 22:11:47
+**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 16:31:13
 *****
-Apenas llegando a Pueblo quieto. Estuvo pesada la jornada.
-[Permalink](https://twitter.com/fernandeznorona/status/1559060263122485251) | 161 Me Gusta | 15 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1559336945649598464) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-08-2022 a las 20:08:01
+**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 11:14:50
 *****
-Apenas llegamos al D.F. y voy hasta Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1559029115877048320) | 205 Me Gusta | 21 Retweets
+RT @Ilianalimon: Si me pudieran ayudar a compartir el tuit a Didi, se trata de mi hermana q olvidó el cel en una unidad en Mérida, s ver si…
+[Permalink](https://twitter.com/fernandeznorona/status/1559257325478764545) | 0 Me Gusta | 101 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-08-2022 a las 16:07:49
+**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 11:13:48
 *****
-5549 en Facebook y, 4155 de YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1558968667890655233) | 151 Me Gusta | 19 Retweets
+Casi me mató hoy en la montaña. Bueno, exagero, solo me desbarranqué y me puse un mega madrazo.
+[Permalink](https://twitter.com/fernandeznorona/status/1559257065121632256) | 623 Me Gusta | 50 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-08-2022 a las 13:17:23
+**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 10:31:24
 *****
-Huauchinango, Pue.
-[Permalink](https://twitter.com/fernandeznorona/status/1558925777135177733) | 291 Me Gusta | 53 Retweets
+RT @LOVREGA: Los trenes suelen ser amigables con el medio ambiente. En Europa cruzan bosques y nadie acusa a sus gobiernos de ecocidas. 
+
+
+P…
+[Permalink](https://twitter.com/fernandeznorona/status/1559246392396226561) | 0 Me Gusta | 922 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-08-2022 a las 11:52:22
+**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 10:29:48
 *****
-RT @sofyvaldivia: 📺Ⓜ️ #BUZÓNCIUDADANO 
-No es posible que por cinco memelas nos cobrarán 1,150 pesos.   ¿Dónde está @Profeco?
-📌Nos ocurrió e…
-[Permalink](https://twitter.com/fernandeznorona/status/1558904382074363907) | 0 Me Gusta | 947 Retweets
+¿Cuál consulta popular?
+[Permalink](https://twitter.com/fernandeznorona/status/1559245993287327746) | 55 Me Gusta | 7 Retweets

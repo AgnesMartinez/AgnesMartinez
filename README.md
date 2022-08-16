@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 16:31:13
+**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 19:45:16
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1559336945649598464) | 8 Me Gusta | 1 Retweets
+RT @HNoticiasMX: La familia de Pepe Le Pew, paseando con suma alegría.
+[Permalink](https://twitter.com/fernandeznorona/status/1559385778161074176) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 11:14:50
+**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 19:42:46
 *****
-RT @Ilianalimon: Si me pudieran ayudar a compartir el tuit a Didi, se trata de mi hermana q olvidó el cel en una unidad en Mérida, s ver si…
-[Permalink](https://twitter.com/fernandeznorona/status/1559257325478764545) | 0 Me Gusta | 101 Retweets
+Pues mañana no podré ir a la montaña pues debo estar a las cuatro en el @aifaaero.
+[Permalink](https://twitter.com/fernandeznorona/status/1559385149250355202) | 90 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 11:13:48
+**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 18:26:35
 *****
-Casi me mató hoy en la montaña. Bueno, exagero, solo me desbarranqué y me puse un mega madrazo.
-[Permalink](https://twitter.com/fernandeznorona/status/1559257065121632256) | 623 Me Gusta | 50 Retweets
+RT @TheFigen: At least he tried!💓🤣🤣
+[Permalink](https://twitter.com/fernandeznorona/status/1559365979775410177) | 0 Me Gusta | 511 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 10:31:24
+**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 18:24:12
 *****
-RT @LOVREGA: Los trenes suelen ser amigables con el medio ambiente. En Europa cruzan bosques y nadie acusa a sus gobiernos de ecocidas. 
-
-
-P…
-[Permalink](https://twitter.com/fernandeznorona/status/1559246392396226561) | 0 Me Gusta | 922 Retweets
+RT @JesusRCuevas: A partir de este día, el @aifaaero pasa de 12 a 46 vuelos diarios, con destinos a La Paz, Huatulco, Mexicali, Puerto Esco…
+[Permalink](https://twitter.com/fernandeznorona/status/1559365379008471040) | 0 Me Gusta | 1,042 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 10:29:48
+**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 18:23:48
 *****
-¿Cuál consulta popular?
-[Permalink](https://twitter.com/fernandeznorona/status/1559245993287327746) | 55 Me Gusta | 7 Retweets
+Muy buena. Ya no me acordaba.
+[Permalink](https://twitter.com/fernandeznorona/status/1559365277959262215) | 75 Me Gusta | 22 Retweets

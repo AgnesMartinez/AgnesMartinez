@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-08-2022 a las 10:12:16
+**Fernández Noroña** (**@fernandeznorona**) • 16-08-2022 a las 14:17:27
 *****
-Una hora 40 desde Tepoztlán al @aifaaero
-[Permalink](https://twitter.com/fernandeznorona/status/1559603966899589121) | 7 Me Gusta | 1 Retweets
+RT @PonchoGutz: Gatell habla del lucro farmacéutico y del deber estatal de garantizar la salud: "Lo deseable es que los consultorios de las…
+[Permalink](https://twitter.com/fernandeznorona/status/1559665669234360323) | 0 Me Gusta | 272 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 19:45:16
+**Fernández Noroña** (**@fernandeznorona**) • 16-08-2022 a las 14:16:30
 *****
-RT @HNoticiasMX: La familia de Pepe Le Pew, paseando con suma alegría.
-[Permalink](https://twitter.com/fernandeznorona/status/1559385778161074176) | 0 Me Gusta | 26 Retweets
+RT @snmaiznohaypai: Fiscal va a la cámara de diputados por Vandalito.
+En shock con los reporteros CHAYOTEROS, @alitomorenoc los difama los…
+[Permalink](https://twitter.com/fernandeznorona/status/1559665429404160001) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 19:42:46
+**Fernández Noroña** (**@fernandeznorona**) • 16-08-2022 a las 14:16:15
 *****
-Pues mañana no podré ir a la montaña pues debo estar a las cuatro en el @aifaaero.
-[Permalink](https://twitter.com/fernandeznorona/status/1559385149250355202) | 187 Me Gusta | 24 Retweets
+@Ceciliaaaoooo Súper.
+[Permalink](https://twitter.com/fernandeznorona/status/1559665366204284929) | 14 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 18:26:35
+**Fernández Noroña** (**@fernandeznorona**) • 16-08-2022 a las 14:13:33
 *****
-RT @TheFigen: At least he tried!💓🤣🤣
-[Permalink](https://twitter.com/fernandeznorona/status/1559365979775410177) | 0 Me Gusta | 1,442 Retweets
+Seguro su casa de decenas de millones de pesos, sus declaraciones y su violencia política de género son culpa de @PartidoMorenaMx. Es un desvergonzado @alitomorenoc.
+[Permalink](https://twitter.com/fernandeznorona/status/1559664689159712769) | 247 Me Gusta | 99 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-08-2022 a las 18:24:12
+**Fernández Noroña** (**@fernandeznorona**) • 16-08-2022 a las 14:12:38
 *****
-RT @JesusRCuevas: A partir de este día, el @aifaaero pasa de 12 a 46 vuelos diarios, con destinos a La Paz, Huatulco, Mexicali, Puerto Esco…
-[Permalink](https://twitter.com/fernandeznorona/status/1559365379008471040) | 0 Me Gusta | 1,260 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1559664456271122432) | 85 Me Gusta | 20 Retweets

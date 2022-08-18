@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 09:07:36
+**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 16:10:48
 *****
-Con Michu, en la Asamblea Nacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1559950080484032512) | 88 Me Gusta | 11 Retweets
+Con el personal de la embajada de México en Venezuela.
+[Permalink](https://twitter.com/fernandeznorona/status/1560056584860045314) | 61 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 09:03:37
+**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 15:22:44
 *****
-Extraordinaria reunión con el presidente de la Comisión de Relaciones Exteriores de la Asamblea Nacional de Venezuela, Timoteo Zambrano, ya les compartiré fotografías.
-[Permalink](https://twitter.com/fernandeznorona/status/1559949079513370625) | 74 Me Gusta | 8 Retweets
+Caray, me acaban de informar que murió mi tío Alfonso Pérez Hernández en Zamora, Michoacán. Mi solidaridad para mi tía María Fernández Álvarez, para sus hijos y para toda la familia.
+[Permalink](https://twitter.com/fernandeznorona/status/1560044488747352066) | 148 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 05:49:47
+**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 15:21:05
 *****
-Ayer llegué a la una de la mañana al hotel en Caracas, ya no quise hacer video charla. Hoy la haré sin falta. A las siete de la noche tiempo de México. “El desafuero de @alitomorenoc”, será el tema.
-[Permalink](https://twitter.com/fernandeznorona/status/1559900298725965824) | 324 Me Gusta | 59 Retweets
+Aquí las dos delegaciones en la foto oficial.
+[Permalink](https://twitter.com/fernandeznorona/status/1560044072269742080) | 26 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-08-2022 a las 14:17:27
+**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 15:20:04
 *****
-RT @PonchoGutz: Gatell habla del lucro farmacéutico y del deber estatal de garantizar la salud: "Lo deseable es que los consultorios de las…
-[Permalink](https://twitter.com/fernandeznorona/status/1559665669234360323) | 0 Me Gusta | 437 Retweets
+Aquí no aparezco con los ojos cerrados.
+[Permalink](https://twitter.com/fernandeznorona/status/1560043817151102976) | 36 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-08-2022 a las 14:16:30
+**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 15:19:08
 *****
-RT @snmaiznohaypai: Fiscal va a la cámara de diputados por Vandalito.
-En shock con los reporteros CHAYOTEROS, @alitomorenoc los difama los…
-[Permalink](https://twitter.com/fernandeznorona/status/1559665429404160001) | 0 Me Gusta | 25 Retweets
+Con el canciller venezolano Farías.
+[Permalink](https://twitter.com/fernandeznorona/status/1560043582232346629) | 37 Me Gusta | 7 Retweets

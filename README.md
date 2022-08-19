@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-08-2022 a las 08:04:53
+**Fernández Noroña** (**@fernandeznorona**) • 18-08-2022 a las 16:42:11
 *****
-RT @epigmenioibarra: ¿Qué hacer con el ejército?   
-Transformarlo! 
-Este país, castigado décadas por la corrupción, la impunidad,la violenc…
-[Permalink](https://twitter.com/fernandeznorona/status/1560296684701339648) | 0 Me Gusta | 1,946 Retweets
+Aquí con la vicepresidente ⁦@delcyrodriguezv⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1560426867387240450) | 24 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-08-2022 a las 06:05:05
+**Fernández Noroña** (**@fernandeznorona**) • 18-08-2022 a las 16:41:42
 *****
-A punto de iniciar reunión con el Consejo Nacional Electoral de la República Bolivariana de Venezuela.
-[Permalink](https://twitter.com/fernandeznorona/status/1560266537529122821) | 191 Me Gusta | 32 Retweets
+Por eso no había hecho la video charla de hoy, pero ya voy rumbo al hotel. Aquí con el presidente ⁦@NicolasMaduro⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1560426747614691329) | 112 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 21:30:17
+**Fernández Noroña** (**@fernandeznorona**) • 18-08-2022 a las 14:21:24
 *****
-Está mejor esta foto con Diosdado Cabello.
-[Permalink](https://twitter.com/fernandeznorona/status/1560136985204985857) | 124 Me Gusta | 21 Retweets
+Hoy en la Asamblea Nacional  de la República Bolivariana de Venezuela.
+[Permalink](https://twitter.com/fernandeznorona/status/1560391439024099328) | 159 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 21:30:10
+**Fernández Noroña** (**@fernandeznorona**) • 18-08-2022 a las 14:16:19
 *****
-Pero ahí estoy con Diosdado Cabello.
-[Permalink](https://twitter.com/fernandeznorona/status/1560136954615930881) | 211 Me Gusta | 35 Retweets
+El gran Lenin.
+[Permalink](https://twitter.com/fernandeznorona/status/1560390161036443649) | 59 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-08-2022 a las 17:11:34
+**Fernández Noroña** (**@fernandeznorona**) • 18-08-2022 a las 14:14:26
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1560071875996356610) | 112 Me Gusta | 21 Retweets
+Yo creo que la transmisión de hoy será hacia las nueve de la noche hora de México.
+[Permalink](https://twitter.com/fernandeznorona/status/1560389685599510530) | 116 Me Gusta | 12 Retweets

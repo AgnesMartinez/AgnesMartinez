@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-08-2022 a las 18:28:22
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 01:54:34
 *****
-A dormir, mañana debo salir 3: 45 de la madrugada rumbo al aeropuerto.
-[Permalink](https://twitter.com/fernandeznorona/status/1560815977289359360) | 233 Me Gusta | 23 Retweets
+RT @ArrazolaVecina: Antier 17 de agosto, EN UN SOLO DÍA, hubo 81 balaceras en 30 estados de los EUA con 25 fallecidos y 73 heridos. Nadie s…
+[Permalink](https://twitter.com/fernandeznorona/status/1560928268802572289) | 0 Me Gusta | 676 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-08-2022 a las 17:40:56
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 01:39:58
 *****
-Buena entrevista en @teleSURtv
-[Permalink](https://twitter.com/fernandeznorona/status/1560804041852157952) | 70 Me Gusta | 20 Retweets
+Denuesta. Denostar es verbo irregular.
+[Permalink](https://twitter.com/fernandeznorona/status/1560924595015847936) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-08-2022 a las 17:40:33
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 01:22:00
 *****
-Cambios en las “corcholatas de AMLO”: Noroña desbancó a Monreal rumbo al 2024 - Infobae. Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1560803946473611264) | 94 Me Gusta | 31 Retweets
+Qué horror son estos vuelos. 6:22 AM es la salida rumbo a Panamá.
+[Permalink](https://twitter.com/fernandeznorona/status/1560920070733406208) | 58 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-08-2022 a las 14:26:00
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 01:21:05
 *****
-Ya estoy viendo y oyendo a la oposición hablando de persecución política contra Murillo Karam.
-[Permalink](https://twitter.com/fernandeznorona/status/1560754985247412225) | 1,012 Me Gusta | 200 Retweets
+RT @PrimeraVoz_Mx: Este perrito lleva varios días así. Atado en la azotea a la intemperie sin que nadie ayude. Tiene que aguantar lluvia, g…
+[Permalink](https://twitter.com/fernandeznorona/status/1560919842483585024) | 0 Me Gusta | 2,066 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-08-2022 a las 14:24:42
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 01:20:00
 *****
-Cierto que @EPN y Cienfuegos deben ser procesados también. Pero como dijo Jack el destripador, vamos por partes.
-[Permalink](https://twitter.com/fernandeznorona/status/1560754656556584960) | 1,134 Me Gusta | 250 Retweets
+RT @Marianamtgz: Tengo dos vacantes para trabajar en colegio en zona norte de la cdmx, bilingüe, con carrera y título a fin a la educación.…
+[Permalink](https://twitter.com/fernandeznorona/status/1560919568465502208) | 0 Me Gusta | 31 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 01:54:34
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 09:26:38
 *****
-RT @ArrazolaVecina: Antier 17 de agosto, EN UN SOLO DÍA, hubo 81 balaceras en 30 estados de los EUA con 25 fallecidos y 73 heridos. Nadie s…
-[Permalink](https://twitter.com/fernandeznorona/status/1560928268802572289) | 0 Me Gusta | 676 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1561042034038902785) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 01:39:58
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 09:25:44
 *****
-Denuesta. Denostar es verbo irregular.
-[Permalink](https://twitter.com/fernandeznorona/status/1560924595015847936) | 7 Me Gusta | 1 Retweets
+Acabamos de aterrizar en Cancún.
+[Permalink](https://twitter.com/fernandeznorona/status/1561041806242058244) | 54 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 01:22:00
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 06:07:01
 *****
-Qué horror son estos vuelos. 6:22 AM es la salida rumbo a Panamá.
-[Permalink](https://twitter.com/fernandeznorona/status/1560920070733406208) | 58 Me Gusta | 6 Retweets
+Neutral y vacío no es lo mismo, si no deberían reunirse en tu cabeza hueca @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1560991797911998464) | 66 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 01:21:05
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 06:06:14
 *****
-RT @PrimeraVoz_Mx: Este perrito lleva varios días así. Atado en la azotea a la intemperie sin que nadie ayude. Tiene que aguantar lluvia, g…
-[Permalink](https://twitter.com/fernandeznorona/status/1560919842483585024) | 0 Me Gusta | 2,066 Retweets
+Ya voy a abordar el vuelo rumbo a Cancún desde Panamá. @CopaAirlines. De ahí tomaré otro vuelo al D.F.
+[Permalink](https://twitter.com/fernandeznorona/status/1560991603828875264) | 149 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 01:20:00
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 05:58:03
 *****
-RT @Marianamtgz: Tengo dos vacantes para trabajar en colegio en zona norte de la cdmx, bilingüe, con carrera y título a fin a la educación.…
-[Permalink](https://twitter.com/fernandeznorona/status/1560919568465502208) | 0 Me Gusta | 31 Retweets
+El maromero @ChicChillon.
+[Permalink](https://twitter.com/fernandeznorona/status/1560989541149937669) | 51 Me Gusta | 17 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 16:42:29
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 19:25:30
 *****
-Porque no practicas con el ejemplo y nos hablas de los méritos de tu candidatura. Así la gente tendrá elementos de comparación. Saludos.
-[Permalink](https://twitter.com/fernandeznorona/status/1561151719832158208) | 8 Me Gusta | 3 Retweets
+No me acomodo. Siempre he defendido mis convicciones, tú, acostumbrado a ocultar lo que piensas sigue así. Yo defenderé siempre al hermano Pueblo de Venezuela, su derecho a determinar su camino y siempre defenderé a la patria grande.
+[Permalink](https://twitter.com/fernandeznorona/status/1561192742557999105) | 65 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 16:39:10
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 19:24:06
 *****
-Acabamos de aterrizar en el DF.
-[Permalink](https://twitter.com/fernandeznorona/status/1561150884096221184) | 26 Me Gusta | 6 Retweets
+RT @lasillarota: Diputados se reunieron con Nicolás Maduro, entre ellos @fernandeznorona y la diputada de #Veracruz, @RaquelBonillaHe  http…
+[Permalink](https://twitter.com/fernandeznorona/status/1561192390517555200) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 14:53:14
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 19:23:58
 *****
-No es motivo de alegria, y sin duda, Murillo paga su complicidad en un crimen bárbaro de lesa humanidad, perpetrado por el gobierno al que encubrió y del que formó parte. El procurador era subordinado de @EPN.
-[Permalink](https://twitter.com/fernandeznorona/status/1561124224894439424) | 34 Me Gusta | 12 Retweets
+Naa, no hay ninguna ciudad con 16 municipios. Nos regatean nuestra condición de estado de la República y en protesta sigo diciéndole D.F.
+[Permalink](https://twitter.com/fernandeznorona/status/1561192359248945152) | 29 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 14:49:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 19:23:05
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1561123239207862273) | 12 Me Gusta | 3 Retweets
+18,702 en Facebook y, 7688 YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1561192137307348992) | 29 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 14:48:20
+**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 17:50:03
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1561122991286673408) | 17 Me Gusta | 4 Retweets
+Y si a mi me apoyas, entonces, sugiero abrir con tus comentarios.
+[Permalink](https://twitter.com/fernandeznorona/status/1561168723968499712) | 25 Me Gusta | 6 Retweets

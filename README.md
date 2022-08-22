@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 04:02:50
+**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 09:05:24
 *****
-Salimos 5: 30 de Pueblo quieto rumbo al aeropuerto. La entrada al DF está espantosa. Haré más tiempo al @AICM_mx que al @aifaaero.
-[Permalink](https://twitter.com/fernandeznorona/status/1561685323838545920) | 13 Me Gusta | 2 Retweets
+RT @CitlaHM: @Juan_OrtizMX Tu información no es correcta, estimado Juan. No soy una mujer con ambición económica: como diputada local doné…
+[Permalink](https://twitter.com/fernandeznorona/status/1561761468978266112) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 19:36:24
+**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 09:04:54
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1561557876245778432) | 30 Me Gusta | 4 Retweets
+RT @VikPonce_: Está de terror el Tribunal Electoral y el @INEMexico, censurando la libertad de expresión, actuando como represor y dictador…
+[Permalink](https://twitter.com/fernandeznorona/status/1561761342465490945) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 19:32:08
+**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 09:04:49
 *****
-Quieren comprarle petróleo y gas a la República Bolivariana de Venezuela. Parece que tu amado @jguaido no sirve para nada al respecto. Le regaló CIRGO, pero no puede regalarles el petróleo de Venezuela. Es de su pueblo.
-[Permalink](https://twitter.com/fernandeznorona/status/1561556799890784256) | 185 Me Gusta | 27 Retweets
+Seré curioso: ¿dónde está la misoginia @INEMexico y @TEPJF_informa?
+[Permalink](https://twitter.com/fernandeznorona/status/1561761322072678401) | 17 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 19:32:07
+**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 08:50:36
 *****
-Pues no formamos parte del grupo de amistad con Estados Unidos de @Mx_Diputados, pero si me invitan a una reunión con @POTUS iría con mucho gusto. Por cierto, te recuerdo que el gobierno de Estados Unidos se reunió recientemente con el presidente @NicolasMaduro
-[Permalink](https://twitter.com/fernandeznorona/status/1561556798305607680) | 194 Me Gusta | 40 Retweets
+Obvio que se perfila a ser su candidata.
+[Permalink](https://twitter.com/fernandeznorona/status/1561757741047242752) | 24 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 19:28:40
+**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 08:49:52
 *****
-Ni yo, ni quienes cuestionan de buena fe, lo tachan de criminal. Creo que @OHarfuch tiene un problema en ciernes. Veremos.
-[Permalink](https://twitter.com/fernandeznorona/status/1561555927215505409) | 33 Me Gusta | 3 Retweets
+“ la inteligencia es la capacidad de mantener dos ideas contrarias en la cabeza sin que esta (sic) estalle” Fitzgerald citado por Castany Prado. Por eso no le estalla la cabeza al cabeza hueca de @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1561757559664660483) | 8 Me Gusta | 3 Retweets

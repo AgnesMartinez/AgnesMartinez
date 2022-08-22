@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 19:25:30
+**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 16:43:35
 *****
-No me acomodo. Siempre he defendido mis convicciones, tú, acostumbrado a ocultar lo que piensas sigue así. Yo defenderé siempre al hermano Pueblo de Venezuela, su derecho a determinar su camino y siempre defenderé a la patria grande.
-[Permalink](https://twitter.com/fernandeznorona/status/1561192742557999105) | 111 Me Gusta | 36 Retweets
+Mira, y @Ascension528Hz dándome la lata.
+[Permalink](https://twitter.com/fernandeznorona/status/1561514385721495552) | 8 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 19:24:06
+**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 16:42:31
 *****
-RT @lasillarota: Diputados se reunieron con Nicolás Maduro, entre ellos @fernandeznorona y la diputada de #Veracruz, @RaquelBonillaHe  http…
-[Permalink](https://twitter.com/fernandeznorona/status/1561192390517555200) | 0 Me Gusta | 20 Retweets
+Oigan @INEMexico ¿ese, como lo hacen los paniaguados, no es un acto anticipado de campaña?
+[Permalink](https://twitter.com/fernandeznorona/status/1561514114320572421) | 32 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 19:23:58
+**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 16:41:19
 *****
-Naa, no hay ninguna ciudad con 16 municipios. Nos regatean nuestra condición de estado de la República y en protesta sigo diciéndole D.F.
-[Permalink](https://twitter.com/fernandeznorona/status/1561192359248945152) | 49 Me Gusta | 16 Retweets
+Uh, #AziNoAnlo
+[Permalink](https://twitter.com/fernandeznorona/status/1561513816130822144) | 22 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 19:23:05
+**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 16:40:04
 *****
-18,702 en Facebook y, 7688 YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1561192137307348992) | 47 Me Gusta | 13 Retweets
+RT @GloryOropeza: #Hechosnopalabras
+[Permalink](https://twitter.com/fernandeznorona/status/1561513498441572352) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-08-2022 a las 17:50:03
+**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 16:38:10
 *****
-Y si a mi me apoyas, entonces, sugiero abrir con tus comentarios.
-[Permalink](https://twitter.com/fernandeznorona/status/1561168723968499712) | 41 Me Gusta | 9 Retweets
+Qué buena intervención de ese muchacho.
+[Permalink](https://twitter.com/fernandeznorona/status/1561513020936933378) | 13 Me Gusta | 4 Retweets

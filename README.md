@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 16:43:35
+**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 19:36:24
 *****
-Mira, y @Ascension528Hz dándome la lata.
-[Permalink](https://twitter.com/fernandeznorona/status/1561514385721495552) | 8 Me Gusta | 2 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1561557876245778432) | 24 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 16:42:31
+**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 19:32:08
 *****
-Oigan @INEMexico ¿ese, como lo hacen los paniaguados, no es un acto anticipado de campaña?
-[Permalink](https://twitter.com/fernandeznorona/status/1561514114320572421) | 32 Me Gusta | 20 Retweets
+Quieren comprarle petróleo y gas a la República Bolivariana de Venezuela. Parece que tu amado @jguaido no sirve para nada al respecto. Le regaló CIRGO, pero no puede regalarles el petróleo de Venezuela. Es de su pueblo.
+[Permalink](https://twitter.com/fernandeznorona/status/1561556799890784256) | 147 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 16:41:19
+**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 19:32:07
 *****
-Uh, #AziNoAnlo
-[Permalink](https://twitter.com/fernandeznorona/status/1561513816130822144) | 22 Me Gusta | 10 Retweets
+Pues no formamos parte del grupo de amistad con Estados Unidos de @Mx_Diputados, pero si me invitan a una reunión con @POTUS iría con mucho gusto. Por cierto, te recuerdo que el gobierno de Estados Unidos se reunió recientemente con el presidente @NicolasMaduro
+[Permalink](https://twitter.com/fernandeznorona/status/1561556798305607680) | 150 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 16:40:04
+**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 19:28:40
 *****
-RT @GloryOropeza: #Hechosnopalabras
-[Permalink](https://twitter.com/fernandeznorona/status/1561513498441572352) | 0 Me Gusta | 7 Retweets
+Ni yo, ni quienes cuestionan de buena fe, lo tachan de criminal. Creo que @OHarfuch tiene un problema en ciernes. Veremos.
+[Permalink](https://twitter.com/fernandeznorona/status/1561555927215505409) | 26 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 16:38:10
+**Fernández Noroña** (**@fernandeznorona**) • 21-08-2022 a las 19:26:58
 *****
-Qué buena intervención de ese muchacho.
-[Permalink](https://twitter.com/fernandeznorona/status/1561513020936933378) | 13 Me Gusta | 4 Retweets
+Uh, pues se equivocó @Ascension528Hz con @Clitoryx. A mi me parecía que su pregunta era malintencionada. Al rato saldrá a decir, yo lo apoyaba pero…
+[Permalink](https://twitter.com/fernandeznorona/status/1561555499660845058) | 21 Me Gusta | 5 Retweets

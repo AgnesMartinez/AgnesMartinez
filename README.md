@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 17:06:02
+**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 10:04:40
 *****
-RT @fisgonmonero: La sentencia contra @Erickisback1 es una aberración. Toda mi solidaridad con él y con todos los tuiteros perseguidos inju…
-[Permalink](https://twitter.com/fernandeznorona/status/1561882424027512832) | 0 Me Gusta | 1,597 Retweets
+RT @lajornadaonline: #LaMañanera Luego de un año y tres meses que envió la comunicación al gobierno de #EU, el presidente #AMLO señaló que…
+[Permalink](https://twitter.com/fernandeznorona/status/1562138771415568384) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 16:38:00
+**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 09:47:27
 *****
-RT @JaimeComunidad3: #RT El titular de @DesaEcoPue Alejandro Cañedo P. @AleCanedoP es una de las personalidades que nos desean éxito con nu…
-[Permalink](https://twitter.com/fernandeznorona/status/1561875368226787329) | 0 Me Gusta | 9 Retweets
+Xacto
+[Permalink](https://twitter.com/fernandeznorona/status/1562134436195569664) | 14 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 16:28:55
+**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 09:29:42
 *****
-RT @biologacarmen: Para los que dicen que Noroña No va a llegar, los que dicen que va a "Negociar",  que no tiene oportunidad, etc.,  a eso…
-[Permalink](https://twitter.com/fernandeznorona/status/1561873081714491392) | 0 Me Gusta | 34 Retweets
+Eliminé los mensajes sobre los resolutivos de la @SCJN, pues la información proporcionada por mi equipo era totalmente errónea. De cualquier manera reitero, desde que se murió mi abuelita a mi nadie me regaña.
+[Permalink](https://twitter.com/fernandeznorona/status/1562129970394271744) | 57 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 16:13:49
+**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 08:54:08
 *****
-10,509 en Facebook y, 5107 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1561869279947104256) | 78 Me Gusta | 17 Retweets
+RT @zenmaster7: La mataron.
+Sin piedad, con lujo de violencia, riendo divertidos.
+Con autoridades presentes.
+Sucedió en #Castaños #Coahuila…
+[Permalink](https://twitter.com/fernandeznorona/status/1562121017471995905) | 0 Me Gusta | 99 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-08-2022 a las 12:19:01
+**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 08:52:48
 *****
-RT @EricU_VG: En el CETIS 54 están pidiendo $1329 de inscripción, al igual que uniforme de $1337, credencial de $250, solo de eso es un gas…
-[Permalink](https://twitter.com/fernandeznorona/status/1561810192119042048) | 0 Me Gusta | 21 Retweets
+RT @_ElenaRios: Por pedir que detenga a mi #agresor, visibilizar los #feminicidios y el plagio de textiles de @IvetteMurat en #Oaxaca, #Est…
+[Permalink](https://twitter.com/fernandeznorona/status/1562120682347143169) | 0 Me Gusta | 2,794 Retweets

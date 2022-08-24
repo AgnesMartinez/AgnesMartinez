@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 20:11:53
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 10:20:29
 *****
-Por cierto, ¿ya se fijaron que tanto @alitomorenoc como el cabeza hueca de @VicenteFoxQue escriben echar con h al inicio? Son cabronamente ignorantes. O lo digo de manera elegante: lo que tienen de corruptos, lo tienen de ignorantes.
-[Permalink](https://twitter.com/fernandeznorona/status/1562291579087228931) | 635 Me Gusta | 149 Retweets
+Jejeje
+[Permalink](https://twitter.com/fernandeznorona/status/1562505139918753795) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 20:08:58
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 10:16:29
 *****
-Antes de que lo publiquen en el @Reforma, les comunico que se acaba de integrar como mi asesor en temas electorales: Juan Pueblo. No me va a cobrar ni un centavo.
-[Permalink](https://twitter.com/fernandeznorona/status/1562290847533735936) | 266 Me Gusta | 55 Retweets
+Naa, el Poder Judicial dice “billetazos” y no encarcelados.
+[Permalink](https://twitter.com/fernandeznorona/status/1562504133067689989) | 4 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 19:48:34
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 10:13:44
 *****
-Naa, les vamos a ganar sin importar quien asuma la candidatura. De ese tamaño es la fuerza del movimiento. Pero no hay que confiarnos, hay que mantener la unidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1562285712686297088) | 69 Me Gusta | 11 Retweets
+RT @aura_fdez: Ya no censuren mis calcetas de Enrique, por favor.
+[Permalink](https://twitter.com/fernandeznorona/status/1562503439221137411) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 19:43:38
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 10:11:35
 *****
-@QuesaVerdadess @LillyTellez Has caído.
-[Permalink](https://twitter.com/fernandeznorona/status/1562284470996123649) | 15 Me Gusta | 1 Retweets
+Pero dicen que son perseguidos políticos.
+[Permalink](https://twitter.com/fernandeznorona/status/1562502898504052736) | 40 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 19:39:45
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 10:10:46
 *****
-Puej ji. Qué claro ese gordito.
-[Permalink](https://twitter.com/fernandeznorona/status/1562283492209094656) | 70 Me Gusta | 7 Retweets
+Mira @Ascension528Hz.
+[Permalink](https://twitter.com/fernandeznorona/status/1562502691557101568) | 8 Me Gusta | 1 Retweets

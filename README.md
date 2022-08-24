@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 16:31:13
+**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 20:11:53
 *****
-Cabeza hueca @VicenteFoxQue, tú y el yunque -con q, no con k-, el yunque y tú, nos la persignan.
-[Permalink](https://twitter.com/fernandeznorona/status/1562236049992175616) | 49 Me Gusta | 20 Retweets
+Por cierto, ¿ya se fijaron que tanto @alitomorenoc como el cabeza hueca de @VicenteFoxQue escriben echar con h al inicio? Son cabronamente ignorantes. O lo digo de manera elegante: lo que tienen de corruptos, lo tienen de ignorantes.
+[Permalink](https://twitter.com/fernandeznorona/status/1562291579087228931) | 405 Me Gusta | 100 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 16:29:36
+**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 20:08:58
 *****
-RT @julioastillero: 9.15 pm, #VideocharlaAstillada: ¡Litio para México! Lo decreta AMLO. Hoy se ha publicado en el Diario Oficial de la Fed…
-[Permalink](https://twitter.com/fernandeznorona/status/1562235640800022529) | 0 Me Gusta | 34 Retweets
+Antes de que lo publiquen en el @Reforma, les comunico que se acaba de integrar como mi asesor en temas electorales: Juan Pueblo. No me va a cobrar ni un centavo.
+[Permalink](https://twitter.com/fernandeznorona/status/1562290847533735936) | 178 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 16:29:07
+**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 19:48:34
 *****
-Ya vi.
-[Permalink](https://twitter.com/fernandeznorona/status/1562235517940469760) | 9 Me Gusta | 3 Retweets
+Naa, les vamos a ganar sin importar quien asuma la candidatura. De ese tamaño es la fuerza del movimiento. Pero no hay que confiarnos, hay que mantener la unidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1562285712686297088) | 58 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 16:27:33
+**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 19:43:38
 *****
-Ahí te hablan @_VicenteSerrano. Cierto, @save__alejandro también me apoya. A mucha honra, e igual que @LOVREGA, Alejandro es un hombre independiente y con criterio propio.
-[Permalink](https://twitter.com/fernandeznorona/status/1562235127471788032) | 4 Me Gusta | 2 Retweets
+@QuesaVerdadess @LillyTellez Has caído.
+[Permalink](https://twitter.com/fernandeznorona/status/1562284470996123649) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 16:25:19
+**Fernández Noroña** (**@fernandeznorona**) • 23-08-2022 a las 19:39:45
 *****
-Como decía el cabeza hueca de @VicenteFoxQue ¿Yo por qué? @LOVREGA es una mujer con criterio propio y totalmente independiente. Si te hace una crítica, aguanta vara o desmonta la crítica, pero a mí ¿por qué me metes?
-[Permalink](https://twitter.com/fernandeznorona/status/1562234561999904768) | 17 Me Gusta | 9 Retweets
+Puej ji. Qué claro ese gordito.
+[Permalink](https://twitter.com/fernandeznorona/status/1562283492209094656) | 60 Me Gusta | 6 Retweets

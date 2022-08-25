@@ -1,28 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 16:05:49
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 19:46:46
 *****
-Está cabrón que tengan cerrada la calle de Chile, pasando Perú y que, en Perú, dejen un solo carril por la necedad impuesta desde el gobierno de ⁦@ManceraMiguelMX⁩ ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1562592044144398338) | 30 Me Gusta | 6 Retweets
+El comal le dijo a la olla…
+[Permalink](https://twitter.com/fernandeznorona/status/1562647648972115969) | 115 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 15:59:53
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 19:45:52
 *****
-Estoy a una calle de mi casa y el tráfico está totalmente parado. Yo voy manejando, así que no puedo adelantarme a la casa.
-[Permalink](https://twitter.com/fernandeznorona/status/1562590551173890049) | 46 Me Gusta | 5 Retweets
+RT @Artsandcultr: Amazing  Dice 🎲 Artwork 💗
+[Permalink](https://twitter.com/fernandeznorona/status/1562647419980238855) | 0 Me Gusta | 2,192 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 15:52:00
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 19:44:30
 *****
-El tráfico ha estado infame. El centro histórico es una pesadilla. Paciencia, ya casi llego.
-[Permalink](https://twitter.com/fernandeznorona/status/1562588566739652610) | 76 Me Gusta | 11 Retweets
+Es una aberración. Alerté lo que vendría y hemos dejado correr demasiado en sus tropelías al @INEMexico y al @TEPJF_informa. Toda mi solidaridad.
+[Permalink](https://twitter.com/fernandeznorona/status/1562647077418840064) | 569 Me Gusta | 242 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 15:36:29
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 19:40:20
 *****
-RT @laoctavadigital: #VIDEO | 'Los narcos así se comportan': Noroña sobre los McLaren de Alito Moreno
- 
-@fernandeznorona ironizó que tiene…
-[Permalink](https://twitter.com/fernandeznorona/status/1562584661125386241) | 0 Me Gusta | 167 Retweets
+No es un concurso de necedad. De manera correcta planteó que quiere entrevistarme, así que yo me puse a su disposición para la entrevista. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1562646028226265092) | 43 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 15:07:30
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 19:36:08
 *****
-Aguanten el corte, la video charla será como 6:40 P.M.
-[Permalink](https://twitter.com/fernandeznorona/status/1562577369411760134) | 90 Me Gusta | 14 Retweets
+RT @jorgmanzomendez: TRAGEDIA EN APATZINGÁN 
+
+
+Una camioneta conducida a evidente exceso de velocidad arrolló a un grupo de “motomandaditos”…
+[Permalink](https://twitter.com/fernandeznorona/status/1562644972595482625) | 0 Me Gusta | 7 Retweets

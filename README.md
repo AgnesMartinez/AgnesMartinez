@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 10:20:29
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 16:05:49
 *****
-Jejeje
-[Permalink](https://twitter.com/fernandeznorona/status/1562505139918753795) | 1 Me Gusta | 0 Retweets
+Está cabrón que tengan cerrada la calle de Chile, pasando Perú y que, en Perú, dejen un solo carril por la necedad impuesta desde el gobierno de ⁦@ManceraMiguelMX⁩ ⁦@UCS_GCDMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1562592044144398338) | 30 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 10:16:29
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 15:59:53
 *****
-Naa, el Poder Judicial dice “billetazos” y no encarcelados.
-[Permalink](https://twitter.com/fernandeznorona/status/1562504133067689989) | 4 Me Gusta | 2 Retweets
+Estoy a una calle de mi casa y el tráfico está totalmente parado. Yo voy manejando, así que no puedo adelantarme a la casa.
+[Permalink](https://twitter.com/fernandeznorona/status/1562590551173890049) | 46 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 10:13:44
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 15:52:00
 *****
-RT @aura_fdez: Ya no censuren mis calcetas de Enrique, por favor.
-[Permalink](https://twitter.com/fernandeznorona/status/1562503439221137411) | 0 Me Gusta | 3 Retweets
+El tráfico ha estado infame. El centro histórico es una pesadilla. Paciencia, ya casi llego.
+[Permalink](https://twitter.com/fernandeznorona/status/1562588566739652610) | 76 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 10:11:35
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 15:36:29
 *****
-Pero dicen que son perseguidos políticos.
-[Permalink](https://twitter.com/fernandeznorona/status/1562502898504052736) | 40 Me Gusta | 17 Retweets
+RT @laoctavadigital: #VIDEO | 'Los narcos así se comportan': Noroña sobre los McLaren de Alito Moreno
+ 
+@fernandeznorona ironizó que tiene…
+[Permalink](https://twitter.com/fernandeznorona/status/1562584661125386241) | 0 Me Gusta | 167 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 10:10:46
+**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 15:07:30
 *****
-Mira @Ascension528Hz.
-[Permalink](https://twitter.com/fernandeznorona/status/1562502691557101568) | 8 Me Gusta | 1 Retweets
+Aguanten el corte, la video charla será como 6:40 P.M.
+[Permalink](https://twitter.com/fernandeznorona/status/1562577369411760134) | 90 Me Gusta | 14 Retweets

@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 19:46:46
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 08:17:56
 *****
-El comal le dijo a la olla…
-[Permalink](https://twitter.com/fernandeznorona/status/1562647648972115969) | 115 Me Gusta | 25 Retweets
+En la Junta Auxiliar “La Resurrección”, Puebla capital.
+[Permalink](https://twitter.com/fernandeznorona/status/1562836686740291588) | 34 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 19:45:52
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 07:45:42
 *****
-RT @Artsandcultr: Amazing  Dice 🎲 Artwork 💗
-[Permalink](https://twitter.com/fernandeznorona/status/1562647419980238855) | 0 Me Gusta | 2,192 Retweets
+Vamos llegando a Puebla. @NachoMierV tiene propaganda como si fuera campaña.
+[Permalink](https://twitter.com/fernandeznorona/status/1562828574427848704) | 98 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 19:44:30
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 06:40:07
 *****
-Es una aberración. Alerté lo que vendría y hemos dejado correr demasiado en sus tropelías al @INEMexico y al @TEPJF_informa. Toda mi solidaridad.
-[Permalink](https://twitter.com/fernandeznorona/status/1562647077418840064) | 569 Me Gusta | 242 Retweets
+Estos gordos con sus tortas de tamal
+[Permalink](https://twitter.com/fernandeznorona/status/1562812067563745286) | 141 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 19:40:20
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 06:39:27
 *****
-No es un concurso de necedad. De manera correcta planteó que quiere entrevistarme, así que yo me puse a su disposición para la entrevista. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1562646028226265092) | 43 Me Gusta | 5 Retweets
+El Jilton. Aunque aquí no me ha saludado nadie.
+[Permalink](https://twitter.com/fernandeznorona/status/1562811899024408578) | 209 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-08-2022 a las 19:36:08
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 06:38:35
 *****
-RT @jorgmanzomendez: TRAGEDIA EN APATZINGÁN 
-
-
-Una camioneta conducida a evidente exceso de velocidad arrolló a un grupo de “motomandaditos”…
-[Permalink](https://twitter.com/fernandeznorona/status/1562644972595482625) | 0 Me Gusta | 7 Retweets
+Desayunando en el Jilton
+[Permalink](https://twitter.com/fernandeznorona/status/1562811680966340611) | 456 Me Gusta | 61 Retweets

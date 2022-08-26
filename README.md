@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 16:39:11
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 20:49:03
 *****
-RT @ReginaldoSF_PT: Felicito a mi amigo @fernandeznorona y al @PTSLP_MX por este gran evento de arranque de afiliación. Sin duda, #Noroña e…
-[Permalink](https://twitter.com/fernandeznorona/status/1562962830072041473) | 0 Me Gusta | 11 Retweets
+Apenas en el hotel en San Juan del Río.
+[Permalink](https://twitter.com/fernandeznorona/status/1563025711937761281) | 102 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 16:21:55
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 18:56:50
 *****
-8411 en Facebook y, 4356 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1562958483493818368) | 12 Me Gusta | 1 Retweets
+Vamos camino a San Juan del Río. Ahí dormiremos y mañana temprano saldremos rumbo a San Miguel de Allende.
+[Permalink](https://twitter.com/fernandeznorona/status/1562997469654700032) | 179 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 13:55:56
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 17:07:14
 *****
-Santiago Momoxpan, San Pedro Cholula.
-[Permalink](https://twitter.com/fernandeznorona/status/1562921744192913408) | 49 Me Gusta | 6 Retweets
+Lo que necesitas es extrañar tu cerebro cabeza hueca @VicenteFoxQue
+[Permalink](https://twitter.com/fernandeznorona/status/1562969886133207040) | 226 Me Gusta | 40 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 12:15:38
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 17:06:07
 *****
-Bosques del Pilar.
-[Permalink](https://twitter.com/fernandeznorona/status/1562896502569443328) | 70 Me Gusta | 8 Retweets
+RT @novalick: No se pasen!
+[Permalink](https://twitter.com/fernandeznorona/status/1562969605814988800) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 11:19:57
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 17:02:34
 *****
-En Bosques del Pilar, Pue.
-[Permalink](https://twitter.com/fernandeznorona/status/1562882489214849031) | 122 Me Gusta | 22 Retweets
+¿Por?
+[Permalink](https://twitter.com/fernandeznorona/status/1562968711891656704) | 36 Me Gusta | 1 Retweets

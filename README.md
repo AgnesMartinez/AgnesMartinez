@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 20:49:03
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 09:20:48
 *****
-Apenas en el hotel en San Juan del Río.
-[Permalink](https://twitter.com/fernandeznorona/status/1563025711937761281) | 131 Me Gusta | 14 Retweets
+“La mejor manera de pensar cosas inteligentes es no pensar sandeces”. Derechosos, no lo dijo perogrullo, sino Schopenhauer.
+[Permalink](https://twitter.com/fernandeznorona/status/1563214894148685824) | 26 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 18:56:50
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 09:16:38
 *****
-Vamos camino a San Juan del Río. Ahí dormiremos y mañana temprano saldremos rumbo a San Miguel de Allende.
-[Permalink](https://twitter.com/fernandeznorona/status/1562997469654700032) | 233 Me Gusta | 35 Retweets
+San Miguel de Allende.
+[Permalink](https://twitter.com/fernandeznorona/status/1563213845627228161) | 48 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 17:07:14
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 07:35:34
 *****
-Lo que necesitas es extrañar tu cerebro cabeza hueca @VicenteFoxQue
-[Permalink](https://twitter.com/fernandeznorona/status/1562969886133207040) | 242 Me Gusta | 44 Retweets
+Está buenísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1563188410235645959) | 315 Me Gusta | 62 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 17:06:07
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 06:14:03
 *****
-RT @novalick: No se pasen!
-[Permalink](https://twitter.com/fernandeznorona/status/1562969605814988800) | 0 Me Gusta | 11 Retweets
+El bellísimo de Nieve.
+[Permalink](https://twitter.com/fernandeznorona/status/1563167897354383361) | 111 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 17:02:34
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 05:11:26
 *****
-¿Por?
-[Permalink](https://twitter.com/fernandeznorona/status/1562968711891656704) | 40 Me Gusta | 1 Retweets
+Desayunando en el Misión San Gil, se acercó a saludarme Soledad, porque en sábado, a está hora, no hay nadie, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1563152136841469954) | 190 Me Gusta | 24 Retweets

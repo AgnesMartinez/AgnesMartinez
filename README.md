@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 08:17:56
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 16:39:11
 *****
-En la Junta Auxiliar “La Resurrección”, Puebla capital.
-[Permalink](https://twitter.com/fernandeznorona/status/1562836686740291588) | 34 Me Gusta | 7 Retweets
+RT @ReginaldoSF_PT: Felicito a mi amigo @fernandeznorona y al @PTSLP_MX por este gran evento de arranque de afiliación. Sin duda, #Noroña e…
+[Permalink](https://twitter.com/fernandeznorona/status/1562962830072041473) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 07:45:42
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 16:21:55
 *****
-Vamos llegando a Puebla. @NachoMierV tiene propaganda como si fuera campaña.
-[Permalink](https://twitter.com/fernandeznorona/status/1562828574427848704) | 98 Me Gusta | 20 Retweets
+8411 en Facebook y, 4356 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1562958483493818368) | 12 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 06:40:07
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 13:55:56
 *****
-Estos gordos con sus tortas de tamal
-[Permalink](https://twitter.com/fernandeznorona/status/1562812067563745286) | 141 Me Gusta | 12 Retweets
+Santiago Momoxpan, San Pedro Cholula.
+[Permalink](https://twitter.com/fernandeznorona/status/1562921744192913408) | 49 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 06:39:27
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 12:15:38
 *****
-El Jilton. Aunque aquí no me ha saludado nadie.
-[Permalink](https://twitter.com/fernandeznorona/status/1562811899024408578) | 209 Me Gusta | 21 Retweets
+Bosques del Pilar.
+[Permalink](https://twitter.com/fernandeznorona/status/1562896502569443328) | 70 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 06:38:35
+**Fernández Noroña** (**@fernandeznorona**) • 25-08-2022 a las 11:19:57
 *****
-Desayunando en el Jilton
-[Permalink](https://twitter.com/fernandeznorona/status/1562811680966340611) | 456 Me Gusta | 61 Retweets
+En Bosques del Pilar, Pue.
+[Permalink](https://twitter.com/fernandeznorona/status/1562882489214849031) | 122 Me Gusta | 22 Retweets

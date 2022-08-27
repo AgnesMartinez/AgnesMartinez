@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 16:08:09
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 21:58:47
 *****
-Vamos saliendo de San José Iturbide rumbo a Cholula.
-[Permalink](https://twitter.com/fernandeznorona/status/1563317407501783041) | 42 Me Gusta | 1 Retweets
+Apenas en el hotel en Puebla. Estuvo pesado.
+[Permalink](https://twitter.com/fernandeznorona/status/1563405648284766209) | 18 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 16:02:20
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 18:31:36
 *****
-7654 en Facebook y, 4323 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1563315941659721728) | 20 Me Gusta | 3 Retweets
+No creo que sea de él, sea quien sea se las dejaron muy mal.
+[Permalink](https://twitter.com/fernandeznorona/status/1563353505837883392) | 37 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 11:29:48
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 18:30:49
 *****
-Va muy bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1563247356518117376) | 172 Me Gusta | 44 Retweets
+RT @Archi_Traveler: Parga, Greece 🇬🇷
+[Permalink](https://twitter.com/fernandeznorona/status/1563353308563009538) | 0 Me Gusta | 238 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 11:26:35
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 18:29:41
 *****
-San Miguel De Allende
-[Permalink](https://twitter.com/fernandeznorona/status/1563246548728680448) | 77 Me Gusta | 13 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1563353024306696193) | 60 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 11:25:54
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 18:28:47
 *****
-Donde se instaló el primer cabildo de la República.
-[Permalink](https://twitter.com/fernandeznorona/status/1563246376019931138) | 103 Me Gusta | 17 Retweets
+No es un árbitro vendido. Es un jugador del otro equipo.
+[Permalink](https://twitter.com/fernandeznorona/status/1563352798326325251) | 119 Me Gusta | 45 Retweets

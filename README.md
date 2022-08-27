@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 09:20:48
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 16:08:09
 *****
-“La mejor manera de pensar cosas inteligentes es no pensar sandeces”. Derechosos, no lo dijo perogrullo, sino Schopenhauer.
-[Permalink](https://twitter.com/fernandeznorona/status/1563214894148685824) | 26 Me Gusta | 7 Retweets
+Vamos saliendo de San José Iturbide rumbo a Cholula.
+[Permalink](https://twitter.com/fernandeznorona/status/1563317407501783041) | 42 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 09:16:38
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 16:02:20
 *****
-San Miguel de Allende.
-[Permalink](https://twitter.com/fernandeznorona/status/1563213845627228161) | 48 Me Gusta | 12 Retweets
+7654 en Facebook y, 4323 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1563315941659721728) | 20 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 07:35:34
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 11:29:48
 *****
-Está buenísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1563188410235645959) | 315 Me Gusta | 62 Retweets
+Va muy bien.
+[Permalink](https://twitter.com/fernandeznorona/status/1563247356518117376) | 172 Me Gusta | 44 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 06:14:03
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 11:26:35
 *****
-El bellísimo de Nieve.
-[Permalink](https://twitter.com/fernandeznorona/status/1563167897354383361) | 111 Me Gusta | 11 Retweets
+San Miguel De Allende
+[Permalink](https://twitter.com/fernandeznorona/status/1563246548728680448) | 77 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 05:11:26
+**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 11:25:54
 *****
-Desayunando en el Misión San Gil, se acercó a saludarme Soledad, porque en sábado, a está hora, no hay nadie, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1563152136841469954) | 190 Me Gusta | 24 Retweets
+Donde se instaló el primer cabildo de la República.
+[Permalink](https://twitter.com/fernandeznorona/status/1563246376019931138) | 103 Me Gusta | 17 Retweets

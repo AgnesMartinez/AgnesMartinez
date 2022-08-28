@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 21:58:47
+**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 16:27:45
 *****
-Apenas en el hotel en Puebla. Estuvo pesado.
-[Permalink](https://twitter.com/fernandeznorona/status/1563405648284766209) | 161 Me Gusta | 17 Retweets
+Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1563684728472993792) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 18:31:36
+**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 16:10:14
 *****
-No creo que sea de él, sea quien sea se las dejaron muy mal.
-[Permalink](https://twitter.com/fernandeznorona/status/1563353505837883392) | 48 Me Gusta | 8 Retweets
+RT @hctorastorga: ¡¡DE VERDADERO ESCÁNDALO!!
+Pablo Gómez, Director de la Unidad de Información Financiera (UIF) acaba de declarar que dentr…
+[Permalink](https://twitter.com/fernandeznorona/status/1563680320465018880) | 0 Me Gusta | 91 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 18:30:49
+**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 16:09:13
 *****
-RT @Archi_Traveler: Parga, Greece 🇬🇷
-[Permalink](https://twitter.com/fernandeznorona/status/1563353308563009538) | 0 Me Gusta | 352 Retweets
+Ahí ⁦@Luzmacmon⁩, ⁦@NachoMierV⁩ y su carro negro.
+[Permalink](https://twitter.com/fernandeznorona/status/1563680065233100800) | 19 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 18:29:41
+**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 16:06:22
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1563353024306696193) | 80 Me Gusta | 15 Retweets
+7148 en Facebook y, 5600 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1563679345155227650) | 19 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-08-2022 a las 18:28:47
+**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 14:57:09
 *****
-No es un árbitro vendido. Es un jugador del otro equipo.
-[Permalink](https://twitter.com/fernandeznorona/status/1563352798326325251) | 246 Me Gusta | 92 Retweets
+Con ⁦@NachoMierV⁩ y Luz, su compañera de vida.
+[Permalink](https://twitter.com/fernandeznorona/status/1563661927057801216) | 79 Me Gusta | 7 Retweets

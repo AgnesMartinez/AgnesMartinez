@@ -1,27 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 16:27:45
+**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 18:45:54
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1563684728472993792) | 15 Me Gusta | 1 Retweets
+Lo dice en anti rey Midas @alitomorenoc. La palabra vergüenza no está dentro de su radar.
+[Permalink](https://twitter.com/fernandeznorona/status/1563719493980983297) | 88 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 16:10:14
+**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 18:44:58
 *****
-RT @hctorastorga: ¡¡DE VERDADERO ESCÁNDALO!!
-Pablo Gómez, Director de la Unidad de Información Financiera (UIF) acaba de declarar que dentr…
-[Permalink](https://twitter.com/fernandeznorona/status/1563680320465018880) | 0 Me Gusta | 91 Retweets
+Así son los agentes de la CIA ¿Verdad doitora @denisedresserg?
+[Permalink](https://twitter.com/fernandeznorona/status/1563719259947237376) | 74 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 16:09:13
+**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 18:43:48
 *****
-Ahí ⁦@Luzmacmon⁩, ⁦@NachoMierV⁩ y su carro negro.
-[Permalink](https://twitter.com/fernandeznorona/status/1563680065233100800) | 19 Me Gusta | 1 Retweets
+RT @PonchoGutz: Hoy me encontré a @DeniseDresserG y no me aceptó el saludo porque "me la paso criticándola en Twitter".
+
+
+Ni modo, no coinci…
+[Permalink](https://twitter.com/fernandeznorona/status/1563718965070807040) | 0 Me Gusta | 479 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 16:06:22
+**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 18:39:34
 *****
-7148 en Facebook y, 5600 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1563679345155227650) | 19 Me Gusta | 1 Retweets
+RT @EricU_VG: @fernandeznorona es #Changoleón, no tengo duda.
+[Permalink](https://twitter.com/fernandeznorona/status/1563717898312380416) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 14:57:09
+**Fernández Noroña** (**@fernandeznorona**) • 27-08-2022 a las 18:29:24
 *****
-Con ⁦@NachoMierV⁩ y Luz, su compañera de vida.
-[Permalink](https://twitter.com/fernandeznorona/status/1563661927057801216) | 79 Me Gusta | 7 Retweets
+RT @sofianosabia: Imagínense en qué momento democrático vive Jalisco que ni la rectora de un centro universitario le puede dar información…
+[Permalink](https://twitter.com/fernandeznorona/status/1563715341947215872) | 0 Me Gusta | 164 Retweets

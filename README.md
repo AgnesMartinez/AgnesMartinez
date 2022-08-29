@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 16:21:30
+**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 19:44:23
 *****
-10,347 en Facebook y, 9627 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1564045543869120512) | 19 Me Gusta | 2 Retweets
+Se los dice un apeñado…
+[Permalink](https://twitter.com/fernandeznorona/status/1564096601139838979) | 59 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 13:04:46
+**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 19:41:52
 *****
-Ya vamos rumbo a Comonfort.
-[Permalink](https://twitter.com/fernandeznorona/status/1563996034665091072) | 95 Me Gusta | 8 Retweets
+Marcha sobre Washington hace 59 años.
+[Permalink](https://twitter.com/fernandeznorona/status/1564095965925081088) | 46 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 10:09:37
+**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 19:41:16
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1563951953494917120) | 75 Me Gusta | 21 Retweets
+James Baldwin y Marlon Brando hace 59 años.
+[Permalink](https://twitter.com/fernandeznorona/status/1564095816771538946) | 44 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 10:08:46
+**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 19:40:11
 *****
-Ya rumbo a Comonfort.
-[Permalink](https://twitter.com/fernandeznorona/status/1563951742026280961) | 97 Me Gusta | 7 Retweets
+MLK.
+[Permalink](https://twitter.com/fernandeznorona/status/1564095540891209729) | 66 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 07:48:09
+**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 18:47:10
 *****
-Así va Celaya.
-[Permalink](https://twitter.com/fernandeznorona/status/1563916354478116864) | 158 Me Gusta | 34 Retweets
+RT @librofilos: Que difícil es explicar todo lo que los libros han hecho por nosotros.
+[Permalink](https://twitter.com/fernandeznorona/status/1564082198482927618) | 0 Me Gusta | 370 Retweets

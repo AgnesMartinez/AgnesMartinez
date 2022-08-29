@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 19:44:23
+**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 07:52:00
 *****
-Se los dice un apeñado…
-[Permalink](https://twitter.com/fernandeznorona/status/1564096601139838979) | 67 Me Gusta | 9 Retweets
+Larga vida a Ezequiel Mora Chora, que la justicia llegue, la verdad se sepa y se conozca lo sucedido con Alexander Mora Venancio.
+[Permalink](https://twitter.com/fernandeznorona/status/1564279710518890496) | 71 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 19:41:52
+**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 07:50:13
 *****
-Marcha sobre Washington hace 59 años.
-[Permalink](https://twitter.com/fernandeznorona/status/1564095965925081088) | 58 Me Gusta | 5 Retweets
+RT @Monix139: Mientras hay quien anda en la Luna y quien está de gira con las cúpulas; #NoroñaEsPueblo y va recorriendo México para conocer…
+[Permalink](https://twitter.com/fernandeznorona/status/1564279261313150976) | 0 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 19:41:16
+**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 07:49:41
 *****
-James Baldwin y Marlon Brando hace 59 años.
-[Permalink](https://twitter.com/fernandeznorona/status/1564095816771538946) | 49 Me Gusta | 5 Retweets
+Ezequiel Mora Chora luchó hasta el último segundo de su existencia por encontrar con vida a su hijo Alexander Mora Venancio. Mi solidaridad con familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1564279129192550406) | 135 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 19:40:11
+**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 07:49:41
 *****
-MLK.
-[Permalink](https://twitter.com/fernandeznorona/status/1564095540891209729) | 79 Me Gusta | 16 Retweets
+Murió Ezequiel Mora Chora, padre de Alexander Mora Venancio, normalistas del grupo de los 43 víctimas de desaparición forzada. Lo conocí y conviví con él en una gira a la zona de Ayutla de los libres. Simpatizaba con el movimiento aunque estaba muerto en vida. Luchó hasta…
+[Permalink](https://twitter.com/fernandeznorona/status/1564279127863017472) | 278 Me Gusta | 89 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-08-2022 a las 18:47:10
+**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 07:30:00
 *****
-RT @librofilos: Que difícil es explicar todo lo que los libros han hecho por nosotros.
-[Permalink](https://twitter.com/fernandeznorona/status/1564082198482927618) | 0 Me Gusta | 405 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1564274172913545216) | 48 Me Gusta | 7 Retweets

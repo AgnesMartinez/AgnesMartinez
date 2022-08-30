@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 07:52:00
+**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 16:39:24
 *****
-Larga vida a Ezequiel Mora Chora, que la justicia llegue, la verdad se sepa y se conozca lo sucedido con Alexander Mora Venancio.
-[Permalink](https://twitter.com/fernandeznorona/status/1564279710518890496) | 71 Me Gusta | 22 Retweets
+RT @A_Encinas_R: Lamento profundamente el fallecimiento de Don Ezequiel Mora, padre del normalista de #Ayotzinapa  desaparecido Alexander M…
+[Permalink](https://twitter.com/fernandeznorona/status/1564412434181509123) | 0 Me Gusta | 128 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 07:50:13
+**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 16:09:01
 *****
-RT @Monix139: Mientras hay quien anda en la Luna y quien está de gira con las cúpulas; #NoroñaEsPueblo y va recorriendo México para conocer…
-[Permalink](https://twitter.com/fernandeznorona/status/1564279261313150976) | 0 Me Gusta | 20 Retweets
+10,979 en Facebook y, 5181 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1564404789542256642) | 30 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 07:49:41
-*****
-Ezequiel Mora Chora luchó hasta el último segundo de su existencia por encontrar con vida a su hijo Alexander Mora Venancio. Mi solidaridad con familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1564279129192550406) | 135 Me Gusta | 26 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 07:49:41
-*****
-Murió Ezequiel Mora Chora, padre de Alexander Mora Venancio, normalistas del grupo de los 43 víctimas de desaparición forzada. Lo conocí y conviví con él en una gira a la zona de Ayutla de los libres. Simpatizaba con el movimiento aunque estaba muerto en vida. Luchó hasta…
-[Permalink](https://twitter.com/fernandeznorona/status/1564279127863017472) | 278 Me Gusta | 89 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 07:30:00
+**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 13:49:01
 *****
 Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1564274172913545216) | 48 Me Gusta | 7 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1564369558038773762) | 103 Me Gusta | 29 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 10:44:51
+*****
+RT @Nubia_SCG: Y todos los huérfanos que dejó el usurpador de tu marido ¿También te dan nostalgia?
+[Permalink](https://twitter.com/fernandeznorona/status/1564323207997431810) | 0 Me Gusta | 28 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 29-08-2022 a las 10:40:46
+*****
+Pues la cargada es evidente.
+[Permalink](https://twitter.com/fernandeznorona/status/1564322181051449347) | 38 Me Gusta | 7 Retweets

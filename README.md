@@ -3,17 +3,17 @@
 **Fernández Noroña** (**@fernandeznorona**) • 30-08-2022 a las 22:02:28
 *****
 RT @marcial_diaz: Ya volé vía @aifaaero y me sorprendió, un lugar espacioso, limpio, sin demoras,flotilla de taxis y llegue a Polanco en 45…
-[Permalink](https://twitter.com/fernandeznorona/status/1564856123269816321) | 0 Me Gusta | 434 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1564856123269816321) | 0 Me Gusta | 446 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 30-08-2022 a las 19:56:40
 *****
 Abrazote y cualquier represalia que intenten, nos avisas.
-[Permalink](https://twitter.com/fernandeznorona/status/1564824466370297858) | 210 Me Gusta | 58 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1564824466370297858) | 301 Me Gusta | 83 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 30-08-2022 a las 16:53:30
 *****
 RT @StepLavalle: ¿EL MEXICANO ES POBRE POR HUEVON? #mexicano #HayQueHablarDe
-[Permalink](https://twitter.com/fernandeznorona/status/1564778373070684163) | 0 Me Gusta | 1,871 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1564778373070684163) | 0 Me Gusta | 2,812 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 30-08-2022 a las 16:32:21
 *****
@@ -23,4 +23,4 @@ RT @AlbertoAnayaGt: Lamento profundamente la partida de Camilo Guevara March, un
 **Fernández Noroña** (**@fernandeznorona**) • 30-08-2022 a las 16:30:32
 *****
 RT @hugo_Beats81: Espectacular pintura de @fernandeznorona  o no ? @Luna_Tagg
-[Permalink](https://twitter.com/fernandeznorona/status/1564772593223077888) | 0 Me Gusta | 21 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1564772593223077888) | 0 Me Gusta | 24 Retweets

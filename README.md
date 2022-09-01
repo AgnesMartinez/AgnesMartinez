@@ -1,30 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 13:50:44
+**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 19:27:53
 *****
-Especialmente a los que me amparan frente a las exhibidas que me da @LaydaSansores, es lo que @alitomorenoc quiso decir.
-[Permalink](https://twitter.com/fernandeznorona/status/1565094765573689348) | 160 Me Gusta | 42 Retweets
+RT @epigmenioibarra: Arrolladora, sistemática, banal a fin de cuentas por burocrática -como sostiene Hanna Arendt- fue la lógica con la que…
+[Permalink](https://twitter.com/fernandeznorona/status/1565179609326444545) | 0 Me Gusta | 932 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 13:02:01
+**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 19:12:10
 *****
-RT @luzmiazul: Nuestras preferencias no deberían ser motivo de división, al contrario, son tiempos de unidad en torno al Presidente @lopezo…
-[Permalink](https://twitter.com/fernandeznorona/status/1565082503865671682) | 0 Me Gusta | 50 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1565175654114627585) | 82 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 13:00:54
+**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 19:10:04
 *****
-RT @luzmiazul: Hoy, tras casi 4 años, concluyo mi ciclo en el @GobCDMX.
-
-
-Recientemente se me solicitó renunciar 🤷🏻‍♀️. La causa es mi simpa…
-[Permalink](https://twitter.com/fernandeznorona/status/1565082221278527489) | 0 Me Gusta | 267 Retweets
+@alvaro_delgado @lopezobrador_ @FelipeCalderon Sarkozy.
+[Permalink](https://twitter.com/fernandeznorona/status/1565175127536451584) | 59 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 13:00:18
+**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 19:03:04
 *****
-La video charla de hoy será a las siete de la noche pues la elección de la nueva mesa directiva de @Mx_Diputados se hará a las seis de la tarde. Se perfila para presidir @SantiagoCreelM.
-[Permalink](https://twitter.com/fernandeznorona/status/1565082070615031810) | 124 Me Gusta | 31 Retweets
+RT @PonchoGutz: La chairiza atacando a Gibrán con comentarios sobre su físico cuando hace un año esas eran precisamente las críticas que le…
+[Permalink](https://twitter.com/fernandeznorona/status/1565173364947226624) | 0 Me Gusta | 215 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 12:50:12
+**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 19:00:32
 *****
-RT @Esther_Mtz03: 🖤 Con mucho cariño y respeto te recordamos, tu guía y enseñanzas nos dan claridad en los momentos difíciles. 
-Quienes aco…
-[Permalink](https://twitter.com/fernandeznorona/status/1565079531593121792) | 0 Me Gusta | 4 Retweets
+Con el gran Silvio Rodríguez.
+[Permalink](https://twitter.com/fernandeznorona/status/1565172729250058240) | 193 Me Gusta | 34 Retweets

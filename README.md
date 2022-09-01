@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-08-2022 a las 22:02:28
+**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 13:50:44
 *****
-RT @marcial_diaz: Ya volé vía @aifaaero y me sorprendió, un lugar espacioso, limpio, sin demoras,flotilla de taxis y llegue a Polanco en 45…
-[Permalink](https://twitter.com/fernandeznorona/status/1564856123269816321) | 0 Me Gusta | 446 Retweets
+Especialmente a los que me amparan frente a las exhibidas que me da @LaydaSansores, es lo que @alitomorenoc quiso decir.
+[Permalink](https://twitter.com/fernandeznorona/status/1565094765573689348) | 160 Me Gusta | 42 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-08-2022 a las 19:56:40
+**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 13:02:01
 *****
-Abrazote y cualquier represalia que intenten, nos avisas.
-[Permalink](https://twitter.com/fernandeznorona/status/1564824466370297858) | 301 Me Gusta | 83 Retweets
+RT @luzmiazul: Nuestras preferencias no deberían ser motivo de división, al contrario, son tiempos de unidad en torno al Presidente @lopezo…
+[Permalink](https://twitter.com/fernandeznorona/status/1565082503865671682) | 0 Me Gusta | 50 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-08-2022 a las 16:53:30
+**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 13:00:54
 *****
-RT @StepLavalle: ¿EL MEXICANO ES POBRE POR HUEVON? #mexicano #HayQueHablarDe
-[Permalink](https://twitter.com/fernandeznorona/status/1564778373070684163) | 0 Me Gusta | 2,812 Retweets
+RT @luzmiazul: Hoy, tras casi 4 años, concluyo mi ciclo en el @GobCDMX.
+
+
+Recientemente se me solicitó renunciar 🤷🏻‍♀️. La causa es mi simpa…
+[Permalink](https://twitter.com/fernandeznorona/status/1565082221278527489) | 0 Me Gusta | 267 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-08-2022 a las 16:32:21
+**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 13:00:18
 *****
-RT @AlbertoAnayaGt: Lamento profundamente la partida de Camilo Guevara March, uno de los hijos del gran revolucionario Ernesto “Che” Guevar…
-[Permalink](https://twitter.com/fernandeznorona/status/1564773046841327616) | 0 Me Gusta | 20 Retweets
+La video charla de hoy será a las siete de la noche pues la elección de la nueva mesa directiva de @Mx_Diputados se hará a las seis de la tarde. Se perfila para presidir @SantiagoCreelM.
+[Permalink](https://twitter.com/fernandeznorona/status/1565082070615031810) | 124 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-08-2022 a las 16:30:32
+**Fernández Noroña** (**@fernandeznorona**) • 31-08-2022 a las 12:50:12
 *****
-RT @hugo_Beats81: Espectacular pintura de @fernandeznorona  o no ? @Luna_Tagg
-[Permalink](https://twitter.com/fernandeznorona/status/1564772593223077888) | 0 Me Gusta | 24 Retweets
+RT @Esther_Mtz03: 🖤 Con mucho cariño y respeto te recordamos, tu guía y enseñanzas nos dan claridad en los momentos difíciles. 
+Quienes aco…
+[Permalink](https://twitter.com/fernandeznorona/status/1565079531593121792) | 0 Me Gusta | 4 Retweets

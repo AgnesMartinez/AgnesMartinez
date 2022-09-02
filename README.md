@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 12:41:08
+**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 21:07:58
 *****
-Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1565439636285038597) | 26 Me Gusta | 5 Retweets
+12,193 en Facebook a pesar de la hora y, 5006 en YouTube. Los números de mi transmisión durante la sesión de Congreso General no los tomé.
+[Permalink](https://twitter.com/fernandeznorona/status/1565567184830709762) | 48 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 12:37:08
+**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 19:33:43
 *****
-¡Muy bien, muchas felicidades!
-[Permalink](https://twitter.com/fernandeznorona/status/1565438629283074054) | 35 Me Gusta | 2 Retweets
+RT @ReginaldoSF_PT: ¡Arrancamos el primer periodo del segundo año legislativo con la ficha del PT para el ‘24! nuestro amigo @fernandeznoro…
+[Permalink](https://twitter.com/fernandeznorona/status/1565543468511936514) | 0 Me Gusta | 54 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 12:35:40
+**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 18:31:26
+*****
+Justo hoy que vengo disfrazado, me vine a cenar al ”Madre Café”. No podía ser mayor el contrapunto.
+[Permalink](https://twitter.com/fernandeznorona/status/1565527791990218753) | 133 Me Gusta | 14 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 17:58:36
+*****
+RT @liliaaguilarmx: Mi amigo, compañero y diputado @fernandeznorona , le envía un mensaje especial a todo #CiudadJuarez; además de que ya r…
+[Permalink](https://twitter.com/fernandeznorona/status/1565519530855727104) | 0 Me Gusta | 34 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 17:38:31
 *****
 Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1565438259827802112) | 34 Me Gusta | 5 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 12:35:29
-*****
-Es un sondeo, punto. Una encuesta tiene otra metodología.  Tú correctamente lo expones con decencia y la persona estira la liga. En fin, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1565438212801273856) | 36 Me Gusta | 9 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 12:25:05
-*****
-Habla con @adela_bicha por favor. Ella me lleva la agenda.
-[Permalink](https://twitter.com/fernandeznorona/status/1565435595521916928) | 93 Me Gusta | 13 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1565514473628213251) | 62 Me Gusta | 11 Retweets

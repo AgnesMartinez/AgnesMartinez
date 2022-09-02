@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 21:07:58
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 09:27:25
 *****
-12,193 en Facebook a pesar de la hora y, 5006 en YouTube. Los números de mi transmisión durante la sesión de Congreso General no los tomé.
-[Permalink](https://twitter.com/fernandeznorona/status/1565567184830709762) | 82 Me Gusta | 7 Retweets
+@indeseadoo Ya.
+[Permalink](https://twitter.com/fernandeznorona/status/1565753274195656707) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 19:33:43
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 09:25:28
 *****
-RT @ReginaldoSF_PT: ¡Arrancamos el primer periodo del segundo año legislativo con la ficha del PT para el ‘24! nuestro amigo @fernandeznoro…
-[Permalink](https://twitter.com/fernandeznorona/status/1565543468511936514) | 0 Me Gusta | 61 Retweets
+Pero no tengo ningún MD tuyo. Saludos.
+[Permalink](https://twitter.com/fernandeznorona/status/1565752782518370304) | 15 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 18:31:26
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 09:24:32
 *****
-Justo hoy que vengo disfrazado, me vine a cenar al ”Madre Café”. No podía ser mayor el contrapunto.
-[Permalink](https://twitter.com/fernandeznorona/status/1565527791990218753) | 155 Me Gusta | 15 Retweets
+Me dicen que ya estás en contacto con @adela_bicha. Ayer comenté, equivocadamente, que no me habías buscado.
+[Permalink](https://twitter.com/fernandeznorona/status/1565752547058622466) | 13 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 17:58:36
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 09:22:13
 *****
-RT @liliaaguilarmx: Mi amigo, compañero y diputado @fernandeznorona , le envía un mensaje especial a todo #CiudadJuarez; además de que ya r…
-[Permalink](https://twitter.com/fernandeznorona/status/1565519530855727104) | 0 Me Gusta | 36 Retweets
+Seré curioso: ¿quién es Lalo España?
+[Permalink](https://twitter.com/fernandeznorona/status/1565751966445309952) | 65 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-09-2022 a las 17:38:31
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 09:21:24
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1565514473628213251) | 68 Me Gusta | 12 Retweets
+RT @LJyDMX: 📆 Agenda de fin de semana del diputado @fernandeznorona en sus recorridos por el Estado de México.
+
+
+Tocando corazones y despert…
+[Permalink](https://twitter.com/fernandeznorona/status/1565751760177733634) | 0 Me Gusta | 10 Retweets

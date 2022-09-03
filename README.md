@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 16:24:52
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 21:57:57
 *****
-Pues ahora no sé porque me dio estos datos pero me gustan más, personas alcanzadas 49,000 Facebook. 6566 en YouTube
-[Permalink](https://twitter.com/fernandeznorona/status/1565858329624252419) | 33 Me Gusta | 5 Retweets
+Demostración plena de la hipocresía, la mentira y la perversidad de los paniaguados ⁦@AccionNacional⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1565942153439854593) | 28 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 14:51:00
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 21:44:18
 *****
-Mucho éxito en tus nuevas tareas.
-[Permalink](https://twitter.com/fernandeznorona/status/1565834706528223232) | 34 Me Gusta | 3 Retweets
+Ya no sigas probando tu marihuana, cabeza hueca @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1565938716429934592) | 65 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 14:38:44
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 20:52:55
 *****
-RT @AGonzaloYanez: Con el gran @fernandeznorona este jueves 1 de septiembre, en el inicio del periodo ordinario de sesiones tanto del @sena…
-[Permalink](https://twitter.com/fernandeznorona/status/1565831617985265664) | 0 Me Gusta | 16 Retweets
+Eso. No discutir, Son trabajadores que están desclasados.
+[Permalink](https://twitter.com/fernandeznorona/status/1565925786271506435) | 42 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 14:11:33
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 20:37:59
 *****
-Pues empezaré por la presidencia de la mesa directiva de ⁦@Mx_Diputados⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1565824780321931272) | 389 Me Gusta | 57 Retweets
+Mira @Ascension528Hz.
+[Permalink](https://twitter.com/fernandeznorona/status/1565922027663507457) | 28 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 10:55:46
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 20:34:50
 *****
-Le reconozco a @NachoRgz que desde el 23 de agosto me mandó su número. No había visto el mensaje. No sé si no aparecía porque no lo seguía. Le ofrezco una disculpa.
-[Permalink](https://twitter.com/fernandeznorona/status/1565775507135860742) | 436 Me Gusta | 62 Retweets
+Solo alargan el debate y con él, alargan su agonía. Hemos a la hora que termine el debate, así dure días.
+[Permalink](https://twitter.com/fernandeznorona/status/1565921236219297793) | 51 Me Gusta | 15 Retweets

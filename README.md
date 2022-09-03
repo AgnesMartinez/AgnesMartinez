@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 09:27:25
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 16:24:52
 *****
-@indeseadoo Ya.
-[Permalink](https://twitter.com/fernandeznorona/status/1565753274195656707) | 4 Me Gusta | 0 Retweets
+Pues ahora no sé porque me dio estos datos pero me gustan más, personas alcanzadas 49,000 Facebook. 6566 en YouTube
+[Permalink](https://twitter.com/fernandeznorona/status/1565858329624252419) | 33 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 09:25:28
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 14:51:00
 *****
-Pero no tengo ningún MD tuyo. Saludos.
-[Permalink](https://twitter.com/fernandeznorona/status/1565752782518370304) | 15 Me Gusta | 2 Retweets
+Mucho éxito en tus nuevas tareas.
+[Permalink](https://twitter.com/fernandeznorona/status/1565834706528223232) | 34 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 09:24:32
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 14:38:44
 *****
-Me dicen que ya estás en contacto con @adela_bicha. Ayer comenté, equivocadamente, que no me habías buscado.
-[Permalink](https://twitter.com/fernandeznorona/status/1565752547058622466) | 13 Me Gusta | 0 Retweets
+RT @AGonzaloYanez: Con el gran @fernandeznorona este jueves 1 de septiembre, en el inicio del periodo ordinario de sesiones tanto del @sena…
+[Permalink](https://twitter.com/fernandeznorona/status/1565831617985265664) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 09:22:13
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 14:11:33
 *****
-Seré curioso: ¿quién es Lalo España?
-[Permalink](https://twitter.com/fernandeznorona/status/1565751966445309952) | 65 Me Gusta | 11 Retweets
+Pues empezaré por la presidencia de la mesa directiva de ⁦@Mx_Diputados⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1565824780321931272) | 389 Me Gusta | 57 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 09:21:24
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 10:55:46
 *****
-RT @LJyDMX: 📆 Agenda de fin de semana del diputado @fernandeznorona en sus recorridos por el Estado de México.
-
-
-Tocando corazones y despert…
-[Permalink](https://twitter.com/fernandeznorona/status/1565751760177733634) | 0 Me Gusta | 10 Retweets
+Le reconozco a @NachoRgz que desde el 23 de agosto me mandó su número. No había visto el mensaje. No sé si no aparecía porque no lo seguía. Le ofrezco una disculpa.
+[Permalink](https://twitter.com/fernandeznorona/status/1565775507135860742) | 436 Me Gusta | 62 Retweets

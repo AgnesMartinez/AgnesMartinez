@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 21:57:57
+**Fernández Noroña** (**@fernandeznorona**) • 03-09-2022 a las 03:44:19
 *****
-Demostración plena de la hipocresía, la mentira y la perversidad de los paniaguados ⁦@AccionNacional⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1565942153439854593) | 28 Me Gusta | 11 Retweets
+¡Qué locura! Aquí seguimos en @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1566029317053849602) | 99 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 21:44:18
+**Fernández Noroña** (**@fernandeznorona**) • 03-09-2022 a las 01:37:40
 *****
-Ya no sigas probando tu marihuana, cabeza hueca @VicenteFoxQue.
-[Permalink](https://twitter.com/fernandeznorona/status/1565938716429934592) | 65 Me Gusta | 11 Retweets
+RT @julioastillero: Golpe a ecología en Parque #Metropolitano #Guadalajara @parquemetro_gdl : @Citibanamex y #AlteaCorp usarán 5 meses 4.6…
+[Permalink](https://twitter.com/fernandeznorona/status/1565997444151840771) | 0 Me Gusta | 80 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 20:52:55
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 23:27:09
 *****
-Eso. No discutir, Son trabajadores que están desclasados.
-[Permalink](https://twitter.com/fernandeznorona/status/1565925786271506435) | 42 Me Gusta | 3 Retweets
+@PonchoGutz @Vale___Mx Dizque.
+[Permalink](https://twitter.com/fernandeznorona/status/1565964597944885248) | 16 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 20:37:59
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 23:25:36
 *****
-Mira @Ascension528Hz.
-[Permalink](https://twitter.com/fernandeznorona/status/1565922027663507457) | 28 Me Gusta | 3 Retweets
+¿Te hablas frente al espejo, cabeza hueca @VicenteFoxQue?
+[Permalink](https://twitter.com/fernandeznorona/status/1565964211863392256) | 78 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 20:34:50
+**Fernández Noroña** (**@fernandeznorona**) • 02-09-2022 a las 22:49:03
 *****
-Solo alargan el debate y con él, alargan su agonía. Hemos a la hora que termine el debate, así dure días.
-[Permalink](https://twitter.com/fernandeznorona/status/1565921236219297793) | 51 Me Gusta | 15 Retweets
+Oye pelmazo, ese proceso inició con tu amado #TomandanteBorolas alias @FelipeCalderon cuando usurpaba la presidencia y, continuó con @EPN y ¡apenas te percatas! @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1565955010877427712) | 178 Me Gusta | 48 Retweets

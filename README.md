@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-09-2022 a las 16:29:10
+**Fernández Noroña** (**@fernandeznorona**) • 05-09-2022 a las 20:28:58
 *****
-11,844 en Facebook y, 8003 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1566946575775141891) | 29 Me Gusta | 9 Retweets
+RT @Edd_Campe: Rumbo a 2024 entrevista con el Diputado @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1567006921151897600) | 0 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-09-2022 a las 14:57:18
+**Fernández Noroña** (**@fernandeznorona**) • 05-09-2022 a las 20:28:55
 *****
-Y ahí seguiré. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1566923454238101504) | 56 Me Gusta | 7 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1567006909479133186) | 61 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-09-2022 a las 14:56:22
+**Fernández Noroña** (**@fernandeznorona**) • 05-09-2022 a las 20:27:55
 *****
-@Beatriz84981597 @Edd_Campe Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1566923221122809856) | 9 Me Gusta | 3 Retweets
+Xacto
+[Permalink](https://twitter.com/fernandeznorona/status/1567006656717799427) | 32 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-09-2022 a las 14:47:44
+**Fernández Noroña** (**@fernandeznorona**) • 05-09-2022 a las 20:27:30
 *****
-Vamos a empezar un poco tarde pues apenas va iniciando la JUCOPO.
-[Permalink](https://twitter.com/fernandeznorona/status/1566921049027055627) | 98 Me Gusta | 18 Retweets
+@catrina_nortena @NachoRgz Enhorabuena. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1567006552850137090) | 32 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-09-2022 a las 13:17:23
+**Fernández Noroña** (**@fernandeznorona**) • 05-09-2022 a las 20:27:09
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1566898309838655493) | 35 Me Gusta | 4 Retweets
+La entrevista con @Edd_Campe estuvo muy bien, también.
+[Permalink](https://twitter.com/fernandeznorona/status/1567006463259803649) | 116 Me Gusta | 24 Retweets

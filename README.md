@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 16:10:19
+**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 20:43:34
 *****
-21,656 en Facebook y, 8965 en YouTube. Es evidente que esta última plataforma no está haciendo seria con los números.
-[Permalink](https://twitter.com/fernandeznorona/status/1567304216724529153) | 38 Me Gusta | 6 Retweets
+RT @NachoRgz: A las 9 pm se publica la entrevista de @fernandeznorona en El Chapucero
+[Permalink](https://twitter.com/fernandeznorona/status/1567372983622066178) | 0 Me Gusta | 71 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 12:09:23
+**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 17:53:19
 *****
-Aquí con ⁦ mi amiga y compañera de lucha @LaydaSansores⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1567243584557948929) | 375 Me Gusta | 58 Retweets
+RT @Luna_Tagg: 🤭😂😂 de nada!
+[Permalink](https://twitter.com/fernandeznorona/status/1567330137602985988) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 09:27:40
+**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 17:51:32
 *****
 Cierto.
-[Permalink](https://twitter.com/fernandeznorona/status/1567202888857821186) | 78 Me Gusta | 18 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1567329691790368769) | 60 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 09:27:08
+**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 17:03:02
 *****
-Justo en estos tiempos es cuando más vale la pena perseverar, defender los puntos de vista y mantener las posturas de principios. No te desesperes. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1567202753570656258) | 84 Me Gusta | 18 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1567317483689754625) | 35 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 09:26:18
+**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 17:02:56
 *****
-RT @El_Universal_Mx: #Cartón✍️ de @Helioflores_mex "Boric". Busca más cartones aquí 👉
-[Permalink](https://twitter.com/fernandeznorona/status/1567202544996212744) | 0 Me Gusta | 7 Retweets
+RT @BebedeIuz: @fernandeznorona Con los ojos abiertos, no sé. Pero con los ojos cerrados, iré tras de él, con los ojos cerrados, siempre lo…
+[Permalink](https://twitter.com/fernandeznorona/status/1567317459509583880) | 0 Me Gusta | 6 Retweets

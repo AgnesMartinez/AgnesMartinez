@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 20:43:34
+**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 16:23:21
 *****
-RT @NachoRgz: A las 9 pm se publica la entrevista de @fernandeznorona en El Chapucero
-[Permalink](https://twitter.com/fernandeznorona/status/1567372983622066178) | 0 Me Gusta | 101 Retweets
+Obvio, los paniaguados.
+[Permalink](https://twitter.com/fernandeznorona/status/1567669884825247744) | 38 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 17:53:19
+**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 16:22:40
 *****
-RT @Luna_Tagg: 🤭😂😂 de nada!
-[Permalink](https://twitter.com/fernandeznorona/status/1567330137602985988) | 0 Me Gusta | 34 Retweets
+23,947 en Facebook y, 10,895 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1567669713244766209) | 25 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 17:51:32
+**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 14:48:29
 *****
-Cierto.
-[Permalink](https://twitter.com/fernandeznorona/status/1567329691790368769) | 76 Me Gusta | 5 Retweets
+Puej ji, insolente violencia política de género contra María Del Carmen Téllez, @LillyTellez. Pero no denunciará. Es su primo hermano.
+[Permalink](https://twitter.com/fernandeznorona/status/1567646012126142465) | 36 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 17:03:02
+**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 14:32:00
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1567317483689754625) | 42 Me Gusta | 4 Retweets
+¡Qué chingona foto!
+[Permalink](https://twitter.com/fernandeznorona/status/1567641863716311044) | 59 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-09-2022 a las 17:02:56
+**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 14:28:30
 *****
-RT @BebedeIuz: @fernandeznorona Con los ojos abiertos, no sé. Pero con los ojos cerrados, iré tras de él, con los ojos cerrados, siempre lo…
-[Permalink](https://twitter.com/fernandeznorona/status/1567317459509583880) | 0 Me Gusta | 7 Retweets
+RT @SupsipS: Entre que @ScotiabankMX me sigue acosando TODOS LOS DÍAS con amenazas, mensajes y llamadas buscando al tipo que ni conozco, ho…
+[Permalink](https://twitter.com/fernandeznorona/status/1567640984929845256) | 0 Me Gusta | 7 Retweets

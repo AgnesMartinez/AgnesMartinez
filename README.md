@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 16:23:21
+**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 19:18:06
 *****
-Obvio, los paniaguados.
-[Permalink](https://twitter.com/fernandeznorona/status/1567669884825247744) | 38 Me Gusta | 8 Retweets
+RT @aura_fdez: El dip. @fernandeznorona estará el próximo viernes 9 de septiembre a las 12:30 en el Centro Cultural Aula Magna de la Univer…
+[Permalink](https://twitter.com/fernandeznorona/status/1567713863650394114) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 16:22:40
+**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 19:14:27
 *****
-23,947 en Facebook y, 10,895 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1567669713244766209) | 25 Me Gusta | 7 Retweets
+Ahí @UCS_GCDMX, @Claudiashein.
+[Permalink](https://twitter.com/fernandeznorona/status/1567712944787529730) | 20 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 14:48:29
+**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 18:53:30
 *****
-Puej ji, insolente violencia política de género contra María Del Carmen Téllez, @LillyTellez. Pero no denunciará. Es su primo hermano.
-[Permalink](https://twitter.com/fernandeznorona/status/1567646012126142465) | 36 Me Gusta | 12 Retweets
+Qué ardillas andan pseudo compañeros por las recientes entrevistas en redes. Suban las de sus candidaturas y demuestren con argumentos que son mejores opciones. La calumnia y la injuria NUNCA serán argumentos.
+[Permalink](https://twitter.com/fernandeznorona/status/1567707673075847168) | 336 Me Gusta | 88 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 14:32:00
+**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 18:51:44
 *****
-¡Qué chingona foto!
-[Permalink](https://twitter.com/fernandeznorona/status/1567641863716311044) | 59 Me Gusta | 8 Retweets
+@jibarra889 @AurelioHrdez Copia.
+[Permalink](https://twitter.com/fernandeznorona/status/1567707226520920067) | 7 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 14:28:30
+**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 18:49:04
 *****
-RT @SupsipS: Entre que @ScotiabankMX me sigue acosando TODOS LOS DÍAS con amenazas, mensajes y llamadas buscando al tipo que ni conozco, ho…
-[Permalink](https://twitter.com/fernandeznorona/status/1567640984929845256) | 0 Me Gusta | 7 Retweets
+RT @Esther_Mtz03: Denunciamos a los elementos de la @SSC_CDMX que de manera arbitraria detuvieron y revisaron la camioneta de la Diputada F…
+[Permalink](https://twitter.com/fernandeznorona/status/1567706557554593794) | 0 Me Gusta | 13 Retweets

@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 16:43:28
+**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 20:18:38
 *****
-Ni juntos. Nos la persignan.
-[Permalink](https://twitter.com/fernandeznorona/status/1568037337782779904) | 18 Me Gusta | 3 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1568091484032847874) | 54 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 16:42:15
+**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 19:22:01
 *****
-Yo viví en la calle de Londres, tengo un profundo respeto por la reina. Ah, ni que decir que oigo a los “Rolling Stone” y además, Mike Jagger ya es sir.
-[Permalink](https://twitter.com/fernandeznorona/status/1568037029518123009) | 45 Me Gusta | 5 Retweets
+El servicio de @AmericanExpress apesta. Su cobro mecanizado me hacen cargo absolutamente excedido y ahora se ponen burocráticos y quieren Una bola de necedades  para reintegrarme mi dinero.
+[Permalink](https://twitter.com/fernandeznorona/status/1568077235353157633) | 150 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 16:38:15
+**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 18:14:38
 *****
-Naa, si es Caro Quintero, jejeje. Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1568036022436478976) | 23 Me Gusta | 6 Retweets
+Lo terminé. Una verdadera joya.
+[Permalink](https://twitter.com/fernandeznorona/status/1568060280449499136) | 75 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 16:35:59
+**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 18:12:46
 *****
-RT @AliteyU: Así amanece en mi pueblito tejano 🙌🏼
-\#BuenosDias y #FelizJuevesATodos ☀️🤗
-[Permalink](https://twitter.com/fernandeznorona/status/1568035452363366400) | 0 Me Gusta | 3 Retweets
+RT @Navegaciones: Que @MarkoCortes y @alitomorenoc se van a divorciar por lo de la #GuardiaNacional. Cuando pase la votación, se casarán de…
+[Permalink](https://twitter.com/fernandeznorona/status/1568059808993136643) | 0 Me Gusta | 950 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 16:26:46
+**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 18:12:37
 *****
-RT @Monix139: Arrasando en los sondeos. #NoroñaEsPueblo ☺️☺️☺️🇲🇽🇲🇽🇲🇽🇲🇽
-[Permalink](https://twitter.com/fernandeznorona/status/1568033135144599552) | 0 Me Gusta | 15 Retweets
+Puro ardor de que no le hiciste caso en su momento.
+[Permalink](https://twitter.com/fernandeznorona/status/1568059770959204355) | 23 Me Gusta | 1 Retweets

@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 10:04:44
+**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 16:43:28
 *****
-La noticia mundial es la muerte de la Reina Isabel II a los 96 años de edad. Nuestra solidaridad para el pueblo inglés, para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1567936990821187585) | 65 Me Gusta | 11 Retweets
+Ni juntos. Nos la persignan.
+[Permalink](https://twitter.com/fernandeznorona/status/1568037337782779904) | 18 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 19:18:06
+**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 16:42:15
 *****
-RT @aura_fdez: El dip. @fernandeznorona estará el próximo viernes 9 de septiembre a las 12:30 en el Centro Cultural Aula Magna de la Univer…
-[Permalink](https://twitter.com/fernandeznorona/status/1567713863650394114) | 0 Me Gusta | 25 Retweets
+Yo viví en la calle de Londres, tengo un profundo respeto por la reina. Ah, ni que decir que oigo a los “Rolling Stone” y además, Mike Jagger ya es sir.
+[Permalink](https://twitter.com/fernandeznorona/status/1568037029518123009) | 45 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 19:14:27
+**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 16:38:15
 *****
-Ahí @UCS_GCDMX, @Claudiashein.
-[Permalink](https://twitter.com/fernandeznorona/status/1567712944787529730) | 26 Me Gusta | 5 Retweets
+Naa, si es Caro Quintero, jejeje. Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1568036022436478976) | 23 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 18:53:30
+**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 16:35:59
 *****
-Qué ardillas andan pseudo compañeros por las recientes entrevistas en redes. Suban las de sus candidaturas y demuestren con argumentos que son mejores opciones. La calumnia y la injuria NUNCA serán argumentos.
-[Permalink](https://twitter.com/fernandeznorona/status/1567707673075847168) | 684 Me Gusta | 160 Retweets
+RT @AliteyU: Así amanece en mi pueblito tejano 🙌🏼
+\#BuenosDias y #FelizJuevesATodos ☀️🤗
+[Permalink](https://twitter.com/fernandeznorona/status/1568035452363366400) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-09-2022 a las 18:51:44
+**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 16:26:46
 *****
-@jibarra889 @AurelioHrdez Copia.
-[Permalink](https://twitter.com/fernandeznorona/status/1567707226520920067) | 11 Me Gusta | 3 Retweets
+RT @Monix139: Arrasando en los sondeos. #NoroñaEsPueblo ☺️☺️☺️🇲🇽🇲🇽🇲🇽🇲🇽
+[Permalink](https://twitter.com/fernandeznorona/status/1568033135144599552) | 0 Me Gusta | 15 Retweets

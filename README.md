@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 16:52:48
+**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 20:29:54
 *****
-RT @poisonJadeVine: "Yo siento que la monarquía constitucional y parlamentaria es un buen sistema de Gobierno.
-Vean a Inglaterra, Suecia, D…
-[Permalink](https://twitter.com/fernandeznorona/status/1568402074139754497) | 0 Me Gusta | 3 Retweets
+Senadores.
+[Permalink](https://twitter.com/fernandeznorona/status/1568456706828419072) | 32 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 16:52:00
+**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 20:26:19
 *****
-RT @manuel_mimiaga: Mi mamá llegando de trabajar y viendo mi tesis impresa por primera vez.
-[Permalink](https://twitter.com/fernandeznorona/status/1568401870217183232) | 0 Me Gusta | 437 Retweets
+RT @AleCamphoto: @LJyDMX
+[Permalink](https://twitter.com/fernandeznorona/status/1568455806126903296) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 16:50:34
+**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 20:23:47
 *****
-Antes, en los aviones se preocupaban de que trajeras puesto el cinturón de seguridad. Hoy, les preocupa que traigas puesto el bendito cubrebocas.
-[Permalink](https://twitter.com/fernandeznorona/status/1568401509850959872) | 13 Me Gusta | 2 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1568455168039030784) | 16 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 16:44:39
+**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 19:45:57
 *****
-Después, que mande un correo. Si fue su p&amp;to sistema mecanizado el que me cobró casi un centenar de miles de pesos de más.
-[Permalink](https://twitter.com/fernandeznorona/status/1568400024005971968) | 13 Me Gusta | 3 Retweets
+En su descargo, como trae el cubrebocas, no oxigena bien. ¡Pobre!
+[Permalink](https://twitter.com/fernandeznorona/status/1568445648596353026) | 94 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 16:44:39
+**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 19:44:59
 *****
-El servicio de @AmericanExpress es súper profesional. Si tú desconoces un cargo lo retiran sin más e investigan. Entonces ¿por qué son tan absurdamente burocráticos cuando el cargo indebido es de ellos y lo saben? Primero me dijeron que lo tomaban a cargo de consumos venideros
-[Permalink](https://twitter.com/fernandeznorona/status/1568400022496227328) | 18 Me Gusta | 5 Retweets
+Apenas llegando a casa. El fin de semana estaré en recorridos por el Estado de México.
+[Permalink](https://twitter.com/fernandeznorona/status/1568445404533891074) | 109 Me Gusta | 13 Retweets

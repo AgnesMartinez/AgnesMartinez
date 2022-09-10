@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 08:40:11
+**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 16:52:48
 *****
-@Profe_Perlita @g_quadri @samuel_garcias Dizque.
-[Permalink](https://twitter.com/fernandeznorona/status/1568278102354313218) | 5 Me Gusta | 0 Retweets
+RT @poisonJadeVine: "Yo siento que la monarquía constitucional y parlamentaria es un buen sistema de Gobierno.
+Vean a Inglaterra, Suecia, D…
+[Permalink](https://twitter.com/fernandeznorona/status/1568402074139754497) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 08:39:27
+**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 16:52:00
 *****
-En Malinalco, cuatro tacos de Obispo y cuatro quesadillas: 900 pesos. En Torreón, cinco gorditas extraordinarias de guisado: 75 pesos. Eso sí, no desayuné fruta. En Malinalco sí, pero yo la puse.
-[Permalink](https://twitter.com/fernandeznorona/status/1568277918115319809) | 110 Me Gusta | 11 Retweets
+RT @manuel_mimiaga: Mi mamá llegando de trabajar y viendo mi tesis impresa por primera vez.
+[Permalink](https://twitter.com/fernandeznorona/status/1568401870217183232) | 0 Me Gusta | 437 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 20:18:38
+**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 16:50:34
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1568091484032847874) | 99 Me Gusta | 15 Retweets
+Antes, en los aviones se preocupaban de que trajeras puesto el cinturón de seguridad. Hoy, les preocupa que traigas puesto el bendito cubrebocas.
+[Permalink](https://twitter.com/fernandeznorona/status/1568401509850959872) | 13 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 19:22:01
+**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 16:44:39
 *****
-El servicio de @AmericanExpress apesta. Su cobro mecanizado me hacen cargo absolutamente excedido y ahora se ponen burocráticos y quieren Una bola de necedades  para reintegrarme mi dinero.
-[Permalink](https://twitter.com/fernandeznorona/status/1568077235353157633) | 373 Me Gusta | 83 Retweets
+Después, que mande un correo. Si fue su p&amp;to sistema mecanizado el que me cobró casi un centenar de miles de pesos de más.
+[Permalink](https://twitter.com/fernandeznorona/status/1568400024005971968) | 13 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-09-2022 a las 18:14:38
+**Fernández Noroña** (**@fernandeznorona**) • 09-09-2022 a las 16:44:39
 *****
-Lo terminé. Una verdadera joya.
-[Permalink](https://twitter.com/fernandeznorona/status/1568060280449499136) | 110 Me Gusta | 19 Retweets
+El servicio de @AmericanExpress es súper profesional. Si tú desconoces un cargo lo retiran sin más e investigan. Entonces ¿por qué son tan absurdamente burocráticos cuando el cargo indebido es de ellos y lo saben? Primero me dijeron que lo tomaban a cargo de consumos venideros
+[Permalink](https://twitter.com/fernandeznorona/status/1568400022496227328) | 18 Me Gusta | 5 Retweets

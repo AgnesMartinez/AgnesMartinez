@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 16:49:41
+**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 20:33:30
 *****
-Se ve buenísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1568763677439938561) | 8 Me Gusta | 1 Retweets
+RT @Doppledlkb: @fernandeznorona @CouresKandra @Nubia_SCG @Beatriz84981597 @nueva_medios @cafepolitico_06 @LJyDMX @LOVREGA @bio_beatriz @sa…
+[Permalink](https://twitter.com/fernandeznorona/status/1568820001410269186) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 16:48:55
+**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 20:18:49
 *****
-Mire usted, yo soy de la escuela antigua así es que siempre preferiré a Isabel. Nada de Carlos, aunque como Bora, yo respeto.
-[Permalink](https://twitter.com/fernandeznorona/status/1568763483352596484) | 3 Me Gusta | 0 Retweets
+¡Qué fuerte! Pero uno de ellos se lo buscó. Esa brutalidad y estaba siendo visto por millones de personas. ¿Cómo se comportará cuando no lo ve nadie?
+[Permalink](https://twitter.com/fernandeznorona/status/1568816309265211392) | 92 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 16:43:02
+**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 20:15:46
 *****
-13,465 en Facebook y, 9722 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1568762003766005761) | 19 Me Gusta | 2 Retweets
+Que no lo vea @monerohernandez porque se emputa. Abrazote y muchas gracias.
+[Permalink](https://twitter.com/fernandeznorona/status/1568815540709519362) | 93 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 13:41:35
+**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 20:13:11
 *****
-San Mateo, Naucalpan.
-[Permalink](https://twitter.com/fernandeznorona/status/1568716338939719680) | 92 Me Gusta | 17 Retweets
+Vean esa foto de Tepoztlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1568814888654356482) | 62 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 12:09:44
+**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 20:12:17
 *****
-San Juan Zitlatepec, Zumpango.
-[Permalink](https://twitter.com/fernandeznorona/status/1568693223723536384) | 87 Me Gusta | 21 Retweets
+Apenas en casa, mañana continúa mi recorrido por el Estado de México
+[Permalink](https://twitter.com/fernandeznorona/status/1568814664611516420) | 118 Me Gusta | 13 Retweets

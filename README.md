@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 20:09:07
+**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 09:57:46
 *****
-Pues parece que no ha sido auxiliada @UCS_GCDMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1569176253416247301) | 22 Me Gusta | 0 Retweets
+RT @Helioflores_mex: Dr. Frankenstein fallido.
+[Permalink](https://twitter.com/fernandeznorona/status/1569384791681777664) | 0 Me Gusta | 928 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 20:04:47
+**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 09:56:40
 *****
-Gracias.
-[Permalink](https://twitter.com/fernandeznorona/status/1569175163983503360) | 18 Me Gusta | 2 Retweets
+Ahí estaré.
+[Permalink](https://twitter.com/fernandeznorona/status/1569384514325200896) | 23 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 19:59:20
+**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 09:54:44
 *****
-Ahí @UCS_GCDMX
-[Permalink](https://twitter.com/fernandeznorona/status/1569173790772572161) | 19 Me Gusta | 1 Retweets
+¡Es un insulto!
+[Permalink](https://twitter.com/fernandeznorona/status/1569384025885736960) | 58 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 19:56:22
+**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 09:35:42
 *****
-RT @AnaMendoza1989: Excelente @Arman_doCA 🥰🙌, con todo y lluvia⛈️, volanteando en favor de mi querido Diputado @fernandeznorona 👍
-[Permalink](https://twitter.com/fernandeznorona/status/1569173045260189698) | 0 Me Gusta | 11 Retweets
+RT @Arquithierry: Como lo mencionaste en la videocharla de ayer Gerardo @fernandeznorona
+@LJyDMX
+[Permalink](https://twitter.com/fernandeznorona/status/1569379237957894145) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 19:15:50
+**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 09:22:05
 *****
-Llegando a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1569162845648224256) | 98 Me Gusta | 6 Retweets
+RT @LJyDMX: Cada día hay más Noroñistas, cada día más gente se interesa por el trabajo y trayectoria de lucha del Diputado @fernandeznorona…
+[Permalink](https://twitter.com/fernandeznorona/status/1569375810917732352) | 0 Me Gusta | 36 Retweets

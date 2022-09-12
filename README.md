@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 16:47:27
+**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 20:09:07
 *****
-Vamos saliendo de Nextlalpan rumbo a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1569125502492999680) | 18 Me Gusta | 3 Retweets
+Pues parece que no ha sido auxiliada @UCS_GCDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1569176253416247301) | 22 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 16:40:24
+**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 20:04:47
 *****
-13,531 en Facebook y, 12,082 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1569123730239938560) | 37 Me Gusta | 8 Retweets
+Gracias.
+[Permalink](https://twitter.com/fernandeznorona/status/1569175163983503360) | 18 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 09:49:50
+**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 19:59:20
 *****
-Tamales “El Vagabundo”, Villa de las Flores, Coacalco.
-[Permalink](https://twitter.com/fernandeznorona/status/1569020404194213888) | 296 Me Gusta | 50 Retweets
+Ahí @UCS_GCDMX
+[Permalink](https://twitter.com/fernandeznorona/status/1569173790772572161) | 19 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 06:21:36
+**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 19:56:22
 *****
-Ya rumbo a Tultitlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1568968002497875969) | 193 Me Gusta | 15 Retweets
+RT @AnaMendoza1989: Excelente @Arman_doCA 🥰🙌, con todo y lluvia⛈️, volanteando en favor de mi querido Diputado @fernandeznorona 👍
+[Permalink](https://twitter.com/fernandeznorona/status/1569173045260189698) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-09-2022 a las 20:33:30
+**Fernández Noroña** (**@fernandeznorona**) • 11-09-2022 a las 19:15:50
 *****
-RT @Doppledlkb: @fernandeznorona @CouresKandra @Nubia_SCG @Beatriz84981597 @nueva_medios @cafepolitico_06 @LJyDMX @LOVREGA @bio_beatriz @sa…
-[Permalink](https://twitter.com/fernandeznorona/status/1568820001410269186) | 0 Me Gusta | 19 Retweets
+Llegando a Pueblo quieto.
+[Permalink](https://twitter.com/fernandeznorona/status/1569162845648224256) | 98 Me Gusta | 6 Retweets

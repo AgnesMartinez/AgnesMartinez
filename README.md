@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 19:55:36
+**Fernández Noroña** (**@fernandeznorona**) • 13-09-2022 a las 10:06:10
 *****
-@snmaiznohaypai @PRI_Nacional @AccionNacional Persignaron.
-[Permalink](https://twitter.com/fernandeznorona/status/1569535241441738755) | 56 Me Gusta | 4 Retweets
+¡Eso!
+[Permalink](https://twitter.com/fernandeznorona/status/1569749294256738306) | 13 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 19:52:40
+**Fernández Noroña** (**@fernandeznorona**) • 13-09-2022 a las 10:05:29
 *****
-RT @LaydaSansores: Atención, Biby Rabelo, Francisco Pantoja, Eduardo Bacardit, nos vemos este #MartesDelJaguar a las 8 pm.
-[Permalink](https://twitter.com/fernandeznorona/status/1569534500220325888) | 0 Me Gusta | 424 Retweets
+Pues es lo que yo pensé, está raro tu mensaje.
+[Permalink](https://twitter.com/fernandeznorona/status/1569749121002610690) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 19:10:35
+**Fernández Noroña** (**@fernandeznorona**) • 13-09-2022 a las 09:30:32
 *****
-RT @Luna_Tagg: #NoroñaVa #NoroñaEsPueblo
-[Permalink](https://twitter.com/fernandeznorona/status/1569523912253538307) | 0 Me Gusta | 16 Retweets
+RT @_VicenteSerrano: Fue la viuda de Carlos Montemayor quien le entregó a un servidor el Premio Nacional #CarlosMontemayor en el @CC_LosPin…
+[Permalink](https://twitter.com/fernandeznorona/status/1569740323391426562) | 0 Me Gusta | 150 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 19:08:43
+**Fernández Noroña** (**@fernandeznorona**) • 13-09-2022 a las 09:20:16
 *****
-Pues por lo menos en septiembre, hay más de uno que ni eso.
-[Permalink](https://twitter.com/fernandeznorona/status/1569523441824399362) | 51 Me Gusta | 3 Retweets
+RT @chioreya: Tal cual …….
+[Permalink](https://twitter.com/fernandeznorona/status/1569737739788029958) | 0 Me Gusta | 160 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 17:37:20
+**Fernández Noroña** (**@fernandeznorona**) • 13-09-2022 a las 09:19:13
 *****
-10,293 en Facebook y, 10,219 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1569500443574939648) | 183 Me Gusta | 28 Retweets
+Ppffrr.
+[Permalink](https://twitter.com/fernandeznorona/status/1569737477006688262) | 12 Me Gusta | 1 Retweets

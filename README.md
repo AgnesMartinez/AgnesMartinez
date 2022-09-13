@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 14:34:03
+**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 19:55:36
 *****
-Me sumo a las condolencias para familiares y amigos por la muerte de nuestra compañera Diputada Bertha Espinoza. Mis condolencias a la bancada de @PartidoMorenaMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1569454318691942400) | 52 Me Gusta | 16 Retweets
+@snmaiznohaypai @PRI_Nacional @AccionNacional Persignaron.
+[Permalink](https://twitter.com/fernandeznorona/status/1569535241441738755) | 42 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 14:31:25
+**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 19:52:40
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1569453658257113090) | 70 Me Gusta | 11 Retweets
+RT @LaydaSansores: Atención, Biby Rabelo, Francisco Pantoja, Eduardo Bacardit, nos vemos este #MartesDelJaguar a las 8 pm.
+[Permalink](https://twitter.com/fernandeznorona/status/1569534500220325888) | 0 Me Gusta | 381 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 14:30:24
+**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 19:10:35
 *****
-RT @lopezobrador_: Productiva y amistosa reunión con el secretario de Estado, Antony Blinken y la secretaria de Comercio de Estados Unidos,…
-[Permalink](https://twitter.com/fernandeznorona/status/1569453401930633216) | 0 Me Gusta | 1,787 Retweets
+RT @Luna_Tagg: #NoroñaVa #NoroñaEsPueblo
+[Permalink](https://twitter.com/fernandeznorona/status/1569523912253538307) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 14:29:13
+**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 19:08:43
 *****
-RT @nancyortiz_: Hay una violencia sistémica contra las mujeres jefas de familia (llamadas mamás solteras) que poco estamos visibilizando d…
-[Permalink](https://twitter.com/fernandeznorona/status/1569453101257748482) | 0 Me Gusta | 118 Retweets
+Pues por lo menos en septiembre, hay más de uno que ni eso.
+[Permalink](https://twitter.com/fernandeznorona/status/1569523441824399362) | 42 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 14:29:03
+**Fernández Noroña** (**@fernandeznorona**) • 12-09-2022 a las 17:37:20
 *****
-“Fuentes de la cancillería y de Palacio Nacional” hablan de “moderar”. !Qué tal!
-[Permalink](https://twitter.com/fernandeznorona/status/1569453063341240322) | 31 Me Gusta | 6 Retweets
+10,293 en Facebook y, 10,219 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1569500443574939648) | 148 Me Gusta | 23 Retweets

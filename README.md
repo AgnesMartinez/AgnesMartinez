@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-09-2022 a las 20:02:04
+**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 09:59:59
 *****
-De nuevo, confundiendo la plaza de Leandro valle con estacionamiento. ⁦@UCS_GCDMX⁩ una grúa estaría bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1569899253492760577) | 103 Me Gusta | 20 Retweets
+RT @rocioss: Patriota
+[Permalink](https://twitter.com/fernandeznorona/status/1570110125054066692) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-09-2022 a las 19:04:51
+**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 09:48:02
 *****
-Pues parece que va a darse el tradicional temblor de septiembre, porque acaba de temblar. No se pierdan nuestras bonitas tradiciones y vengan a la capital del país.
-[Permalink](https://twitter.com/fernandeznorona/status/1569884856456192005) | 295 Me Gusta | 59 Retweets
+RT @NachoRgz: YAAA @cmmerino! Quita el cubrebocas obligatorio en Tabasco. No tiene caso. No sirve de absolutamente nada porque realmente ya…
+[Permalink](https://twitter.com/fernandeznorona/status/1570107116379312128) | 0 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-09-2022 a las 14:50:42
+**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 09:47:07
 *****
-Empezaremos la video charla un poco tarde.
-[Permalink](https://twitter.com/fernandeznorona/status/1569820899506880512) | 128 Me Gusta | 17 Retweets
+RT @daiana32542092: ¿Acabo de escuchar esto bien?
+
+
+¿Una empresa australiana está desarrollando un tratamiento para evitar que las personas…
+[Permalink](https://twitter.com/fernandeznorona/status/1570106886237609986) | 0 Me Gusta | 323 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-09-2022 a las 13:45:37
+**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 09:46:39
 *****
-Hoy murió un gigante del cine, Jean-Luc Godard. Toda mi solidaridad con familiares, amigos y al pueblo francés.
-[Permalink](https://twitter.com/fernandeznorona/status/1569804520556998658) | 223 Me Gusta | 29 Retweets
+Ve la cara de @JorgeRoHe frente a tan excelsa expresión de su compañero de bancada @storreblancae.
+[Permalink](https://twitter.com/fernandeznorona/status/1570106769434624003) | 14 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-09-2022 a las 13:38:03
+**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 09:41:01
 *****
-RT @Cesar_Reyes: @gaesav @fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1569802615751602176) | 0 Me Gusta | 21 Retweets
+Vean la cara de su coordinador @JorgeRoHe frente a la elegancia de @storreblancae.
+[Permalink](https://twitter.com/fernandeznorona/status/1570105351797628931) | 59 Me Gusta | 22 Retweets

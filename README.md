@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 09:59:59
+**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 16:33:08
 *****
-RT @rocioss: Patriota
-[Permalink](https://twitter.com/fernandeznorona/status/1570110125054066692) | 0 Me Gusta | 14 Retweets
+La dip. Fed. Vanessa del Castillo y el apoyo al fondo.
+[Permalink](https://twitter.com/fernandeznorona/status/1570209063379832833) | 30 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 09:48:02
+**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 16:30:15
 *****
-RT @NachoRgz: YAAA @cmmerino! Quita el cubrebocas obligatorio en Tabasco. No tiene caso. No sirve de absolutamente nada porque realmente ya…
-[Permalink](https://twitter.com/fernandeznorona/status/1570107116379312128) | 0 Me Gusta | 20 Retweets
+Alcaldía Gustavo A. Madero. En la Unidad Habitacional Acueducto de Guadalupe.
+[Permalink](https://twitter.com/fernandeznorona/status/1570208337613955074) | 27 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 09:47:07
+**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 15:18:15
 *****
-RT @daiana32542092: ¿Acabo de escuchar esto bien?
-
-
-¿Una empresa australiana está desarrollando un tratamiento para evitar que las personas…
-[Permalink](https://twitter.com/fernandeznorona/status/1570106886237609986) | 0 Me Gusta | 323 Retweets
+Voy a una asamblea en la alcaldía Gustavo A. Madero, así que transmitiré hoy a las ocho de la noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1570190217080082433) | 66 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 09:46:39
+**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 15:17:55
 *****
-Ve la cara de @JorgeRoHe frente a tan excelsa expresión de su compañero de bancada @storreblancae.
-[Permalink](https://twitter.com/fernandeznorona/status/1570106769434624003) | 14 Me Gusta | 3 Retweets
+335 votos a favor, 152 en contra y una abstención.
+[Permalink](https://twitter.com/fernandeznorona/status/1570190133692956672) | 279 Me Gusta | 68 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 09:41:01
+**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 15:15:29
 *****
-Vean la cara de su coordinador @JorgeRoHe frente a la elegancia de @storreblancae.
-[Permalink](https://twitter.com/fernandeznorona/status/1570105351797628931) | 59 Me Gusta | 22 Retweets
+Se aprobó por más de dos tercios el mantener a las fuerzas armadas hasta 2028 en labores de seguridad pública.
+[Permalink](https://twitter.com/fernandeznorona/status/1570189522645975040) | 667 Me Gusta | 178 Retweets

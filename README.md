@@ -1,31 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 16:58:13
+**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 20:50:14
 *****
-¿Fue cuando te gritaron asesino, #TomandanteBorolas alias @FelipeCalderon?
-[Permalink](https://twitter.com/fernandeznorona/status/1570577765174497281) | 0 Me Gusta | 0 Retweets
+RT @fernandeznorona: Entre los primeros 10 políticos del país.
+[Permalink](https://twitter.com/fernandeznorona/status/1570636150834073600) | 0 Me Gusta | 195 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 16:56:07
+**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 20:45:26
 *****
-Oro negro. Negrito (a) o Negritú
-[Permalink](https://twitter.com/fernandeznorona/status/1570577233554870274) | 3 Me Gusta | 0 Retweets
+RT @SupsipS: Sí estuvo muy bonito el grito. 
+Nomás me quedé pensando en todos aquellos súper obradoristas cadeneritos que eso de "muera el…
+[Permalink](https://twitter.com/fernandeznorona/status/1570634946167054337) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 16:54:32
+**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 20:40:17
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1570576837633544198) | 5 Me Gusta | 4 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 16:53:38
-*****
-RT @hernan_mazza: Cuando murió Evita, dijeron, Que viva el Cáncer!
-Cuando murió Néstor, dijeron , Néstor!! Llévatela a Cristina!! 
-Cuando l…
-[Permalink](https://twitter.com/fernandeznorona/status/1570576610008629248) | 0 Me Gusta | 17 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 16:48:40
-*****
-RT @lamparadiogenes: ¿Grito?
+RT @JaimeHumbertoPB: Épico, histórico y maravilloso #GritoDeIndependencia ¡Muera la corrupción! ¡Muera el clasismo! ¡Muera el racismo!
 
 
-Grito el que pegó @ClaudioXGG tras la ruptura del #PactoXMéxico.
-[Permalink](https://twitter.com/fernandeznorona/status/1570575358868721664) | 0 Me Gusta | 5 Retweets
+¡¡¡…
+[Permalink](https://twitter.com/fernandeznorona/status/1570633648763998209) | 0 Me Gusta | 60 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 19:57:21
+*****
+La verdad es que yo no. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1570622845839093762) | 42 Me Gusta | 5 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 19:52:55
+*****
+“¡Cumple los putos 50!”, ¡Qué fuerte! Lo puse en un artículo cuando murió mi hermanita María Fernanda Campa, lo titulé “Cumple los putos 80” y cito ese libro.
+[Permalink](https://twitter.com/fernandeznorona/status/1570621729676070912) | 22 Me Gusta | 5 Retweets

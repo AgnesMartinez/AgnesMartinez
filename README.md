@@ -1,26 +1,31 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 09:44:03
+**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 16:58:13
 *****
-RT @ElSoberanoMX: Ante los pataleos de la oposición conservadora, el diputado @fernandeznorona los puso en su lugar y les recordó que el Ob…
-[Permalink](https://twitter.com/fernandeznorona/status/1570468502024384512) | 0 Me Gusta | 110 Retweets
+¿Fue cuando te gritaron asesino, #TomandanteBorolas alias @FelipeCalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1570577765174497281) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 09:43:41
+**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 16:56:07
 *****
-Nunca le digo “mi general”, intrigante. Es mi compañero secretario de la defensa, @Luis_C_Sandoval, a mucha honra. Raúl Alvarez Garín estaría más que orgulloso de mi desempeño en @Mx_Diputados. Mamón.
-[Permalink](https://twitter.com/fernandeznorona/status/1570468408617209857) | 40 Me Gusta | 9 Retweets
+Oro negro. Negrito (a) o Negritú
+[Permalink](https://twitter.com/fernandeznorona/status/1570577233554870274) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 09:41:09
+**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 16:54:32
 *****
-La intriga persiste.
-[Permalink](https://twitter.com/fernandeznorona/status/1570467773641543682) | 11 Me Gusta | 0 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1570576837633544198) | 5 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 09:40:28
+**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 16:53:38
 *****
-Hoy habrá video charla seis de la tarde. No se pierdan el chisme: “se limpian el ‘cutis’ con la Constitución”.
-[Permalink](https://twitter.com/fernandeznorona/status/1570467600194506752) | 61 Me Gusta | 4 Retweets
+RT @hernan_mazza: Cuando murió Evita, dijeron, Que viva el Cáncer!
+Cuando murió Néstor, dijeron , Néstor!! Llévatela a Cristina!! 
+Cuando l…
+[Permalink](https://twitter.com/fernandeznorona/status/1570576610008629248) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-09-2022 a las 18:59:34
+**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 16:48:40
 *****
-Ya no haré video charla. Tuvimos un pequeño percance y ya me voy para Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1570245915658551297) | 306 Me Gusta | 29 Retweets
+RT @lamparadiogenes: ¿Grito?
+
+
+Grito el que pegó @ClaudioXGG tras la ruptura del #PactoXMéxico.
+[Permalink](https://twitter.com/fernandeznorona/status/1570575358868721664) | 0 Me Gusta | 5 Retweets

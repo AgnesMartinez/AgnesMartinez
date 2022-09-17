@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-09-2022 a las 10:12:29
+**Fernández Noroña** (**@fernandeznorona**) • 16-09-2022 a las 16:54:18
 *****
-¿No das crédito que te exhiban de manera tan inmisericorde?
-[Permalink](https://twitter.com/fernandeznorona/status/1570838046135943169) | 5 Me Gusta | 1 Retweets
+Tan entendieron que están rabiosos criticándolo.
+[Permalink](https://twitter.com/fernandeznorona/status/1570939164866260993) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-09-2022 a las 10:11:53
+**Fernández Noroña** (**@fernandeznorona**) • 16-09-2022 a las 16:48:21
 *****
-RT @rochaperiodista: El presidente da conocer que buscará su reelección en 2024 pese que la Constitución lo prohíbe... Nayib Bukele de El S…
-[Permalink](https://twitter.com/fernandeznorona/status/1570837893949853697) | 0 Me Gusta | 62 Retweets
+El padre de la patria gritó “mueran los Gachupines”. Por otra parte, cómo te dolieron los mueras al racismo y al clasismo.
+[Permalink](https://twitter.com/fernandeznorona/status/1570937670750310400) | 29 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-09-2022 a las 09:55:36
+**Fernández Noroña** (**@fernandeznorona**) • 16-09-2022 a las 16:46:22
 *****
-Ahí te hablan #TomandanteBorolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1570833798841110538) | 56 Me Gusta | 19 Retweets
+Darle gusto al gusto. Claro, también puedes leer.
+[Permalink](https://twitter.com/fernandeznorona/status/1570937167861673984) | 11 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 20:50:14
+**Fernández Noroña** (**@fernandeznorona**) • 16-09-2022 a las 16:24:17
 *****
-RT @fernandeznorona: Entre los primeros 10 políticos del país.
-[Permalink](https://twitter.com/fernandeznorona/status/1570636150834073600) | 0 Me Gusta | 197 Retweets
+Preciso 17,727 en Facebook y 17,729 en YouTube. Casi coincidencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1570931613307121664) | 52 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-09-2022 a las 20:45:26
+**Fernández Noroña** (**@fernandeznorona**) • 16-09-2022 a las 16:22:36
 *****
-RT @SupsipS: Sí estuvo muy bonito el grito. 
-Nomás me quedé pensando en todos aquellos súper obradoristas cadeneritos que eso de "muera el…
-[Permalink](https://twitter.com/fernandeznorona/status/1570634946167054337) | 0 Me Gusta | 16 Retweets
+17,927 en Facebook y en YouTube. Lo dije al final de la transmisión de Facebook el número en YouTube pero no tomé la foto. El mismo número, eso si es extraordinario.
+[Permalink](https://twitter.com/fernandeznorona/status/1570931186796724224) | 37 Me Gusta | 11 Retweets

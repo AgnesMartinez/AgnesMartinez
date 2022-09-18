@@ -1,26 +1,31 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 14:04:25
+**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 20:09:17
 *****
-¿Perfecto de atún? Atún.
-[Permalink](https://twitter.com/fernandeznorona/status/1571258799465316353) | 33 Me Gusta | 2 Retweets
+RT @rosendomarind: Gerardo Fernández Noroña @fernandeznorona en
+La Plaza de Santo Domingo 
+Ciudad de México
+Sábado 26 de noviembre
+12 hrs
+A…
+[Permalink](https://twitter.com/fernandeznorona/status/1571350623131426816) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 12:27:04
+**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 20:08:03
 *****
-Mira #TomandanteBorolas alias @FelipeCalderon
-[Permalink](https://twitter.com/fernandeznorona/status/1571234304121880576) | 61 Me Gusta | 12 Retweets
+Ya te tardaste.
+[Permalink](https://twitter.com/fernandeznorona/status/1571350311905665027) | 23 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 10:54:04
+**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 18:48:44
 *****
-Yo creo que la video charla será entre 6: 30 y 7 P.M.Apenas vamos saliendo de Atlapexco rumbo a Mineral del Monte.
-[Permalink](https://twitter.com/fernandeznorona/status/1571210899976765443) | 101 Me Gusta | 20 Retweets
+RT @Beatriz84981597: @CouresKandra @fernandeznorona Tenemos varios, querida, mira aquí esta uno 👇
+[Permalink](https://twitter.com/fernandeznorona/status/1571330354010537984) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 09:12:14
+**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 18:47:18
 *****
-Atlapexco, Huasteca hidalguense.
-[Permalink](https://twitter.com/fernandeznorona/status/1571185271131230208) | 69 Me Gusta | 7 Retweets
+¿Qué haces ahí @Ascension528Hz?
+[Permalink](https://twitter.com/fernandeznorona/status/1571329990653771778) | 20 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 09:05:31
+**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 18:06:28
 *****
-Atlapexco, Hidalgo.
-[Permalink](https://twitter.com/fernandeznorona/status/1571183581816406018) | 164 Me Gusta | 44 Retweets
+Esa militarización del país…
+[Permalink](https://twitter.com/fernandeznorona/status/1571319715267584001) | 266 Me Gusta | 62 Retweets

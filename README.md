@@ -1,31 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 20:09:17
+**Fernández Noroña** (**@fernandeznorona**) • 18-09-2022 a las 16:44:21
 *****
-RT @rosendomarind: Gerardo Fernández Noroña @fernandeznorona en
-La Plaza de Santo Domingo 
-Ciudad de México
-Sábado 26 de noviembre
-12 hrs
-A…
-[Permalink](https://twitter.com/fernandeznorona/status/1571350623131426816) | 0 Me Gusta | 28 Retweets
+RT @LuisaAlcalde: Hoy cumple años mi madre. Hoy también cierra un ciclo de 7 años como Presidenta del Consejo de Morena. 
+
+
+Siempre ha sido…
+[Permalink](https://twitter.com/fernandeznorona/status/1571661436744781824) | 0 Me Gusta | 51 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 20:08:03
+**Fernández Noroña** (**@fernandeznorona**) • 18-09-2022 a las 16:43:11
 *****
-Ya te tardaste.
-[Permalink](https://twitter.com/fernandeznorona/status/1571350311905665027) | 31 Me Gusta | 2 Retweets
+RT @OthoMtz: ¡A compartir!
+AMLO presidente Noroña el siguiente.
+Aquí mi pequeño aporte.
+@fernandeznorona @75Michelas @JALISCOPT @ptcampeche…
+[Permalink](https://twitter.com/fernandeznorona/status/1571661143277735936) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 18:48:44
+**Fernández Noroña** (**@fernandeznorona**) • 18-09-2022 a las 16:42:10
 *****
-RT @Beatriz84981597: @CouresKandra @fernandeznorona Tenemos varios, querida, mira aquí esta uno 👇
-[Permalink](https://twitter.com/fernandeznorona/status/1571330354010537984) | 0 Me Gusta | 15 Retweets
+13,559 en Facebook y, 11,848 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1571660887509049348) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 18:47:18
+**Fernández Noroña** (**@fernandeznorona**) • 18-09-2022 a las 12:39:05
 *****
-¿Qué haces ahí @Ascension528Hz?
-[Permalink](https://twitter.com/fernandeznorona/status/1571329990653771778) | 26 Me Gusta | 3 Retweets
+Pues sólo se oyó una voz chillona, ni se entiende lo que dice.
+[Permalink](https://twitter.com/fernandeznorona/status/1571599714713501698) | 34 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-09-2022 a las 18:06:28
+**Fernández Noroña** (**@fernandeznorona**) • 18-09-2022 a las 12:27:21
 *****
-Esa militarización del país…
-[Permalink](https://twitter.com/fernandeznorona/status/1571319715267584001) | 532 Me Gusta | 112 Retweets
+RT @manuelhborbolla: Mientras tanto en Francia...
+[Permalink](https://twitter.com/fernandeznorona/status/1571596763466809346) | 0 Me Gusta | 125 Retweets

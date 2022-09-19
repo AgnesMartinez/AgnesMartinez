@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-09-2022 a las 17:20:49
+**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 10:14:15
 *****
-Ya vi. Los virreyes les decían al pueblo que ellos lo único que tenían que hacer era obedecer.
-[Permalink](https://twitter.com/fernandeznorona/status/1571670614485921792) | 79 Me Gusta | 23 Retweets
+Voy llegando a @Mx_Diputados, pero todo el mundo debe estar con el puto susto.
+[Permalink](https://twitter.com/fernandeznorona/status/1571925654706290693) | 12 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-09-2022 a las 17:19:14
+**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 10:12:42
 *****
-@jrd1963 Yo, nada.
-[Permalink](https://twitter.com/fernandeznorona/status/1571670217054650368) | 1 Me Gusta | 0 Retweets
+RT @Xochitlcin: Cómo debe ser!💪🫶
+[Permalink](https://twitter.com/fernandeznorona/status/1571925263277068288) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-09-2022 a las 17:18:37
+**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 10:12:29
 *****
-A la tumba. Como los faraones egipcios. Es el colmo del absurdo.
-[Permalink](https://twitter.com/fernandeznorona/status/1571670062351929344) | 38 Me Gusta | 7 Retweets
+Muy
+[Permalink](https://twitter.com/fernandeznorona/status/1571925209304768515) | 5 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-09-2022 a las 17:03:34
+**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 10:08:40
 *****
-RT @Juan_OrtizMX: 🚨Desaparece el Canal Youtube de la Cámara de Diputados.
-
-
-¿Hackeo, error o censura?
-
-
-La pérdida de esta canal implicaría e…
-[Permalink](https://twitter.com/fernandeznorona/status/1571666272408195072) | 0 Me Gusta | 358 Retweets
+Uta, no podía faltar nuestro tradicional temblor de septiembre.  El 19, obvio. ¿Cuándo si no?
+[Permalink](https://twitter.com/fernandeznorona/status/1571924249245323265) | 46 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-09-2022 a las 17:01:52
+**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 10:03:09
 *****
-La reina Isabel se llevó cuatro y medio millones de dólares en joyas. Es absurdo, pero así es.
-[Permalink](https://twitter.com/fernandeznorona/status/1571665845562253312) | 111 Me Gusta | 39 Retweets
+¡Qué barbaridad! Pero los derechosos suspiran por un rey… que los desprecie.
+[Permalink](https://twitter.com/fernandeznorona/status/1571922858393182209) | 36 Me Gusta | 17 Retweets

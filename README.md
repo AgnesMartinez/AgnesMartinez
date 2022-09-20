@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 10:14:15
+**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 16:46:04
 *****
-Voy llegando a @Mx_Diputados, pero todo el mundo debe estar con el puto susto.
-[Permalink](https://twitter.com/fernandeznorona/status/1571925654706290693) | 12 Me Gusta | 3 Retweets
+Muchas felicidades a mi amigo y compañero de lucha @RicardoMonrealA en su cumpleaños. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1572024256149524480) | 27 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 10:12:42
+**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 16:42:17
 *****
-RT @Xochitlcin: Cómo debe ser!💪🫶
-[Permalink](https://twitter.com/fernandeznorona/status/1571925263277068288) | 0 Me Gusta | 13 Retweets
+Naa, heavy…
+[Permalink](https://twitter.com/fernandeznorona/status/1572023305422487554) | 7 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 10:12:29
+**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 16:41:58
 *****
-Muy
-[Permalink](https://twitter.com/fernandeznorona/status/1571925209304768515) | 5 Me Gusta | 1 Retweets
+12,319 en Facebook y, 11,739 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1572023227119173637) | 9 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 10:08:40
+**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 14:58:43
 *****
-Uta, no podía faltar nuestro tradicional temblor de septiembre.  El 19, obvio. ¿Cuándo si no?
-[Permalink](https://twitter.com/fernandeznorona/status/1571924249245323265) | 46 Me Gusta | 8 Retweets
+Me debieron regalar una batería de chiquito, seguro sería más sereno, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1571997242730364930) | 65 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 10:03:09
+**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 14:55:03
 *****
-¡Qué barbaridad! Pero los derechosos suspiran por un rey… que los desprecie.
-[Permalink](https://twitter.com/fernandeznorona/status/1571922858393182209) | 36 Me Gusta | 17 Retweets
+Qué bonita alberca con olas tienen.
+[Permalink](https://twitter.com/fernandeznorona/status/1571996320931500032) | 46 Me Gusta | 6 Retweets

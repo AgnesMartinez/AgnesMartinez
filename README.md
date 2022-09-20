@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 20:24:40
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 08:26:49
 *****
-RT @Mx_Diputados: La empresa YouTube decidió bajar de su plataforma temporalmente el canal de la Cámara de Diputados, a la espera de que su…
-[Permalink](https://twitter.com/fernandeznorona/status/1572079271400640514) | 0 Me Gusta | 199 Retweets
+@EricU_VG Extranjero.
+[Permalink](https://twitter.com/fernandeznorona/status/1572261005849235456) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 20:18:53
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 08:08:12
 *****
-Fidel Castro y Malcolm X, en un hotel del Harlem. 19 de septiembre de 1960.
-[Permalink](https://twitter.com/fernandeznorona/status/1572077816262410240) | 227 Me Gusta | 39 Retweets
+Si tiene esa parte jodida. A pesar de ello, me conmovió.
+[Permalink](https://twitter.com/fernandeznorona/status/1572256319410765824) | 23 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 19:03:01
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 05:56:13
 *****
-@asimaike Hundimiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1572058723505565698) | 6 Me Gusta | 1 Retweets
+Me hizo llorar. Carajo, eso no debe depender del buen corazón de las personas. Debe ser producto de la justicia social. Tanto por hacer.
+[Permalink](https://twitter.com/fernandeznorona/status/1572223103648014342) | 62 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 19:01:29
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 05:52:19
 *****
-RT @Arturo54109888: Por fin me dejaron de atacar los bots, toda la tarde estuve ocupado con ellos y todo por una foto mía que me saque en e…
-[Permalink](https://twitter.com/fernandeznorona/status/1572058335913906180) | 0 Me Gusta | 228 Retweets
+Qué todo salga bien y que tu hijo se recupere.
+[Permalink](https://twitter.com/fernandeznorona/status/1572222125678956544) | 121 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-09-2022 a las 18:54:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 05:51:17
 *****
-RT @ivonnemelgar: ¿Por qué cancelaron a @Mx_Diputados en @YouTubeMexico?
-@NachoMierV responsabilizó a @SantiagoTorreb.  
-"Atentó VS las pol…
-[Permalink](https://twitter.com/fernandeznorona/status/1572056531759419395) | 0 Me Gusta | 9 Retweets
+No presumas, es que del susto del sismo no pudiste dormir y mejor te fuiste a la mañanera, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1572221863367147522) | 63 Me Gusta | 5 Retweets

@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 16:14:15
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 21:09:59
 *****
-13,539 en Facebook y, 13,027 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1572378639827869698) | 35 Me Gusta | 8 Retweets
+-“¿A dónde se encamina usted, señor cura? -Voy a quitarles el yugo que tienen, muchacha -respondió Hidalgo a Narcisa Zapata. -“Será peor si hasta los bueyes pierde, señor cura”, contestó entre irónica y escéptica Narcisa. Para que vean que ni a Hidalgo tomaban en serio…
+[Permalink](https://twitter.com/fernandeznorona/status/1572453061271994368) | 40 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 13:56:38
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 21:00:44
 *****
-“Nadie conoce al amo mejor que sus sirvientes. Hemos sido sirvientes desde que nos trajo aquí. Conocemos todos sus trucos. ¿Se da cuenta? Sabemos todo lo que va a hacer el amo  antes de que que lo sepa el mismo”. Malcolm X a Fidel Castro.
-[Permalink](https://twitter.com/fernandeznorona/status/1572344004280258561) | 84 Me Gusta | 33 Retweets
+Fe de erratas: entre traiciones. Éste pinche corrector pone lo que quiere, aunque quizás la traición ha sido una añeja tradición.
+[Permalink](https://twitter.com/fernandeznorona/status/1572450735593517056) | 40 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 13:43:46
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 20:59:28
 *****
-Así fue.
-[Permalink](https://twitter.com/fernandeznorona/status/1572340769851146242) | 33 Me Gusta | 5 Retweets
+Es increíble. La conspiración había fracasado. Solo Josefa Ortiz de Domínguez y Miguel Hidalgo y Costilla estuvieron a la altura de las circunstancias. Gracias a ese par y al pueblo humilde que los acompañó en la aventura, tenemos patria.
+[Permalink](https://twitter.com/fernandeznorona/status/1572450417652662274) | 43 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 13:14:51
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 20:59:28
 *****
-No creo que estés sorda. Solo creo que finges sordera. Ya que insistes, no acabarás en la derecha, ya está ahí. Chayito Valdés.
-[Permalink](https://twitter.com/fernandeznorona/status/1572333490754166785) | 72 Me Gusta | 23 Retweets
+Acabo de acudir al nacimiento de la patria: “¡Viva la Independencia!¡Viva la América! ¡Muera el mal gobierno!”. ¡Mueran los gachupines!, grito el pueblo. Contra todos los pronósticos se inició la lucha de independencia entre tradiciones, delaciones y todo en contra…
+[Permalink](https://twitter.com/fernandeznorona/status/1572450414431272960) | 40 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 12:09:05
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 19:18:16
 *****
-RT @LJyDMX: 🚩NO LO OLVIDEN 🚩
+RT @PonchoGutz: Reencuentro padre e hijo ❤️🐥
 
 
-Este próximo 26 de Noviembre vamos todos a la Gran Asamblea Popular Informativa, para dar el banderazo de sal…
-[Permalink](https://twitter.com/fernandeznorona/status/1572316942182256640) | 0 Me Gusta | 30 Retweets
+Es de mi agrado informarles que el Pollo ya fue tuneado y SDPitorreo regresará con todo. http…
+[Permalink](https://twitter.com/fernandeznorona/status/1572424948874121216) | 0 Me Gusta | 21 Retweets

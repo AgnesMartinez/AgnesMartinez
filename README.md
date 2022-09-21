@@ -1,29 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 21:09:59
+**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 09:47:02
 *****
--“¿A dónde se encamina usted, señor cura? -Voy a quitarles el yugo que tienen, muchacha -respondió Hidalgo a Narcisa Zapata. -“Será peor si hasta los bueyes pierde, señor cura”, contestó entre irónica y escéptica Narcisa. Para que vean que ni a Hidalgo tomaban en serio…
-[Permalink](https://twitter.com/fernandeznorona/status/1572453061271994368) | 59 Me Gusta | 12 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 21:00:44
-*****
-Fe de erratas: entre traiciones. Éste pinche corrector pone lo que quiere, aunque quizás la traición ha sido una añeja tradición.
-[Permalink](https://twitter.com/fernandeznorona/status/1572450735593517056) | 53 Me Gusta | 12 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 20:59:28
-*****
-Es increíble. La conspiración había fracasado. Solo Josefa Ortiz de Domínguez y Miguel Hidalgo y Costilla estuvieron a la altura de las circunstancias. Gracias a ese par y al pueblo humilde que los acompañó en la aventura, tenemos patria.
-[Permalink](https://twitter.com/fernandeznorona/status/1572450417652662274) | 58 Me Gusta | 9 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 20:59:28
-*****
-Acabo de acudir al nacimiento de la patria: “¡Viva la Independencia!¡Viva la América! ¡Muera el mal gobierno!”. ¡Mueran los gachupines!, grito el pueblo. Contra todos los pronósticos se inició la lucha de independencia entre tradiciones, delaciones y todo en contra…
-[Permalink](https://twitter.com/fernandeznorona/status/1572450414431272960) | 59 Me Gusta | 13 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 19:18:16
-*****
-RT @PonchoGutz: Reencuentro padre e hijo ❤️🐥
+RT @jgnaredo: ¿Cómo? ¿Alemana va a nacionalizará a Uniper, la empresa de gas más importante de ese país?
 
 
-Es de mi agrado informarles que el Pollo ya fue tuneado y SDPitorreo regresará con todo. http…
-[Permalink](https://twitter.com/fernandeznorona/status/1572424948874121216) | 0 Me Gusta | 26 Retweets
+A @kenialopezr y a @LillyTellez l…
+[Permalink](https://twitter.com/fernandeznorona/status/1572643580166176769) | 0 Me Gusta | 668 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 09:46:21
+*****
+RT @lauralun03: Sin falta! vamos a seguir haciendo historia amigos Noroñistas 
+\#NoroñaEsPueblo
+[Permalink](https://twitter.com/fernandeznorona/status/1572643409621303299) | 0 Me Gusta | 15 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 09:33:27
+*****
+Pues muchas felicidades, que la pases súper bien en tu cumpleaños. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1572640161300881408) | 18 Me Gusta | 4 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 09:25:07
+*****
+Hace un rato.
+[Permalink](https://twitter.com/fernandeznorona/status/1572638065369268227) | 77 Me Gusta | 11 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 09:24:36
+*****
+Acabo de enviar mi video columna: “La ominosa declaración de @USAmbMex”, para @sdpnoticias.
+[Permalink](https://twitter.com/fernandeznorona/status/1572637936784670722) | 53 Me Gusta | 13 Retweets

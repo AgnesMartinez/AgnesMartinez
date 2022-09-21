@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 08:26:49
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 16:14:15
 *****
-@EricU_VG Extranjero.
-[Permalink](https://twitter.com/fernandeznorona/status/1572261005849235456) | 9 Me Gusta | 0 Retweets
+13,539 en Facebook y, 13,027 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1572378639827869698) | 35 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 08:08:12
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 13:56:38
 *****
-Si tiene esa parte jodida. A pesar de ello, me conmovió.
-[Permalink](https://twitter.com/fernandeznorona/status/1572256319410765824) | 23 Me Gusta | 3 Retweets
+“Nadie conoce al amo mejor que sus sirvientes. Hemos sido sirvientes desde que nos trajo aquí. Conocemos todos sus trucos. ¿Se da cuenta? Sabemos todo lo que va a hacer el amo  antes de que que lo sepa el mismo”. Malcolm X a Fidel Castro.
+[Permalink](https://twitter.com/fernandeznorona/status/1572344004280258561) | 84 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 05:56:13
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 13:43:46
 *****
-Me hizo llorar. Carajo, eso no debe depender del buen corazón de las personas. Debe ser producto de la justicia social. Tanto por hacer.
-[Permalink](https://twitter.com/fernandeznorona/status/1572223103648014342) | 62 Me Gusta | 14 Retweets
+Así fue.
+[Permalink](https://twitter.com/fernandeznorona/status/1572340769851146242) | 33 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 05:52:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 13:14:51
 *****
-Qué todo salga bien y que tu hijo se recupere.
-[Permalink](https://twitter.com/fernandeznorona/status/1572222125678956544) | 121 Me Gusta | 10 Retweets
+No creo que estés sorda. Solo creo que finges sordera. Ya que insistes, no acabarás en la derecha, ya está ahí. Chayito Valdés.
+[Permalink](https://twitter.com/fernandeznorona/status/1572333490754166785) | 72 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 05:51:17
+**Fernández Noroña** (**@fernandeznorona**) • 20-09-2022 a las 12:09:05
 *****
-No presumas, es que del susto del sismo no pudiste dormir y mejor te fuiste a la mañanera, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1572221863367147522) | 63 Me Gusta | 5 Retweets
+RT @LJyDMX: 🚩NO LO OLVIDEN 🚩
+
+
+Este próximo 26 de Noviembre vamos todos a la Gran Asamblea Popular Informativa, para dar el banderazo de sal…
+[Permalink](https://twitter.com/fernandeznorona/status/1572316942182256640) | 0 Me Gusta | 30 Retweets

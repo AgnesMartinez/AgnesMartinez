@@ -1,30 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 09:47:02
+**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 16:28:17
 *****
-RT @jgnaredo: ¿Cómo? ¿Alemana va a nacionalizará a Uniper, la empresa de gas más importante de ese país?
-
-
-A @kenialopezr y a @LillyTellez l…
-[Permalink](https://twitter.com/fernandeznorona/status/1572643580166176769) | 0 Me Gusta | 668 Retweets
+RT @lajornadaonline: #MonerosLaJornada Oferta, cartón de @monerohernandez
+[Permalink](https://twitter.com/fernandeznorona/status/1572744559943389187) | 0 Me Gusta | 103 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 09:46:21
+**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 16:27:02
 *****
-RT @lauralun03: Sin falta! vamos a seguir haciendo historia amigos Noroñistas 
-\#NoroñaEsPueblo
-[Permalink](https://twitter.com/fernandeznorona/status/1572643409621303299) | 0 Me Gusta | 15 Retweets
+Chingón.
+[Permalink](https://twitter.com/fernandeznorona/status/1572744243650891776) | 24 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 09:33:27
+**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 16:24:54
 *****
-Pues muchas felicidades, que la pases súper bien en tu cumpleaños. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1572640161300881408) | 18 Me Gusta | 4 Retweets
+12,176 en Facebook y, 13,232 en YouTube. Notable YouTube pues hoy estuvo fallando horrible la señal.
+[Permalink](https://twitter.com/fernandeznorona/status/1572743708730363904) | 30 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 09:25:07
+**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 13:50:48
 *****
-Hace un rato.
-[Permalink](https://twitter.com/fernandeznorona/status/1572638065369268227) | 77 Me Gusta | 11 Retweets
+Lo vemos en @Tu_IMSS.
+[Permalink](https://twitter.com/fernandeznorona/status/1572704926534336512) | 22 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 09:24:36
+**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 13:50:04
 *****
-Acabo de enviar mi video columna: “La ominosa declaración de @USAmbMex”, para @sdpnoticias.
-[Permalink](https://twitter.com/fernandeznorona/status/1572637936784670722) | 53 Me Gusta | 13 Retweets
+Xacto
+[Permalink](https://twitter.com/fernandeznorona/status/1572704742937067520) | 25 Me Gusta | 4 Retweets

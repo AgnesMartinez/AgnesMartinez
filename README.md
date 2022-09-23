@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 16:20:29
+**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 19:07:47
 *****
-Hermoso.
-[Permalink](https://twitter.com/fernandeznorona/status/1573104982320095233) | 17 Me Gusta | 2 Retweets
+Muy mal el gobierno de #ANLO, Georgie Boy @jorgeramosnews
+[Permalink](https://twitter.com/fernandeznorona/status/1573147084722958336) | 26 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 16:19:29
+**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 18:02:50
 *****
-17,405 en Facebook y, 15,205 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1573104732725735424) | 17 Me Gusta | 2 Retweets
+Fe de erratas: Hidalgo al intendente de Guanajuato, Juan Antonio Riaño.
+[Permalink](https://twitter.com/fernandeznorona/status/1573130739750735877) | 24 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 14:48:35
+**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 17:33:55
 *****
-Te ilustramos Georgie Boy ⁦@jorgeramosnews⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1573081855984705536) | 113 Me Gusta | 35 Retweets
+Me han proclamado su capitán general”. Hidalgo de Guanajuato Juan Antonio Riaño. En un escrito dirigido el 21 de septiembre de 1810. ¡El movimiento de Independencia inició con 15 hombres!
+[Permalink](https://twitter.com/fernandeznorona/status/1573123462243430400) | 62 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 14:47:31
+**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 17:33:54
 *****
-Ahí le hablan a @ChicChillon y a los chilloncitos.
-[Permalink](https://twitter.com/fernandeznorona/status/1573081585255337984) | 20 Me Gusta | 6 Retweets
+“Sabe usted ya el movimiento que ha tenido un lugar en el pueblo de Dolores la noche del 15 del presente. Su principio ejecutado con el número insignificante de 15 hombres, aumentado prodigiosamente en tan pocos días, que me encuentro rodeado de más de 4000 hombres que
+[Permalink](https://twitter.com/fernandeznorona/status/1573123459600846849) | 97 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 14:44:32
+**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 17:26:35
 *****
-Eres una voz más de la derecha que busca desorientar y desinformar a la población. Por ello, cuando el compañero presidente te muestra las cifras del respaldo popular que tiene, te dice: te conozco bacalao…
-[Permalink](https://twitter.com/fernandeznorona/status/1573080837456805888) | 223 Me Gusta | 42 Retweets
+Ahí estoy leyendo en el marco de una protesta.  Estoy casi seguro que fue en Cozumel.
+[Permalink](https://twitter.com/fernandeznorona/status/1573121616661577728) | 25 Me Gusta | 6 Retweets

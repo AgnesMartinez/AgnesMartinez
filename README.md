@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 10:03:18
+**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 16:20:29
 *****
-Eres un imbécil.
-[Permalink](https://twitter.com/fernandeznorona/status/1573010063752843264) | 80 Me Gusta | 9 Retweets
+Hermoso.
+[Permalink](https://twitter.com/fernandeznorona/status/1573104982320095233) | 17 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 09:58:35
+**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 16:19:29
 *****
-Me la gana
-[Permalink](https://twitter.com/fernandeznorona/status/1573008875552636928) | 26 Me Gusta | 5 Retweets
+17,405 en Facebook y, 15,205 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1573104732725735424) | 17 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 17:27:59
+**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 14:48:35
 *****
-@coyoacan1521 @Agenzia_Ansa Carezca.
-[Permalink](https://twitter.com/fernandeznorona/status/1572759582124158977) | 1 Me Gusta | 0 Retweets
+Te ilustramos Georgie Boy ⁦@jorgeramosnews⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1573081855984705536) | 113 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 16:28:17
+**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 14:47:31
 *****
-RT @lajornadaonline: #MonerosLaJornada Oferta, cartón de @monerohernandez
-[Permalink](https://twitter.com/fernandeznorona/status/1572744559943389187) | 0 Me Gusta | 165 Retweets
+Ahí le hablan a @ChicChillon y a los chilloncitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1573081585255337984) | 20 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-09-2022 a las 16:27:02
+**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 14:44:32
 *****
-Chingón.
-[Permalink](https://twitter.com/fernandeznorona/status/1572744243650891776) | 94 Me Gusta | 22 Retweets
+Eres una voz más de la derecha que busca desorientar y desinformar a la población. Por ello, cuando el compañero presidente te muestra las cifras del respaldo popular que tiene, te dice: te conozco bacalao…
+[Permalink](https://twitter.com/fernandeznorona/status/1573080837456805888) | 223 Me Gusta | 42 Retweets

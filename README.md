@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 19:07:47
+**Fernández Noroña** (**@fernandeznorona**) • 23-09-2022 a las 08:24:40
 *****
-Muy mal el gobierno de #ANLO, Georgie Boy @jorgeramosnews
-[Permalink](https://twitter.com/fernandeznorona/status/1573147084722958336) | 36 Me Gusta | 4 Retweets
+Qué curioso que cuando el @INEMexico y el @TEPJF_informa me impusieron arbitrariamente una sanción violando el fuero constitucional no haya citado ese artículo, @SergioSarmiento. Tampoco cuando querían sancionar a @AndreaChavezTre. Curioso.
+[Permalink](https://twitter.com/fernandeznorona/status/1573347627751854080) | 85 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 18:02:50
+**Fernández Noroña** (**@fernandeznorona**) • 23-09-2022 a las 08:22:33
 *****
-Fe de erratas: Hidalgo al intendente de Guanajuato, Juan Antonio Riaño.
-[Permalink](https://twitter.com/fernandeznorona/status/1573130739750735877) | 29 Me Gusta | 8 Retweets
+RT @NachoRgz: Ayer, por razones personales, mi hija Dani me acompañó al Senado para entrevistar a @RicardoMonrealA. Cuando se la presenté,…
+[Permalink](https://twitter.com/fernandeznorona/status/1573347094282240000) | 0 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 17:33:55
+**Fernández Noroña** (**@fernandeznorona**) • 23-09-2022 a las 08:13:59
 *****
-Me han proclamado su capitán general”. Hidalgo de Guanajuato Juan Antonio Riaño. En un escrito dirigido el 21 de septiembre de 1810. ¡El movimiento de Independencia inició con 15 hombres!
-[Permalink](https://twitter.com/fernandeznorona/status/1573123462243430400) | 70 Me Gusta | 13 Retweets
+La cascada.
+[Permalink](https://twitter.com/fernandeznorona/status/1573344940876251136) | 83 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 17:33:54
+**Fernández Noroña** (**@fernandeznorona**) • 23-09-2022 a las 06:59:17
 *****
-“Sabe usted ya el movimiento que ha tenido un lugar en el pueblo de Dolores la noche del 15 del presente. Su principio ejecutado con el número insignificante de 15 hombres, aumentado prodigiosamente en tan pocos días, que me encuentro rodeado de más de 4000 hombres que
-[Permalink](https://twitter.com/fernandeznorona/status/1573123459600846849) | 107 Me Gusta | 20 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1573326140055355393) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-09-2022 a las 17:26:35
+**Fernández Noroña** (**@fernandeznorona**) • 23-09-2022 a las 06:57:47
 *****
-Ahí estoy leyendo en el marco de una protesta.  Estoy casi seguro que fue en Cozumel.
-[Permalink](https://twitter.com/fernandeznorona/status/1573121616661577728) | 29 Me Gusta | 6 Retweets
+RT @Maramensaje: Nací en una cuna de ultra derecha, toda mi adolescencia (joven verde, manipulada e ignorante políticamente) apoye a la ult…
+[Permalink](https://twitter.com/fernandeznorona/status/1573325764300541953) | 0 Me Gusta | 74 Retweets

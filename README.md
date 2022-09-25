@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 19:41:33
+**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 09:58:31
 *****
-RT @Navegaciones: La filtración del informe sin testar sólo pudo tener un propósito: torpedear el proceso judicial y garantizar así la impu…
-[Permalink](https://twitter.com/fernandeznorona/status/1573880359560830976) | 0 Me Gusta | 913 Retweets
+El que tengamos amistad, no quiere decir que no puede haber críticas. Justo una amistad leal habla siempre con sinceridad. ¿Te arde que no me pelee con ellos? Pues no lo haré.
+[Permalink](https://twitter.com/fernandeznorona/status/1574096019670806529) | 28 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 19:38:30
+**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 09:56:56
 *****
-RT @heidi_belikov: La idea de que “toda opinión es respetable” es una mentira porque ni el racismo, clasismo, xenofobia y transfobia merece…
-[Permalink](https://twitter.com/fernandeznorona/status/1573879591353065476) | 0 Me Gusta | 47 Retweets
+Ppffrr.
+[Permalink](https://twitter.com/fernandeznorona/status/1574095622092820481) | 4 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 19:36:32
+**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 09:16:25
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1573879096127488000) | 94 Me Gusta | 16 Retweets
+RT @Nubia_SCG: Dejen de querer hacer pasar como  "violencia por ser mujer", a cualquier mínima crítica pública que se les hace por su traba…
+[Permalink](https://twitter.com/fernandeznorona/status/1574085426478190592) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 19:32:49
+**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 08:47:13
 *****
-RT @ManuelEspino: Lo reitero
-Felipe Calderón sí tuvo un desempeño peligroso para el país: Manuel Espino
-[Permalink](https://twitter.com/fernandeznorona/status/1573878162676752384) | 0 Me Gusta | 108 Retweets
+RT @fisgonmonero: Los textos de @penileyramirez y @hdemauleon no son periodismo sino guerra judicial (lawfare). Son piezas de propaganda qu…
+[Permalink](https://twitter.com/fernandeznorona/status/1574078078128721924) | 0 Me Gusta | 1,854 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 17:47:32
+**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 07:56:55
 *****
-Tengan para que aprendan cabeza hueca de @VicenteFoxQue y #TomandanteBorolas alias @FelipeCalderon
-[Permalink](https://twitter.com/fernandeznorona/status/1573851666956312576) | 151 Me Gusta | 57 Retweets
+Ardan derechosos.  Aquí con mi amiga y compañera de lucha ⁦@Claudiashein⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1574065418880393218) | 1,147 Me Gusta | 202 Retweets

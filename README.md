@@ -1,35 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 16:29:41
+**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 19:41:33
 *****
-De 9,983 en Facebook y, 7101 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1573832073395191814) | 18 Me Gusta | 2 Retweets
+RT @Navegaciones: La filtración del informe sin testar sólo pudo tener un propósito: torpedear el proceso judicial y garantizar así la impu…
+[Permalink](https://twitter.com/fernandeznorona/status/1573880359560830976) | 0 Me Gusta | 850 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 13:16:30
+**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 19:38:30
 *****
-A B S O L U T A M E N T E.
-[Permalink](https://twitter.com/fernandeznorona/status/1573783457435623424) | 31 Me Gusta | 5 Retweets
+RT @heidi_belikov: La idea de que “toda opinión es respetable” es una mentira porque ni el racismo, clasismo, xenofobia y transfobia merece…
+[Permalink](https://twitter.com/fernandeznorona/status/1573879591353065476) | 0 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 12:15:38
+**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 19:36:32
 *****
-Muchas felicidades. Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1573768141129355264) | 38 Me Gusta | 4 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1573879096127488000) | 77 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 11:51:10
+**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 19:32:49
 *****
-RT @A_Encinas_R: Condeno la lamentable filtración de la información entregada a la @FGRMexico por la Comisión de #Ayotzinapa.
-
-
-Es absolutam…
-[Permalink](https://twitter.com/fernandeznorona/status/1573761984172097538) | 0 Me Gusta | 2,189 Retweets
+RT @ManuelEspino: Lo reitero
+Felipe Calderón sí tuvo un desempeño peligroso para el país: Manuel Espino
+[Permalink](https://twitter.com/fernandeznorona/status/1573878162676752384) | 0 Me Gusta | 92 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 11:50:36
+**Fernández Noroña** (**@fernandeznorona**) • 24-09-2022 a las 17:47:32
 *****
-RT @xX_DarkAdria_Xx: 🤣🤣🤣🤣🤣🤣 ay nooooo!!!
-Te amo Gatito Araya!
-Fan de @Slayer
-
-
-Que bonitooooooooo🤣🤣🤣🤣🤣
-❤️❤️🔥🤘🔥❤️❤️
-[Permalink](https://twitter.com/fernandeznorona/status/1573761840626208772) | 0 Me Gusta | 5 Retweets
+Tengan para que aprendan cabeza hueca de @VicenteFoxQue y #TomandanteBorolas alias @FelipeCalderon
+[Permalink](https://twitter.com/fernandeznorona/status/1573851666956312576) | 136 Me Gusta | 54 Retweets

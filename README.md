@@ -13,14 +13,14 @@ RT @_MistWolf_: Quien quiera disfrutar de la transmisión de Grupo firme desde e
 **Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 18:07:32
 *****
 ¡Don Quijote! El aprendiz de fachito. Ni a minino de Pinochet llegas.
-[Permalink](https://twitter.com/fernandeznorona/status/1574219088192323584) | 109 Me Gusta | 24 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1574219088192323584) | 131 Me Gusta | 28 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 17:26:29
 *****
 Mire señora, yo a usted no le conozco y usted a mi menos. Defienda su candidatura hablando de sus virtudes. En lo que a mi respecta, sus intrigas no se sostienen. Antes de que usted naciera, yo ya estaba en la lucha.
-[Permalink](https://twitter.com/fernandeznorona/status/1574208757646741504) | 211 Me Gusta | 62 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1574208757646741504) | 243 Me Gusta | 67 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 16:16:36
 *****
 Mi agenda, para que no haya dudas de donde estaré.
-[Permalink](https://twitter.com/fernandeznorona/status/1574191171148124160) | 125 Me Gusta | 43 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1574191171148124160) | 142 Me Gusta | 50 Retweets

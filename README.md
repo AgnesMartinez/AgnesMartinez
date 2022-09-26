@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 18:30:22
+**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 08:37:28
 *****
-@AleCamphoto @ramirez87782706 Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1574224832845193217) | 8 Me Gusta | 0 Retweets
+RT @LJyDMX: Si todos tus ingresos se consumen en comida y vivienda, entonces su trabajo ya no es una forma de progreso económico sino una c…
+[Permalink](https://twitter.com/fernandeznorona/status/1574438012418723840) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 18:26:50
+**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 08:36:57
 *****
-RT @_MistWolf_: Quien quiera disfrutar de la transmisión de Grupo firme desde el Zócalo, aquí les dejo la red social de la Dra. Sheinbaum.…
-[Permalink](https://twitter.com/fernandeznorona/status/1574223943371628544) | 0 Me Gusta | 18 Retweets
+RT @Monix139: @again_xavier 😆Uff gracias pero no, para nada; pero ante esto cualquiera se harta, ¿sí o no? Como dicen: "Los que crean el pr…
+[Permalink](https://twitter.com/fernandeznorona/status/1574437883070521347) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 18:07:32
+**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 08:36:17
 *****
-¡Don Quijote! El aprendiz de fachito. Ni a minino de Pinochet llegas.
-[Permalink](https://twitter.com/fernandeznorona/status/1574219088192323584) | 131 Me Gusta | 28 Retweets
+Pues ahí está claro que el problema son los padres. ¿Qué edad tiene?
+[Permalink](https://twitter.com/fernandeznorona/status/1574437714061148165) | 13 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 17:26:29
+**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 08:33:39
 *****
-Mire señora, yo a usted no le conozco y usted a mi menos. Defienda su candidatura hablando de sus virtudes. En lo que a mi respecta, sus intrigas no se sostienen. Antes de que usted naciera, yo ya estaba en la lucha.
-[Permalink](https://twitter.com/fernandeznorona/status/1574208757646741504) | 243 Me Gusta | 67 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1574437053051424770) | 31 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 16:16:36
+**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 08:26:22
 *****
-Mi agenda, para que no haya dudas de donde estaré.
-[Permalink](https://twitter.com/fernandeznorona/status/1574191171148124160) | 142 Me Gusta | 50 Retweets
+Su necedad es solo del tamaño de su estulticia. nunca han hecho nada en favor de la justicia, seguro aplaudías de pie la “verdad histórica” sobre el caso Ayotzinapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1574435220157349889) | 28 Me Gusta | 6 Retweets

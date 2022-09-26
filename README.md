@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 18:30:22
+*****
+@AleCamphoto @ramirez87782706 Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1574224832845193217) | 8 Me Gusta | 0 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 18:26:50
+*****
+RT @_MistWolf_: Quien quiera disfrutar de la transmisión de Grupo firme desde el Zócalo, aquí les dejo la red social de la Dra. Sheinbaum.…
+[Permalink](https://twitter.com/fernandeznorona/status/1574223943371628544) | 0 Me Gusta | 18 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 18:07:32
+*****
+¡Don Quijote! El aprendiz de fachito. Ni a minino de Pinochet llegas.
+[Permalink](https://twitter.com/fernandeznorona/status/1574219088192323584) | 109 Me Gusta | 24 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 17:26:29
+*****
+Mire señora, yo a usted no le conozco y usted a mi menos. Defienda su candidatura hablando de sus virtudes. En lo que a mi respecta, sus intrigas no se sostienen. Antes de que usted naciera, yo ya estaba en la lucha.
+[Permalink](https://twitter.com/fernandeznorona/status/1574208757646741504) | 211 Me Gusta | 62 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 16:16:36
 *****
 Mi agenda, para que no haya dudas de donde estaré.
-[Permalink](https://twitter.com/fernandeznorona/status/1574191171148124160) | 45 Me Gusta | 14 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 16:15:06
-*****
-10,123 en Facebook y, 9549 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1574190792221999106) | 21 Me Gusta | 3 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 14:14:51
-*****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1574160529656004608) | 90 Me Gusta | 22 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 13:34:09
-*****
-RT @Mike28dev:
-[Permalink](https://twitter.com/fernandeznorona/status/1574150287970926592) | 0 Me Gusta | 55 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 25-09-2022 a las 12:39:34
-*****
-Maravilla de mascarones.
-[Permalink](https://twitter.com/fernandeznorona/status/1574136551734480897) | 193 Me Gusta | 24 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1574191171148124160) | 125 Me Gusta | 43 Retweets

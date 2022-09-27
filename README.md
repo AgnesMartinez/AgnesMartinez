@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 20:53:49
+**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 08:55:44
 *****
-Lectura obligada @PartidoMorenaMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1574623321165119489) | 49 Me Gusta | 16 Retweets
+@conejoliterario Súper.
+[Permalink](https://twitter.com/fernandeznorona/status/1574804999279894529) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 20:47:34
+**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 08:48:12
 *****
-RT @JesusCo02123372: Veo un seudo periodista de CNN responsabilizar al gobierno actual por la muerte de lo 48 de ayotzinapan. Dice: cómo Am…
-[Permalink](https://twitter.com/fernandeznorona/status/1574621746174500866) | 0 Me Gusta | 93 Retweets
+@AliteyU Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1574803100816314368) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 17:54:00
+**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 08:48:01
 *****
-Otro que confunde la plaza de Leandro Valle con estacionamiento. Lleva todo el día ahí. ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1574578067518922763) | 152 Me Gusta | 31 Retweets
+@Mike28dev Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1574803054485970944) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 17:31:46
+**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 08:43:21
 *****
-RT @ManuelEspino: Saludos desde Santo Domingo, Ciudad Primada de América. En visita de @ruta5oficial al Presidente de República Dominicana,…
-[Permalink](https://twitter.com/fernandeznorona/status/1574572474351509504) | 0 Me Gusta | 35 Retweets
+@Mike28dev Peleé.
+[Permalink](https://twitter.com/fernandeznorona/status/1574801880928190465) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 17:15:10
+**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 08:29:24
 *****
-RT @yammiat: @fernandeznorona @viajaVolaris Gracias por dejarnos crear y vivir las mejores experiencias de viaje ✈️
-[Permalink](https://twitter.com/fernandeznorona/status/1574568298070564864) | 0 Me Gusta | 52 Retweets
+Amor y salud; salud y amor. Lo demás es accesorio. Lee “El Sendero de la Sal” de Raynor Winn. Por cierto. Su versión original es en inglés. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1574798368559218688) | 44 Me Gusta | 4 Retweets

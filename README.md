@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 12:24:38
+**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 20:53:49
 *****
-Naa, a la Reina Victoria.
-[Permalink](https://twitter.com/fernandeznorona/status/1574495179326865413) | 37 Me Gusta | 3 Retweets
+Lectura obligada @PartidoMorenaMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1574623321165119489) | 36 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 08:37:28
+**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 20:47:34
 *****
-RT @LJyDMX: Si todos tus ingresos se consumen en comida y vivienda, entonces su trabajo ya no es una forma de progreso económico sino una c…
-[Permalink](https://twitter.com/fernandeznorona/status/1574438012418723840) | 0 Me Gusta | 27 Retweets
+RT @JesusCo02123372: Veo un seudo periodista de CNN responsabilizar al gobierno actual por la muerte de lo 48 de ayotzinapan. Dice: cómo Am…
+[Permalink](https://twitter.com/fernandeznorona/status/1574621746174500866) | 0 Me Gusta | 65 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 08:36:57
+**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 17:54:00
 *****
-RT @Monix139: @again_xavier 😆Uff gracias pero no, para nada; pero ante esto cualquiera se harta, ¿sí o no? Como dicen: "Los que crean el pr…
-[Permalink](https://twitter.com/fernandeznorona/status/1574437883070521347) | 0 Me Gusta | 6 Retweets
+Otro que confunde la plaza de Leandro Valle con estacionamiento. Lleva todo el día ahí. ⁦@UCS_GCDMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1574578067518922763) | 133 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 08:36:17
+**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 17:31:46
 *****
-Pues ahí está claro que el problema son los padres. ¿Qué edad tiene?
-[Permalink](https://twitter.com/fernandeznorona/status/1574437714061148165) | 23 Me Gusta | 4 Retweets
+RT @ManuelEspino: Saludos desde Santo Domingo, Ciudad Primada de América. En visita de @ruta5oficial al Presidente de República Dominicana,…
+[Permalink](https://twitter.com/fernandeznorona/status/1574572474351509504) | 0 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 08:33:39
+**Fernández Noroña** (**@fernandeznorona**) • 26-09-2022 a las 17:15:10
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1574437053051424770) | 49 Me Gusta | 7 Retweets
+RT @yammiat: @fernandeznorona @viajaVolaris Gracias por dejarnos crear y vivir las mejores experiencias de viaje ✈️
+[Permalink](https://twitter.com/fernandeznorona/status/1574568298070564864) | 0 Me Gusta | 48 Retweets

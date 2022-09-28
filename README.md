@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 08:55:44
+**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 16:11:59
 *****
-@conejoliterario Súper.
-[Permalink](https://twitter.com/fernandeznorona/status/1574804999279894529) | 0 Me Gusta | 0 Retweets
+En tres minutos intervendré sobre el caso Ayotzinapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1574914784012734464) | 158 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 08:48:12
+**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 14:07:38
 *****
-@AliteyU Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1574803100816314368) | 4 Me Gusta | 0 Retweets
+De acuerdo. Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1574883490398609460) | 25 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 08:48:01
+**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 14:06:54
 *****
-@Mike28dev Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1574803054485970944) | 3 Me Gusta | 0 Retweets
+Es culpa de ANLO. Antes no eran así los huracanes. Una gestión criminal, ¿verdad Georgie boy @jorgeramosnews?
+[Permalink](https://twitter.com/fernandeznorona/status/1574883304028905473) | 187 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 08:43:21
+**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 12:03:50
 *****
-@Mike28dev Peleé.
-[Permalink](https://twitter.com/fernandeznorona/status/1574801880928190465) | 9 Me Gusta | 0 Retweets
+RT @LJyDMX: Un día como hoy...
+[Permalink](https://twitter.com/fernandeznorona/status/1574852332738777094) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 08:29:24
+**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 12:02:31
 *****
-Amor y salud; salud y amor. Lo demás es accesorio. Lee “El Sendero de la Sal” de Raynor Winn. Por cierto. Su versión original es en inglés. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1574798368559218688) | 44 Me Gusta | 4 Retweets
+Eres un farsante. Ibas de arrastrado a Palacio Nacional cuando usurpaba la presidencia el #tomandanteborolas alias @FelipeCalderon y era un estado de sitio de facto. Pero hacías como que no lo veías @PedroFerriz. ¡Los milagros del chayote!
+[Permalink](https://twitter.com/fernandeznorona/status/1574852002672218121) | 404 Me Gusta | 146 Retweets

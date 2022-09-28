@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 20:57:34
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 09:29:36
 *****
-Corrijo. No iré nunca más a los tacos “Doneraki” #TacosdeCabezaTabe.
-[Permalink](https://twitter.com/fernandeznorona/status/1574986653969821696) | 175 Me Gusta | 37 Retweets
+Serías el primero en salir a exigir cárcel para ellos. Son una pandilla de hipócritas, racistas, clasistas y prepotentes.
+[Permalink](https://twitter.com/fernandeznorona/status/1575175906909249537) | 187 Me Gusta | 47 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 20:56:09
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 09:29:35
 *****
-O B V I O ambas cosas.
-[Permalink](https://twitter.com/fernandeznorona/status/1574986297583620098) | 42 Me Gusta | 8 Retweets
+… y crees que con una disculpa basta. Su prepotencia sólo es del tamaño de su desvergüenza. Me imagino que un padre de cualquiera del movimiento o un hijo de cualquiera de los dirigentes de @PartidoMorenaMx, @PTnacionalMX o @partidoverdemex hubiese hecho lo que tu padre…
+[Permalink](https://twitter.com/fernandeznorona/status/1575175905441300481) | 156 Me Gusta | 38 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 20:55:44
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 09:29:35
 *****
-Estoy viendo varios pequeños videos de la comparecencia de hoy en la Cámara de @senadomexicano y mi hermanito @adan_augusto estuvo brillante.
-[Permalink](https://twitter.com/fernandeznorona/status/1574986191174135809) | 352 Me Gusta | 70 Retweets
+¡Intentó asesinar a un trabajador y con una disculpa basta! Ayer me habló una persona que lo acusan de intento homicidio, que nunca estuvo ni en el lugar del hecho y lo sentenciaron a 28 años de cárcel. Tú, te crees por encima de la ley…#TacosdeCabezaTabe
+[Permalink](https://twitter.com/fernandeznorona/status/1575175903675486208) | 265 Me Gusta | 93 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 20:50:52
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 09:14:35
 *****
-Ni es sincera, ni es suficiente. #TacosdeCabezaTabe. A “Don Eraki”, nunca más.
-[Permalink](https://twitter.com/fernandeznorona/status/1574984967998017536) | 125 Me Gusta | 36 Retweets
+Si soy.
+[Permalink](https://twitter.com/fernandeznorona/status/1575172130886414349) | 33 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-09-2022 a las 20:48:54
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 09:14:00
 *****
-A mi me gustan los tacos “Don Eraki”. No iré nunca más. #TacosdeCabezaTabe
-[Permalink](https://twitter.com/fernandeznorona/status/1574984471081721856) | 134 Me Gusta | 29 Retweets
+Escucho las opiniones de quienes dicen que hay que retirar el fuero.
+[Permalink](https://twitter.com/fernandeznorona/status/1575171980789096448) | 36 Me Gusta | 13 Retweets

@@ -1,31 +1,31 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 17:04:57
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 18:43:21
 *****
-RT @rocioss: Ya salió el nuevo afiche
-[Permalink](https://twitter.com/fernandeznorona/status/1575290501112004608) | 0 Me Gusta | 243 Retweets
+RT @Arman_doCA: ¡A LA PLAZA DE SANTO DOMINGO! 
+¡POR UNA PROFUNDIZACIÓN DE ESTÁ REVOLUCIÓN SIN VIOLENCIA LLAMADA 4T! ¡Nov 26 2022, a las 5 P…
+[Permalink](https://twitter.com/fernandeznorona/status/1575315262743531520) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 17:03:45
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 18:09:21
 *****
-RT @callejon_114: Soy una joven de 23 años, trabajo en una fábrica de lunes a viernes de 6 am a 2 pm, estudio en el semi de la UAZ los sába…
-[Permalink](https://twitter.com/fernandeznorona/status/1575290197025034240) | 0 Me Gusta | 123 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 17:03:06
-*****
-RT @aga10mx: "Es de sabios saber reconocer los errores. Todo mi respeto para usted señor Mocha Orejas":
+RT @CitlaHM: El @TEPJF_informa validó la elección para gobernador de #Tamaulipas desestimando las mentiras de @AccionNacional.
 
 
-Lourdes Mendoza
-@lumendoz
-[Permalink](https://twitter.com/fernandeznorona/status/1575290036110602240) | 0 Me Gusta | 8 Retweets
+Enhorabuena…
+[Permalink](https://twitter.com/fernandeznorona/status/1575306708255023104) | 0 Me Gusta | 488 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 17:01:12
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 18:03:31
 *****
-RT @epigmenioibarra: ¿Y Peña Nieto?
-¿Por qué procesar solo a sus subalternos? ¿Por qué no meterlo a la cárcel junto a Jesús Murillo Karam?…
-[Permalink](https://twitter.com/fernandeznorona/status/1575289556324139009) | 0 Me Gusta | 580 Retweets
+RT @snmaiznohaypai: Esto parece historia de HALLOWEEN 
+FREDYRUKO Taqueria del infierno.
+[Permalink](https://twitter.com/fernandeznorona/status/1575305240210944000) | 0 Me Gusta | 63 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 16:36:02
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 18:02:21
 *****
-Ya vi mi intervención de hoy en @Mx_Diputados. Hoy si el doctor Noroña tuvo que que dar dosis especiales, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1575283224858619904) | 133 Me Gusta | 20 Retweets
+RT @LaydaSansores: No sé cómo le hicieron, pero lograron borrar el #MartesDelJaguar de facebook. No se preocupen, también está en YouTube y…
+[Permalink](https://twitter.com/fernandeznorona/status/1575304947746320385) | 0 Me Gusta | 1,573 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 17:59:46
+*****
+Ese no es el tema. El asunto es el cambio de horario cada seis meses.
+[Permalink](https://twitter.com/fernandeznorona/status/1575304293854240775) | 23 Me Gusta | 4 Retweets

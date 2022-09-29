@@ -1,26 +1,31 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 09:29:36
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 17:04:57
 *****
-Serías el primero en salir a exigir cárcel para ellos. Son una pandilla de hipócritas, racistas, clasistas y prepotentes.
-[Permalink](https://twitter.com/fernandeznorona/status/1575175906909249537) | 187 Me Gusta | 47 Retweets
+RT @rocioss: Ya salió el nuevo afiche
+[Permalink](https://twitter.com/fernandeznorona/status/1575290501112004608) | 0 Me Gusta | 243 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 09:29:35
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 17:03:45
 *****
-… y crees que con una disculpa basta. Su prepotencia sólo es del tamaño de su desvergüenza. Me imagino que un padre de cualquiera del movimiento o un hijo de cualquiera de los dirigentes de @PartidoMorenaMx, @PTnacionalMX o @partidoverdemex hubiese hecho lo que tu padre…
-[Permalink](https://twitter.com/fernandeznorona/status/1575175905441300481) | 156 Me Gusta | 38 Retweets
+RT @callejon_114: Soy una joven de 23 años, trabajo en una fábrica de lunes a viernes de 6 am a 2 pm, estudio en el semi de la UAZ los sába…
+[Permalink](https://twitter.com/fernandeznorona/status/1575290197025034240) | 0 Me Gusta | 123 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 09:29:35
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 17:03:06
 *****
-¡Intentó asesinar a un trabajador y con una disculpa basta! Ayer me habló una persona que lo acusan de intento homicidio, que nunca estuvo ni en el lugar del hecho y lo sentenciaron a 28 años de cárcel. Tú, te crees por encima de la ley…#TacosdeCabezaTabe
-[Permalink](https://twitter.com/fernandeznorona/status/1575175903675486208) | 265 Me Gusta | 93 Retweets
+RT @aga10mx: "Es de sabios saber reconocer los errores. Todo mi respeto para usted señor Mocha Orejas":
+
+
+Lourdes Mendoza
+@lumendoz
+[Permalink](https://twitter.com/fernandeznorona/status/1575290036110602240) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 09:14:35
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 17:01:12
 *****
-Si soy.
-[Permalink](https://twitter.com/fernandeznorona/status/1575172130886414349) | 33 Me Gusta | 5 Retweets
+RT @epigmenioibarra: ¿Y Peña Nieto?
+¿Por qué procesar solo a sus subalternos? ¿Por qué no meterlo a la cárcel junto a Jesús Murillo Karam?…
+[Permalink](https://twitter.com/fernandeznorona/status/1575289556324139009) | 0 Me Gusta | 580 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 09:14:00
+**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 16:36:02
 *****
-Escucho las opiniones de quienes dicen que hay que retirar el fuero.
-[Permalink](https://twitter.com/fernandeznorona/status/1575171980789096448) | 36 Me Gusta | 13 Retweets
+Ya vi mi intervención de hoy en @Mx_Diputados. Hoy si el doctor Noroña tuvo que que dar dosis especiales, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1575283224858619904) | 133 Me Gusta | 20 Retweets

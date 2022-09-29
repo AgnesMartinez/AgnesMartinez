@@ -1,31 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 18:43:21
+**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 10:05:25
 *****
-RT @Arman_doCA: ¡A LA PLAZA DE SANTO DOMINGO! 
-¡POR UNA PROFUNDIZACIÓN DE ESTÁ REVOLUCIÓN SIN VIOLENCIA LLAMADA 4T! ¡Nov 26 2022, a las 5 P…
-[Permalink](https://twitter.com/fernandeznorona/status/1575315262743531520) | 0 Me Gusta | 18 Retweets
+Chiles en nogada.
+[Permalink](https://twitter.com/fernandeznorona/status/1575547309706063873) | 9 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 18:09:21
+**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 10:05:11
 *****
-RT @CitlaHM: El @TEPJF_informa validó la elección para gobernador de #Tamaulipas desestimando las mentiras de @AccionNacional.
-
-
-Enhorabuena…
-[Permalink](https://twitter.com/fernandeznorona/status/1575306708255023104) | 0 Me Gusta | 514 Retweets
+Ya te anda buscando @tabe_tabe4 para un duelo con cuchillo cebollero.
+[Permalink](https://twitter.com/fernandeznorona/status/1575547250012725248) | 18 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 18:03:31
+**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 10:03:45
 *****
-RT @snmaiznohaypai: Esto parece historia de HALLOWEEN 
-FREDYRUKO Taqueria del infierno.
-[Permalink](https://twitter.com/fernandeznorona/status/1575305240210944000) | 0 Me Gusta | 70 Retweets
+Se elimina en todos lados, En realidad se elimina el cambio de horario cada seis meses. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1575546889243500545) | 36 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 18:02:21
+**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 09:51:51
 *****
-RT @LaydaSansores: No sé cómo le hicieron, pero lograron borrar el #MartesDelJaguar de facebook. No se preocupen, también está en YouTube y…
-[Permalink](https://twitter.com/fernandeznorona/status/1575304947746320385) | 0 Me Gusta | 1,831 Retweets
+De hecho no tiene fuero, se lo retiramos. Pero la @SCJN inventó la patraña de un segundo fuero estatal.
+[Permalink](https://twitter.com/fernandeznorona/status/1575543893474807808) | 52 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-09-2022 a las 17:59:46
+**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 09:51:00
 *****
-Ese no es el tema. El asunto es el cambio de horario cada seis meses.
-[Permalink](https://twitter.com/fernandeznorona/status/1575304293854240775) | 23 Me Gusta | 4 Retweets
+RT @elgatopolitico_: #ÚltimaHora 📛📛
+Duro golpe al INE. Con 259 votos a favor, 212 en contra y 0 abstenciones. La Cámara de Diputados ratifi…
+[Permalink](https://twitter.com/fernandeznorona/status/1575543680118628352) | 0 Me Gusta | 339 Retweets

@@ -1,27 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 10:05:25
+**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 17:14:40
 *****
-Chiles en nogada.
-[Permalink](https://twitter.com/fernandeznorona/status/1575547309706063873) | 9 Me Gusta | 1 Retweets
+RT @Nubia_SCG: 👀
+[Permalink](https://twitter.com/fernandeznorona/status/1575655335817539584) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 10:05:11
+**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 17:10:11
 *****
-Ya te anda buscando @tabe_tabe4 para un duelo con cuchillo cebollero.
-[Permalink](https://twitter.com/fernandeznorona/status/1575547250012725248) | 18 Me Gusta | 2 Retweets
+Te alcanzo. Me mandas la ubicación.
+[Permalink](https://twitter.com/fernandeznorona/status/1575654203510620160) | 20 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 10:03:45
+**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 17:04:15
 *****
-Se elimina en todos lados, En realidad se elimina el cambio de horario cada seis meses. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1575546889243500545) | 36 Me Gusta | 5 Retweets
+RT @LJyDMX: Y sigue creciendo el apoyo a nuestro Diputado Gerardo @fernandeznorona el pueblo de México en pie de lucha manifestando su deci…
+[Permalink](https://twitter.com/fernandeznorona/status/1575652713911955456) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 09:51:51
+**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 16:31:13
 *****
-De hecho no tiene fuero, se lo retiramos. Pero la @SCJN inventó la patraña de un segundo fuero estatal.
-[Permalink](https://twitter.com/fernandeznorona/status/1575543893474807808) | 52 Me Gusta | 17 Retweets
+12,346 en Facebook y nunca supe qué pasó en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1575644397529862144) | 34 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 09:51:00
+**Fernández Noroña** (**@fernandeznorona**) • 29-09-2022 a las 15:15:16
 *****
-RT @elgatopolitico_: #ÚltimaHora 📛📛
-Duro golpe al INE. Con 259 votos a favor, 212 en contra y 0 abstenciones. La Cámara de Diputados ratifi…
-[Permalink](https://twitter.com/fernandeznorona/status/1575543680118628352) | 0 Me Gusta | 339 Retweets
+RT @JaimeHumbertoPB: ¡Se acabó el horario de verano! 
+
+
+Los invito a ver este #FacebookLive con @fernandeznorona:
+[Permalink](https://twitter.com/fernandeznorona/status/1575625285222821889) | 0 Me Gusta | 14 Retweets

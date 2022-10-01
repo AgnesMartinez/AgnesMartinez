@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 16:58:46
+**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 20:57:48
 *****
-Justificas tu “huevoneria”. Por otra parte, el que tenga ojos para ver, que vea los resultados de la entrega y compromiso de nuestro compañero presidente @lopezobrador_ en materia de seguridad, con datos puros y duros.
-[Permalink](https://twitter.com/fernandeznorona/status/1576013720291246080) | 37 Me Gusta | 11 Retweets
+RT @Patriciomonero: Dos con todo
+[Permalink](https://twitter.com/fernandeznorona/status/1576073873019523072) | 0 Me Gusta | 432 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 16:53:23
+**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 20:56:20
 *****
-RT @TuiteraMx: Alguien que me explique por favor porqué Anabel Hernández tiene tanto interés en ayudar a quienes la amenazaron de muerte y…
-[Permalink](https://twitter.com/fernandeznorona/status/1576012366986125314) | 0 Me Gusta | 147 Retweets
+Ya en el hotel en Villahermosa. Mañana empezaremos temprano de nuevo. Segundo día de gira en Tabasco. Estaré en Huimanguillo, Cárdenas y Teapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1576073507276214272) | 82 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 16:52:41
+**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 20:17:18
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1576012191421300736) | 39 Me Gusta | 5 Retweets
+RT @snmaiznohaypai: Mascota de TABE jajaja
+[Permalink](https://twitter.com/fernandeznorona/status/1576063683608080385) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 16:31:28
+**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 20:15:23
 *****
-@Edd_Campe @lopezobrador_ Súper.
-[Permalink](https://twitter.com/fernandeznorona/status/1576006850616897538) | 35 Me Gusta | 0 Retweets
+Ahí les hablan a más de uno.
+[Permalink](https://twitter.com/fernandeznorona/status/1576063201502179328) | 32 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 16:25:55
+**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 20:14:41
 *****
-Adelante cabeza hueca @VicenteFoxQue, atásquese qué hay lodo.
-[Permalink](https://twitter.com/fernandeznorona/status/1576005451975561216) | 67 Me Gusta | 11 Retweets
+Porfirio, ¿en qué momento se te perdió la inteligencia? @VicenteFoxQue @CarlosLoret no “hackeó” nada. Lo hizo el gobierno Estados Unidos y bien lo sabes. Lamentable que celebres algo así. Tu extravío es infinito.
+[Permalink](https://twitter.com/fernandeznorona/status/1576063024246710273) | 222 Me Gusta | 65 Retweets

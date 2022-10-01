@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 20:57:48
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 09:27:55
 *****
-RT @Patriciomonero: Dos con todo
-[Permalink](https://twitter.com/fernandeznorona/status/1576073873019523072) | 0 Me Gusta | 461 Retweets
+Reforma, Chis. Ahí fue un saludo.
+[Permalink](https://twitter.com/fernandeznorona/status/1576262646873178113) | 32 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 20:56:20
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 09:27:21
 *****
-Ya en el hotel en Villahermosa. Mañana empezaremos temprano de nuevo. Segundo día de gira en Tabasco. Estaré en Huimanguillo, Cárdenas y Teapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1576073507276214272) | 143 Me Gusta | 23 Retweets
+En Huimanguillo.
+[Permalink](https://twitter.com/fernandeznorona/status/1576262506779213826) | 33 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 20:17:18
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 09:26:20
 *****
-RT @snmaiznohaypai: Mascota de TABE jajaja
-[Permalink](https://twitter.com/fernandeznorona/status/1576063683608080385) | 0 Me Gusta | 17 Retweets
+Cárdenas, Tabs.
+[Permalink](https://twitter.com/fernandeznorona/status/1576262250909683712) | 28 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 20:15:23
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 09:18:25
 *****
-Ahí les hablan a más de uno.
-[Permalink](https://twitter.com/fernandeznorona/status/1576063201502179328) | 42 Me Gusta | 8 Retweets
+En Huimanguillo fatal. si no hubiese sido por el grupo de “Chiapas con Noroña”, que viajó desde su entidad a Huimanguillo, habría valió madre la reunión.
+[Permalink](https://twitter.com/fernandeznorona/status/1576260255906140160) | 56 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-09-2022 a las 20:14:41
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 09:08:57
 *****
-Porfirio, ¿en qué momento se te perdió la inteligencia? @VicenteFoxQue @CarlosLoret no “hackeó” nada. Lo hizo el gobierno Estados Unidos y bien lo sabes. Lamentable que celebres algo así. Tu extravío es infinito.
-[Permalink](https://twitter.com/fernandeznorona/status/1576063024246710273) | 357 Me Gusta | 91 Retweets
+Presidente, sea mujer u hombre.
+[Permalink](https://twitter.com/fernandeznorona/status/1576257872970731520) | 63 Me Gusta | 10 Retweets

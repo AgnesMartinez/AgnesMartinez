@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 09:27:55
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 16:34:30
 *****
-Reforma, Chis. Ahí fue un saludo.
-[Permalink](https://twitter.com/fernandeznorona/status/1576262646873178113) | 32 Me Gusta | 8 Retweets
+19,472 en Facebook y, 12,304 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1576370002512338945) | 21 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 09:27:21
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 13:51:44
 *****
-En Huimanguillo.
-[Permalink](https://twitter.com/fernandeznorona/status/1576262506779213826) | 33 Me Gusta | 4 Retweets
+Desde Teapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1576329038876082177) | 177 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 09:26:20
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 13:51:10
 *****
-Cárdenas, Tabs.
-[Permalink](https://twitter.com/fernandeznorona/status/1576262250909683712) | 28 Me Gusta | 4 Retweets
+Así va Teapa. De carpita en carpita.
+[Permalink](https://twitter.com/fernandeznorona/status/1576328896701763588) | 67 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 09:18:25
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 13:44:37
 *****
-En Huimanguillo fatal. si no hubiese sido por el grupo de “Chiapas con Noroña”, que viajó desde su entidad a Huimanguillo, habría valió madre la reunión.
-[Permalink](https://twitter.com/fernandeznorona/status/1576260255906140160) | 56 Me Gusta | 10 Retweets
+Miren la gorra que me acaban de regalar a las 4: 44 PM
+[Permalink](https://twitter.com/fernandeznorona/status/1576327250609422337) | 220 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 09:08:57
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 13:41:59
 *****
-Presidente, sea mujer u hombre.
-[Permalink](https://twitter.com/fernandeznorona/status/1576257872970731520) | 63 Me Gusta | 10 Retweets
+En Teapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1576326584042225665) | 103 Me Gusta | 22 Retweets

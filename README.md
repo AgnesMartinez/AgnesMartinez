@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 16:34:30
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 22:01:00
 *****
-19,472 en Facebook y, 12,304 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1576370002512338945) | 21 Me Gusta | 3 Retweets
+@rigel_deneb @Dr_AVillarreal Ha llegado.
+[Permalink](https://twitter.com/fernandeznorona/status/1576452168772882433) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 13:51:44
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 18:31:13
 *****
-Desde Teapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1576329038876082177) | 177 Me Gusta | 34 Retweets
+Ya en el hotel, mañana nuevamente empezaremos temprano.
+[Permalink](https://twitter.com/fernandeznorona/status/1576399373126148096) | 167 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 13:51:10
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 17:55:18
 *****
-Así va Teapa. De carpita en carpita.
-[Permalink](https://twitter.com/fernandeznorona/status/1576328896701763588) | 67 Me Gusta | 20 Retweets
+RT @Mike28dev: Varias facetas en el proceso de la lectura.
+[Permalink](https://twitter.com/fernandeznorona/status/1576390336544649216) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 13:44:37
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 17:06:44
 *****
-Miren la gorra que me acaban de regalar a las 4: 44 PM
-[Permalink](https://twitter.com/fernandeznorona/status/1576327250609422337) | 220 Me Gusta | 36 Retweets
+Ya vamos de Tepeaca rumbo Villahermosa. Muy motivante el encuentro de hoy en Tepeaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1576378112161763328) | 198 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 13:41:59
+**Fernández Noroña** (**@fernandeznorona**) • 01-10-2022 a las 17:05:56
 *****
-En Teapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1576326584042225665) | 103 Me Gusta | 22 Retweets
+La madrugada de hoy, falleció en un accidente en carretera, nuestra compañera Juanita Torres Carrillo, de Centla Tabasco. Fue candidata del @PTnacionalMX a diputada local en el pasado proceso. Mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1576377910076002304) | 148 Me Gusta | 30 Retweets

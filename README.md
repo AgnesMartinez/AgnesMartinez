@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-10-2022 a las 09:31:04
+**Fernández Noroña** (**@fernandeznorona**) • 02-10-2022 a las 16:55:24
 *****
-Les sugiero que oigan el discurso que hice en Centla, Tabasco, hoy por la mañana. Está en mi página de Facebook.
-[Permalink](https://twitter.com/fernandeznorona/status/1576625827982102528) | 77 Me Gusta | 10 Retweets
+Extraordinario y demoledor comentario.
+[Permalink](https://twitter.com/fernandeznorona/status/1576737650467536896) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-10-2022 a las 08:37:30
+**Fernández Noroña** (**@fernandeznorona**) • 02-10-2022 a las 16:54:58
 *****
-Centla.
-[Permalink](https://twitter.com/fernandeznorona/status/1576612350114893826) | 57 Me Gusta | 14 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 02-10-2022 a las 07:37:45
-*****
-Centla.
-[Permalink](https://twitter.com/fernandeznorona/status/1576597311630716928) | 84 Me Gusta | 9 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 02-10-2022 a las 07:03:33
-*****
-Voy justo al municipio donde ayer murieron los marinos: Centla.
-[Permalink](https://twitter.com/fernandeznorona/status/1576588703610200068) | 136 Me Gusta | 26 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 02-10-2022 a las 05:26:33
-*****
-RT @aifaaero: Te seguimos beneficiando, con un costo bajo de la TUA.
+RT @poisonJadeVine: La derecha marcha el 2 de Octubre contra los crímenes de la derecha.
 
 
-Conoce el costo del mes de octubre del Aeropuerto Internacional Felip…
-[Permalink](https://twitter.com/fernandeznorona/status/1576564294556479488) | 0 Me Gusta | 105 Retweets
+¿Dónde perdieron la verguenza?
+[Permalink](https://twitter.com/fernandeznorona/status/1576737540736184321) | 0 Me Gusta | 19 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 02-10-2022 a las 14:35:47
+*****
+Ya vamos rumbo al aeropuerto de Villahermosa desde Jalpa. Llegando al aeropuerto iniciará la transmisión que calculo hacia las 6:15 de la tarde.
+[Permalink](https://twitter.com/fernandeznorona/status/1576702514044751873) | 110 Me Gusta | 18 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 02-10-2022 a las 14:34:24
+*****
+Miren mi regalo en Jalpa.
+[Permalink](https://twitter.com/fernandeznorona/status/1576702166923972611) | 196 Me Gusta | 36 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 02-10-2022 a las 14:08:22
+*****
+Así va Jalpa.
+[Permalink](https://twitter.com/fernandeznorona/status/1576695615085592577) | 59 Me Gusta | 7 Retweets

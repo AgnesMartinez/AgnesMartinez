@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 19:48:09
+*****
+Pues no, falta el pleno mañana. Pero todo indica que esta ocasión pasará.
+[Permalink](https://twitter.com/fernandeznorona/status/1577143512113741824) | 76 Me Gusta | 17 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 18:27:05
+*****
+Maximiliano Íntimo de José Luis Blasio. Fue su secretario privado.
+[Permalink](https://twitter.com/fernandeznorona/status/1577123111488454656) | 28 Me Gusta | 8 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 17:22:18
+*****
+Aplícate el consejo, mentecato.
+[Permalink](https://twitter.com/fernandeznorona/status/1577106806559502337) | 54 Me Gusta | 7 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 16:49:20
 *****
 Caray, pensé que se lo darían a @FerVilchisMx o a @lximenezfyvie. Esos suecos tan suecos.
-[Permalink](https://twitter.com/fernandeznorona/status/1577098510629208065) | 16 Me Gusta | 1 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1577098510629208065) | 69 Me Gusta | 14 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 16:47:09
 *****
 Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1577097960352931840) | 17 Me Gusta | 1 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 16:34:36
-*****
-11,216 en Facebook y, 8769 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1577094802897702914) | 22 Me Gusta | 1 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 14:40:13
-*****
-Son chingaderas. Parece que el inútil de @MarkoCortes no sirve ni para traer chocolates.
-[Permalink](https://twitter.com/fernandeznorona/status/1577066016018157568) | 41 Me Gusta | 4 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 13:56:38
-*****
-Naa, es culpa de #anlo
-[Permalink](https://twitter.com/fernandeznorona/status/1577055049007910912) | 66 Me Gusta | 12 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1577097960352931840) | 49 Me Gusta | 7 Retweets

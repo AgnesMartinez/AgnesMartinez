@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 19:48:09
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 10:08:20
 *****
-Pues no, falta el pleno mañana. Pero todo indica que esta ocasión pasará.
-[Permalink](https://twitter.com/fernandeznorona/status/1577143512113741824) | 109 Me Gusta | 23 Retweets
+¿Dónde estaba AMLO mientras fusilaban a Hidalgo? En el @PRI_Nacional.
+[Permalink](https://twitter.com/fernandeznorona/status/1577359983775141888) | 82 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 18:27:05
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 09:48:26
 *****
-Maximiliano Íntimo de José Luis Blasio. Fue su secretario privado.
-[Permalink](https://twitter.com/fernandeznorona/status/1577123111488454656) | 32 Me Gusta | 9 Retweets
+Alguien tiene que decirle que para ser fifí debe tener 500 millones de dólares. Mareada y desclasada es lo que es.
+[Permalink](https://twitter.com/fernandeznorona/status/1577354976141123586) | 78 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 17:22:18
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 09:30:18
 *****
-Aplícate el consejo, mentecato.
-[Permalink](https://twitter.com/fernandeznorona/status/1577106806559502337) | 56 Me Gusta | 7 Retweets
+Ay Leoncito, NUNCA sostendrías tu insolencia y tu majadería frente a los titulares de las fuerzas armadas. Eres un cobarde y un miserable @leozuckermann.
+[Permalink](https://twitter.com/fernandeznorona/status/1577350412470042642) | 66 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 16:49:20
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 09:28:33
 *****
-Caray, pensé que se lo darían a @FerVilchisMx o a @lximenezfyvie. Esos suecos tan suecos.
-[Permalink](https://twitter.com/fernandeznorona/status/1577098510629208065) | 76 Me Gusta | 16 Retweets
+¡No que presidente!
+[Permalink](https://twitter.com/fernandeznorona/status/1577349971984236576) | 25 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 16:47:09
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 08:57:42
 *****
-Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1577097960352931840) | 53 Me Gusta | 7 Retweets
+Aunque no haya evidencia de que haya dicho tal cosa, según Internet.
+[Permalink](https://twitter.com/fernandeznorona/status/1577342207023271937) | 52 Me Gusta | 6 Retweets

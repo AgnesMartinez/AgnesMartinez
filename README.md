@@ -1,38 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 09:58:18
+**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 16:49:20
 *****
-RT @Sanx415: Ichi tomando agua de la llave (no de su bebedero)
-[Permalink](https://twitter.com/fernandeznorona/status/1576995072054173696) | 0 Me Gusta | 2 Retweets
+Caray, pensé que se lo darían a @FerVilchisMx o a @lximenezfyvie. Esos suecos tan suecos.
+[Permalink](https://twitter.com/fernandeznorona/status/1577098510629208065) | 16 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 09:55:00
+**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 16:47:09
 *****
-RT @Nubia_SCG: Nadie agredió a Denisse.
-
-
-Gritarle: ¡Fuera!, es tomar una postura hacia lo que representa.
-
-
-Dejen de repetir que se le agred…
-[Permalink](https://twitter.com/fernandeznorona/status/1576994239732678656) | 0 Me Gusta | 12 Retweets
+Xacto
+[Permalink](https://twitter.com/fernandeznorona/status/1577097960352931840) | 17 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 09:54:42
+**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 16:34:36
 *****
-RT @SupsipS: Estoy buscando algo chido en el radio y escucho la voz inconfundible del Fox hablando de las bondades de que nuestros hijos fu…
-[Permalink](https://twitter.com/fernandeznorona/status/1576994165119848449) | 0 Me Gusta | 4 Retweets
+11,216 en Facebook y, 8769 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1577094802897702914) | 22 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 09:53:44
+**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 14:40:13
 *****
-Acabo de enviar mi video columna: “Dresser: entre la hipocresía y la desmemoria”, para @sdpnoticias.
-[Permalink](https://twitter.com/fernandeznorona/status/1576993921489833985) | 87 Me Gusta | 21 Retweets
+Son chingaderas. Parece que el inútil de @MarkoCortes no sirve ni para traer chocolates.
+[Permalink](https://twitter.com/fernandeznorona/status/1577066016018157568) | 41 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 09:11:57
+**Fernández Noroña** (**@fernandeznorona**) • 03-10-2022 a las 13:56:38
 *****
-RT @Nubia_SCG: Tan fuerte anda, que requiere varios destapes.
-
-
-Y nomás con ninguno arranca 😵‍💫
-
-
-El que entendió, entendió 😉
-[Permalink](https://twitter.com/fernandeznorona/status/1576983404444164097) | 0 Me Gusta | 6 Retweets
+Naa, es culpa de #anlo
+[Permalink](https://twitter.com/fernandeznorona/status/1577055049007910912) | 66 Me Gusta | 12 Retweets

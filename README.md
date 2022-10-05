@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 14:03:20
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 19:47:15
 *****
-RT @FBuenAbad:
-[Permalink](https://twitter.com/fernandeznorona/status/1577419124313321473) | 0 Me Gusta | 32 Retweets
+¿Alguien me podría informar que ha dicho el señor X Junior de la votación de hoy en la Cámara de @senadomexicano? @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1577505673373315072) | 649 Me Gusta | 155 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 14:02:07
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 19:45:17
 *****
-Ya me preocupé de que la oposición puede hacer candidato a ninguno.
-[Permalink](https://twitter.com/fernandeznorona/status/1577418817696833536) | 126 Me Gusta | 49 Retweets
+En un debate lo único que se puede hacer es demostrar la vileza del legislador, pero no puede haber censura posible. Artículo 61 constitucional.
+[Permalink](https://twitter.com/fernandeznorona/status/1577505177241718786) | 30 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 14:00:56
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 19:29:22
 *****
-Jejeje
-[Permalink](https://twitter.com/fernandeznorona/status/1577418519846625280) | 60 Me Gusta | 8 Retweets
+RT @BerCorHer: 😂👍
+[Permalink](https://twitter.com/fernandeznorona/status/1577501171110973441) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 13:57:24
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 19:27:33
 *****
-Voy camino a Pueblo quieto, transmitiré desde allá.
-[Permalink](https://twitter.com/fernandeznorona/status/1577417628217286656) | 113 Me Gusta | 14 Retweets
+Por cierto, si regresaras a la universidad, te reprobarían por elemental. Decir que levantarse temprano es populismo; es decir que las clases de derecho que te daban a las siete de la mañana eran populismo. Bruto, brutísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1577500713147830279) | 99 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 13:48:50
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 19:25:48
 *****
-Están geniales.
-[Permalink](https://twitter.com/fernandeznorona/status/1577415472986787840) | 85 Me Gusta | 18 Retweets
+Pues levántate temprano, mamón, a ver si por lo menos eso puedes hacer.
+[Permalink](https://twitter.com/fernandeznorona/status/1577500274066804736) | 238 Me Gusta | 39 Retweets

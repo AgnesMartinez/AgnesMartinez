@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 10:08:20
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 14:03:20
 *****
-¿Dónde estaba AMLO mientras fusilaban a Hidalgo? En el @PRI_Nacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1577359983775141888) | 82 Me Gusta | 10 Retweets
+RT @FBuenAbad:
+[Permalink](https://twitter.com/fernandeznorona/status/1577419124313321473) | 0 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 09:48:26
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 14:02:07
 *****
-Alguien tiene que decirle que para ser fifí debe tener 500 millones de dólares. Mareada y desclasada es lo que es.
-[Permalink](https://twitter.com/fernandeznorona/status/1577354976141123586) | 78 Me Gusta | 21 Retweets
+Ya me preocupé de que la oposición puede hacer candidato a ninguno.
+[Permalink](https://twitter.com/fernandeznorona/status/1577418817696833536) | 126 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 09:30:18
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 14:00:56
 *****
-Ay Leoncito, NUNCA sostendrías tu insolencia y tu majadería frente a los titulares de las fuerzas armadas. Eres un cobarde y un miserable @leozuckermann.
-[Permalink](https://twitter.com/fernandeznorona/status/1577350412470042642) | 66 Me Gusta | 22 Retweets
+Jejeje
+[Permalink](https://twitter.com/fernandeznorona/status/1577418519846625280) | 60 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 09:28:33
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 13:57:24
 *****
-¡No que presidente!
-[Permalink](https://twitter.com/fernandeznorona/status/1577349971984236576) | 25 Me Gusta | 5 Retweets
+Voy camino a Pueblo quieto, transmitiré desde allá.
+[Permalink](https://twitter.com/fernandeznorona/status/1577417628217286656) | 113 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 08:57:42
+**Fernández Noroña** (**@fernandeznorona**) • 04-10-2022 a las 13:48:50
 *****
-Aunque no haya evidencia de que haya dicho tal cosa, según Internet.
-[Permalink](https://twitter.com/fernandeznorona/status/1577342207023271937) | 52 Me Gusta | 6 Retweets
+Están geniales.
+[Permalink](https://twitter.com/fernandeznorona/status/1577415472986787840) | 85 Me Gusta | 18 Retweets

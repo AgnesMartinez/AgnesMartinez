@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-10-2022 a las 09:55:07
+**Fernández Noroña** (**@fernandeznorona**) • 05-10-2022 a las 16:48:14
 *****
-Acompáñenme el 12 de noviembre a las 12 del día en la plaza de Santo Domingo.
-[Permalink](https://twitter.com/fernandeznorona/status/1577719043334848512) | 47 Me Gusta | 15 Retweets
+RT @Arquithierry:
+[Permalink](https://twitter.com/fernandeznorona/status/1577823008764227585) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-10-2022 a las 09:42:44
+**Fernández Noroña** (**@fernandeznorona**) • 05-10-2022 a las 16:46:29
 *****
-RT @Ceciliaaaoooo: Que pasaría si los de morena insultaran a Téllez así como ella los insulto ayer ?
-[Permalink](https://twitter.com/fernandeznorona/status/1577715927012999168) | 0 Me Gusta | 21 Retweets
+Lo de la masacre en Guerrero es terrible. La matanza incluye al alcalde del lugar y a su padre. Muy desesperante la situación.
+[Permalink](https://twitter.com/fernandeznorona/status/1577822567238619136) | 70 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-10-2022 a las 08:45:33
+**Fernández Noroña** (**@fernandeznorona**) • 05-10-2022 a las 16:33:03
 *****
-“No hay hombres sin mancha ni imperfecciones, y menos en el campo de la política”. Luis Castillo Ledón.
-[Permalink](https://twitter.com/fernandeznorona/status/1577701539686367232) | 70 Me Gusta | 22 Retweets
+Condeno y lamento el asesinato de la diputada morelense Gabriela Marín. Mi solidaridad con familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1577819189426806785) | 123 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-10-2022 a las 08:39:32
+**Fernández Noroña** (**@fernandeznorona**) • 05-10-2022 a las 16:25:12
 *****
-A ver cuándo procede contra él @ARBedolla. Es una vergüenza que ande libre y encima pretenda postularse.
-[Permalink](https://twitter.com/fernandeznorona/status/1577700022669418497) | 68 Me Gusta | 25 Retweets
+RT @msalguerb: Mataron a balazos a diputada Gabriela Marín en Cuernavaca - Infobae
+[Permalink](https://twitter.com/fernandeznorona/status/1577817211078516736) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-10-2022 a las 08:36:01
+**Fernández Noroña** (**@fernandeznorona**) • 05-10-2022 a las 16:21:23
 *****
-RT @aran_tirado: 📚 En los próximos días participaré en la Feria Internacional del Libro que se celebra en el Zócalo de la #CDMX Nos vemos e…
-[Permalink](https://twitter.com/fernandeznorona/status/1577699138451476480) | 0 Me Gusta | 30 Retweets
+7747 en Facebook y, 7285 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1577816251249745920) | 22 Me Gusta | 3 Retweets

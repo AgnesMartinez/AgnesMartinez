@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-10-2022 a las 14:53:01
+**Fernández Noroña** (**@fernandeznorona**) • 08-10-2022 a las 20:26:34
 *****
-Tijuana.
-[Permalink](https://twitter.com/fernandeznorona/status/1578881177741824000) | 108 Me Gusta | 33 Retweets
+Toda mi solidaridad para familiares y amigos del senador Fausto López y su esposa Pilar Hernández.
+[Permalink](https://twitter.com/fernandeznorona/status/1578965115793440770) | 174 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-10-2022 a las 14:46:46
+**Fernández Noroña** (**@fernandeznorona**) • 08-10-2022 a las 20:01:45
 *****
-Corrijo, será a las nueve de la noche porque faltan dos eventos todavía en Tijuana.
-[Permalink](https://twitter.com/fernandeznorona/status/1578879605439868929) | 128 Me Gusta | 20 Retweets
+6888 en Facebook y, 8609 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1578958873943080961) | 45 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-10-2022 a las 14:45:03
+**Fernández Noroña** (**@fernandeznorona**) • 08-10-2022 a las 18:53:10
 *****
-La video charla será a las ocho de la noche. Por qué el evento de Tijuana a las 3:30 PM, Son las 5:30 de la tarde allá.
-[Permalink](https://twitter.com/fernandeznorona/status/1578879172985823232) | 55 Me Gusta | 9 Retweets
+RT @Nubia_SCG: Con 57 K votos en este sondeo, Fernández Noroña se lleva el 53% de los mismos.
+
+
+Así, de carpita en carpita ♥️🇲🇽
+
+
+\#NoroñaEsPu…
+[Permalink](https://twitter.com/fernandeznorona/status/1578941614495395840) | 0 Me Gusta | 64 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-10-2022 a las 14:44:07
+**Fernández Noroña** (**@fernandeznorona**) • 08-10-2022 a las 18:10:07
 *****
-En CANACO, Tijuana
-[Permalink](https://twitter.com/fernandeznorona/status/1578878938251923456) | 71 Me Gusta | 15 Retweets
+Atardecer en Tijuana del éste.
+[Permalink](https://twitter.com/fernandeznorona/status/1578930780578885632) | 76 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-10-2022 a las 09:26:29
+**Fernández Noroña** (**@fernandeznorona**) • 08-10-2022 a las 18:09:41
 *****
-Pues no compañera Diputada, necesitas 500 millones de dólares mínimo. Alguien se confunde y se cree fifí pero no lo es.
-[Permalink](https://twitter.com/fernandeznorona/status/1578799001289527298) | 146 Me Gusta | 35 Retweets
+Batalla Nacional en Tijuana del éste.
+[Permalink](https://twitter.com/fernandeznorona/status/1578930671971860481) | 76 Me Gusta | 18 Retweets

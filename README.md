@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 19:52:20
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 00:11:17
 *****
-Ya a punto de salir en @viajaVolaris. Terriblemente majadera la sobrecargo. Voy de Tijuana a México.
-[Permalink](https://twitter.com/fernandeznorona/status/1579318891490467843) | 234 Me Gusta | 36 Retweets
+Ya les mandé mensaje.
+[Permalink](https://twitter.com/fernandeznorona/status/1579384056542027777) | 17 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 19:45:47
+**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 23:49:09
 *****
-“No he cambiado; y ojalá nunca cambie. No hay nada peor que un hombre idealista a los veinte, burgues a los cuarenta, avaro a los cincuenta y con locura senil a los setenta“. Francisco J. Múgica.
-[Permalink](https://twitter.com/fernandeznorona/status/1579317242239791104) | 123 Me Gusta | 33 Retweets
+Ésto en 2017. Éste fue el aviso que nos dejaron en la calle de San Luis Potosí, en la casa de @Sanx415, cuando denunciamos la venta del campo militar número 1F. @Ascension528Hz tenía guardado sus muebles ahí por los daños del sismo y nos dejaron este lindo mensaje.
+[Permalink](https://twitter.com/fernandeznorona/status/1579378488456675330) | 46 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 18:50:55
+**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 23:44:56
 *****
-@Doppledlkb Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1579303434615812096) | 6 Me Gusta | 0 Retweets
+Ya en casa. Fueron profesionales los que robaron la casa. Sabían por lo que venían y sólo eso se llevaron. Usaron guantes y una llave maestra para entrar.
+[Permalink](https://twitter.com/fernandeznorona/status/1579377428237254656) | 246 Me Gusta | 61 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 18:50:11
+**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 23:43:59
 *****
-Esta pintura blanca detrás de la puerta es muy rara, no estaba pintado así.
-[Permalink](https://twitter.com/fernandeznorona/status/1579303251844792325) | 173 Me Gusta | 36 Retweets
+“antes del parecer de nuestros caudillos, muy respetados para nosotros y muy dignos de confianza, deben estar sobre todo nuestros principios, debemos ser hombres libres”. Francisco J Múgica.
+[Permalink](https://twitter.com/fernandeznorona/status/1579377186477596672) | 36 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 18:46:17
+**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 23:03:59
 *****
-Así dejaron mi casa los ladrones.
-[Permalink](https://twitter.com/fernandeznorona/status/1579302269882753026) | 800 Me Gusta | 247 Retweets
+En verdad nefasta la mayor parte de la tripulación del vuelo @viajaVolaris 810 que viajó de Tijuana a la capital del país.
+[Permalink](https://twitter.com/fernandeznorona/status/1579367121624379394) | 79 Me Gusta | 13 Retweets

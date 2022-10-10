@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 16:38:01
+**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 19:52:20
 *****
-No me podré quedar en la casa. Están realizando los peritajes.
-[Permalink](https://twitter.com/fernandeznorona/status/1579269989575843840) | 129 Me Gusta | 15 Retweets
+Ya a punto de salir en @viajaVolaris. Terriblemente majadera la sobrecargo. Voy de Tijuana a México.
+[Permalink](https://twitter.com/fernandeznorona/status/1579318891490467843) | 234 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 16:31:49
+**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 19:45:47
 *****
-16,834 en Facebook y, 25,375 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1579268429034311680) | 51 Me Gusta | 14 Retweets
+“No he cambiado; y ojalá nunca cambie. No hay nada peor que un hombre idealista a los veinte, burgues a los cuarenta, avaro a los cincuenta y con locura senil a los setenta“. Francisco J. Múgica.
+[Permalink](https://twitter.com/fernandeznorona/status/1579317242239791104) | 123 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 15:05:18
+**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 18:50:55
 *****
-Dinero, se llevaron dinero.
-[Permalink](https://twitter.com/fernandeznorona/status/1579246655865430016) | 73 Me Gusta | 20 Retweets
+@Doppledlkb Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1579303434615812096) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 14:44:44
+**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 18:50:11
 *****
-Asaltaron mi casa en Leandro Valle 14-29. La puerta estaba abierta. Dejaron patas para arriba la recámara, que fue donde revisaron.
-[Permalink](https://twitter.com/fernandeznorona/status/1579241479666798594) | 1,212 Me Gusta | 401 Retweets
+Esta pintura blanca detrás de la puerta es muy rara, no estaba pintado así.
+[Permalink](https://twitter.com/fernandeznorona/status/1579303251844792325) | 173 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 12:16:47
+**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 18:46:17
 *****
-Ensenada.
-[Permalink](https://twitter.com/fernandeznorona/status/1579204245764460544) | 149 Me Gusta | 30 Retweets
+Así dejaron mi casa los ladrones.
+[Permalink](https://twitter.com/fernandeznorona/status/1579302269882753026) | 800 Me Gusta | 247 Retweets

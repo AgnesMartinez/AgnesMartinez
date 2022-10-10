@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 00:11:17
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 09:29:29
 *****
-Ya les mandé mensaje.
-[Permalink](https://twitter.com/fernandeznorona/status/1579384056542027777) | 17 Me Gusta | 0 Retweets
+RT @aran_tirado: 📚📣 Esta tarde de México presentamos mi libro #ElLawfareGolpesDeEstadoEnNombreDeLaLey publicado por @AkalEditor y coeditado…
+[Permalink](https://twitter.com/fernandeznorona/status/1579524531584397312) | 0 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 23:49:09
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 09:28:30
 *****
-Ésto en 2017. Éste fue el aviso que nos dejaron en la calle de San Luis Potosí, en la casa de @Sanx415, cuando denunciamos la venta del campo militar número 1F. @Ascension528Hz tenía guardado sus muebles ahí por los daños del sismo y nos dejaron este lindo mensaje.
-[Permalink](https://twitter.com/fernandeznorona/status/1579378488456675330) | 46 Me Gusta | 18 Retweets
+RT @jon_aleman7: Compañeras, compañeros, es hoy! Acompañen a @aran_tirado y @fernandeznorona en la feria del libro de CDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1579524285743648770) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 23:44:56
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 09:24:39
 *****
-Ya en casa. Fueron profesionales los que robaron la casa. Sabían por lo que venían y sólo eso se llevaron. Usaron guantes y una llave maestra para entrar.
-[Permalink](https://twitter.com/fernandeznorona/status/1579377428237254656) | 246 Me Gusta | 61 Retweets
+RT @lximenezsarro: Hasta en el pueblo más recóndito de Jalisco hay bardas con #EsClaudia.
+
+
+Próximamente mandaré a pintar bardas con el #EsL…
+[Permalink](https://twitter.com/fernandeznorona/status/1579523316721004545) | 0 Me Gusta | 56 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 23:43:59
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 09:21:13
 *****
-“antes del parecer de nuestros caudillos, muy respetados para nosotros y muy dignos de confianza, deben estar sobre todo nuestros principios, debemos ser hombres libres”. Francisco J Múgica.
-[Permalink](https://twitter.com/fernandeznorona/status/1579377186477596672) | 36 Me Gusta | 3 Retweets
+@maurojas360 Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1579522452694388736) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-10-2022 a las 23:03:59
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 09:19:13
 *****
-En verdad nefasta la mayor parte de la tripulación del vuelo @viajaVolaris 810 que viajó de Tijuana a la capital del país.
-[Permalink](https://twitter.com/fernandeznorona/status/1579367121624379394) | 79 Me Gusta | 13 Retweets
+Ahí tienes @Monix139.
+[Permalink](https://twitter.com/fernandeznorona/status/1579521949826715648) | 39 Me Gusta | 18 Retweets

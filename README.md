@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 16:09:42
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 21:08:01
 *****
-Hoy, en la feria del libro del Zócalo.
-[Permalink](https://twitter.com/fernandeznorona/status/1579625249414713346) | 149 Me Gusta | 26 Retweets
+Pero muy sencillo: emplazo a @VivaAerobus, @viajaVolaris, @Aeromexico y a las autoridades aeroportuarias (@SCT_mx), a dar a conocer el documento de la autoridad sanitaria que obliga a usar cubrebocas en aeropuertos y en viajes en avión.
+[Permalink](https://twitter.com/fernandeznorona/status/1579700324918792192) | 78 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 16:07:16
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 21:05:57
 *****
-“Si no defiendes algo, morirás por nada”. Malcolm X, citado por Arantxa Tirado.
-[Permalink](https://twitter.com/fernandeznorona/status/1579624636605952001) | 45 Me Gusta | 15 Retweets
+Pues ha pasado un día y @viajaVolaris no puede hacerme llegar el documento de la autoridad sanitaria que me obliga a usar cubrebocas en un vuelo.
+[Permalink](https://twitter.com/fernandeznorona/status/1579699805471006720) | 76 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 14:25:12
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 21:01:55
 *****
-¿Qué me perdí?
-[Permalink](https://twitter.com/fernandeznorona/status/1579598953351643138) | 32 Me Gusta | 4 Retweets
+Chingón.
+[Permalink](https://twitter.com/fernandeznorona/status/1579698787970617345) | 17 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 14:24:42
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 21:01:20
 *****
-RT @PonchoGutz: Qué mala suerte, compré el libro de El Rey del Cash y me dieron uno mal impreso, me salió sin la página de fuentes.
-[Permalink](https://twitter.com/fernandeznorona/status/1579598828600451073) | 0 Me Gusta | 1,119 Retweets
+fe de erratas: ¿Ah qué…?
+[Permalink](https://twitter.com/fernandeznorona/status/1579698640935084033) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 14:24:16
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 20:56:50
 *****
-RT @julioastillero: No le den vueltas: si un trabajo periodístico de denuncia de hechos corruptos carece de pruebas no es un trabajo period…
-[Permalink](https://twitter.com/fernandeznorona/status/1579598716734144512) | 0 Me Gusta | 1,294 Retweets
+@liliaaguilarmx Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1579697510762762245) | 6 Me Gusta | 0 Retweets

@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 09:29:29
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 16:09:42
 *****
-RT @aran_tirado: 📚📣 Esta tarde de México presentamos mi libro #ElLawfareGolpesDeEstadoEnNombreDeLaLey publicado por @AkalEditor y coeditado…
-[Permalink](https://twitter.com/fernandeznorona/status/1579524531584397312) | 0 Me Gusta | 23 Retweets
+Hoy, en la feria del libro del Zócalo.
+[Permalink](https://twitter.com/fernandeznorona/status/1579625249414713346) | 149 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 09:28:30
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 16:07:16
 *****
-RT @jon_aleman7: Compañeras, compañeros, es hoy! Acompañen a @aran_tirado y @fernandeznorona en la feria del libro de CDMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1579524285743648770) | 0 Me Gusta | 10 Retweets
+“Si no defiendes algo, morirás por nada”. Malcolm X, citado por Arantxa Tirado.
+[Permalink](https://twitter.com/fernandeznorona/status/1579624636605952001) | 45 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 09:24:39
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 14:25:12
 *****
-RT @lximenezsarro: Hasta en el pueblo más recóndito de Jalisco hay bardas con #EsClaudia.
-
-
-Próximamente mandaré a pintar bardas con el #EsL…
-[Permalink](https://twitter.com/fernandeznorona/status/1579523316721004545) | 0 Me Gusta | 56 Retweets
+¿Qué me perdí?
+[Permalink](https://twitter.com/fernandeznorona/status/1579598953351643138) | 32 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 09:21:13
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 14:24:42
 *****
-@maurojas360 Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1579522452694388736) | 7 Me Gusta | 1 Retweets
+RT @PonchoGutz: Qué mala suerte, compré el libro de El Rey del Cash y me dieron uno mal impreso, me salió sin la página de fuentes.
+[Permalink](https://twitter.com/fernandeznorona/status/1579598828600451073) | 0 Me Gusta | 1,119 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 09:19:13
+**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 14:24:16
 *****
-Ahí tienes @Monix139.
-[Permalink](https://twitter.com/fernandeznorona/status/1579521949826715648) | 39 Me Gusta | 18 Retweets
+RT @julioastillero: No le den vueltas: si un trabajo periodístico de denuncia de hechos corruptos carece de pruebas no es un trabajo period…
+[Permalink](https://twitter.com/fernandeznorona/status/1579598716734144512) | 0 Me Gusta | 1,294 Retweets

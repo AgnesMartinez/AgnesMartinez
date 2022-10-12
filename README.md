@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 02:13:22
+**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 12:09:08
 *****
-@JuanRom36961565 @tatclouthier Decir.
-[Permalink](https://twitter.com/fernandeznorona/status/1579777166664876034) | 15 Me Gusta | 3 Retweets
+RT @NachoRgz: Pues como naaadie realmente está comprando el Rey del Cash ya lo empiezan a regalar masivamente por Whatsapp plop
+[Permalink](https://twitter.com/fernandeznorona/status/1579927097103241216) | 0 Me Gusta | 658 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 21:08:01
+**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 12:07:28
 *****
-Pero muy sencillo: emplazo a @VivaAerobus, @viajaVolaris, @Aeromexico y a las autoridades aeroportuarias (@SCT_mx), a dar a conocer el documento de la autoridad sanitaria que obliga a usar cubrebocas en aeropuertos y en viajes en avión.
-[Permalink](https://twitter.com/fernandeznorona/status/1579700324918792192) | 283 Me Gusta | 61 Retweets
+Jajajajejejejijijijojojojujuju. ¡Arde, sectario!
+[Permalink](https://twitter.com/fernandeznorona/status/1579926677148209153) | 92 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 21:05:57
+**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 12:02:53
 *****
-Pues ha pasado un día y @viajaVolaris no puede hacerme llegar el documento de la autoridad sanitaria que me obliga a usar cubrebocas en un vuelo.
-[Permalink](https://twitter.com/fernandeznorona/status/1579699805471006720) | 391 Me Gusta | 68 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1579925526357377024) | 144 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 21:01:55
+**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 11:44:22
 *****
-Chingón.
-[Permalink](https://twitter.com/fernandeznorona/status/1579698787970617345) | 37 Me Gusta | 3 Retweets
+RT @MVSNoticias: #EntrevistaMVS 🔊 
+
+
+"La gente será quien elegirá quien será el relevo del compañero presidente”: @fernandeznorona
+
+
+102.5 FM…
+[Permalink](https://twitter.com/fernandeznorona/status/1579920865458024448) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-10-2022 a las 21:01:20
+**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 11:05:28
 *****
-fe de erratas: ¿Ah qué…?
-[Permalink](https://twitter.com/fernandeznorona/status/1579698640935084033) | 35 Me Gusta | 3 Retweets
+Ez de ke lo agarraron dormido…zzzzzzzz
+[Permalink](https://twitter.com/fernandeznorona/status/1579911074580951042) | 137 Me Gusta | 35 Retweets

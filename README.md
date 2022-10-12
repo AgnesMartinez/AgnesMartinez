@@ -1,32 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 12:09:08
+**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 20:23:43
 *****
-RT @NachoRgz: Pues como naaadie realmente está comprando el Rey del Cash ya lo empiezan a regalar masivamente por Whatsapp plop
-[Permalink](https://twitter.com/fernandeznorona/status/1579927097103241216) | 0 Me Gusta | 658 Retweets
+Te dicen creyente y, del movimiento aunque mientas e intrigues como la derecha. Abur.
+[Permalink](https://twitter.com/fernandeznorona/status/1580051563652870144) | 37 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 12:07:28
+**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 20:17:00
 *****
-Jajajajejejejijijijojojojujuju. ¡Arde, sectario!
-[Permalink](https://twitter.com/fernandeznorona/status/1579926677148209153) | 92 Me Gusta | 24 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 12:02:53
-*****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1579925526357377024) | 144 Me Gusta | 29 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 11:44:22
-*****
-RT @MVSNoticias: #EntrevistaMVS 🔊 
+RT @lximenezsarro: El Rey del Cash se preocupa por tu economía, por eso te préstamos más por tus cosas.
 
 
-"La gente será quien elegirá quien será el relevo del compañero presidente”: @fernandeznorona
+Casa de empeño El Rey del Cash.
+[Permalink](https://twitter.com/fernandeznorona/status/1580049872681861120) | 0 Me Gusta | 106 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 19:41:49
+*****
+Me acaban de informar que mañana anunciarán, totalmente confirmado, que se quita el uso obligatorio del cubrebocas en aeropuertos y al interior de las aeronaves. Creo que un poquito tuve que ver. Qué buena jornada de hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1580041018707410945) | 622 Me Gusta | 107 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 18:57:31
+*****
+RT @elisaalanis: ▶️ "Con toda la descalificación, es un logro colectivo"
 
 
-102.5 FM…
-[Permalink](https://twitter.com/fernandeznorona/status/1579920865458024448) | 0 Me Gusta | 8 Retweets
+@fernandeznorona celebra que AMLO lo incluyera entre los 5 candid…
+[Permalink](https://twitter.com/fernandeznorona/status/1580029872365522945) | 0 Me Gusta | 42 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 11:05:28
+**Fernández Noroña** (**@fernandeznorona**) • 11-10-2022 a las 18:56:32
 *****
-Ez de ke lo agarraron dormido…zzzzzzzz
-[Permalink](https://twitter.com/fernandeznorona/status/1579911074580951042) | 137 Me Gusta | 35 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1580029625261957121) | 77 Me Gusta | 20 Retweets

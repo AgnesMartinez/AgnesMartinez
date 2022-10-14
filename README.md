@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-10-2022 a las 22:49:44
+**Fernández Noroña** (**@fernandeznorona**) • 13-10-2022 a las 16:59:24
 *****
-Apenas llegando a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1580450699640721408) | 124 Me Gusta | 12 Retweets
+RT @SupsipS: Me acordé de mi ex el arrepentido.
+Está muy orgulloso de como "salió adelante y gracias a sus capacidades le ha ido muy bien",…
+[Permalink](https://twitter.com/fernandeznorona/status/1580724921919229952) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-10-2022 a las 21:12:47
+**Fernández Noroña** (**@fernandeznorona**) • 13-10-2022 a las 16:58:04
 *****
-Saliendo de la @Mx_Diputados rumbo a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1580426299709231104) | 282 Me Gusta | 23 Retweets
+Oye pasmarote, seguro ni has leído el libro. Haz una rueda de prensa con las acusaciones y las pruebas correspondientes. Si anexas las pruebas, te acompañaré a presentar la denuncia. De lo contrario, discúlpate de tus intrigas. @MarkoCortes
+[Permalink](https://twitter.com/fernandeznorona/status/1580724587381215233) | 24 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-10-2022 a las 21:03:49
+**Fernández Noroña** (**@fernandeznorona**) • 13-10-2022 a las 16:55:46
 *****
-En la ⁦@Mx_Diputados⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1580424042599043072) | 374 Me Gusta | 81 Retweets
+Aloe vera o un unguento con antibiótico.
+[Permalink](https://twitter.com/fernandeznorona/status/1580724007782866944) | 4 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-10-2022 a las 17:01:55
+**Fernández Noroña** (**@fernandeznorona**) • 13-10-2022 a las 16:54:02
 *****
-Pues no, la video charla será a las nueve.
-[Permalink](https://twitter.com/fernandeznorona/status/1580363165371465728) | 168 Me Gusta | 27 Retweets
+… asesinado en Jalisco por no usar cubrebocas. Seguro en los viajes en avión de estos dos años anteriores, no te obligaban a usar el cubrebocas. Te haces que no entiendes, o quizás efectivamente no entiendes.
+[Permalink](https://twitter.com/fernandeznorona/status/1580723571768557569) | 35 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-10-2022 a las 16:17:14
+**Fernández Noroña** (**@fernandeznorona**) • 13-10-2022 a las 16:54:01
 *****
-Estoy en el debate en @Mx_Diputados. Haré la video charla hacia las ocho de la noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1580351923013660673) | 303 Me Gusta | 41 Retweets
+La ignorante eres tú, te dices  conocedora de todos los temas y ni siquiera creo que seas buena en estomatología. Sobre el cubrebocas, a pesar de ser voluntario, lo hicieron obligatorio una serie de autoridades menores. Se te olvida el joven Giovanni López asesinado…
+[Permalink](https://twitter.com/fernandeznorona/status/1580723568551153664) | 45 Me Gusta | 14 Retweets

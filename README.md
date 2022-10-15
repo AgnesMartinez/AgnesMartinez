@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-10-2022 a las 19:30:48
+**Fernández Noroña** (**@fernandeznorona**) • 15-10-2022 a las 09:06:17
 *****
-Con las luces apagadas y alumbrando con el celular, se ve perfectamente la amenaza que dejaron en el supuesto asalto a mi casa.
-[Permalink](https://twitter.com/fernandeznorona/status/1581125410481324032) | 975 Me Gusta | 393 Retweets
+Me las regalaron, pero no me las pondré para que no me acusen de actos anticipados de campaña.
+[Permalink](https://twitter.com/fernandeznorona/status/1581330633275543553) | 129 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-10-2022 a las 18:21:36
+**Fernández Noroña** (**@fernandeznorona**) • 15-10-2022 a las 09:03:07
 *****
-RT @angycare: @g_quadri
-[Permalink](https://twitter.com/fernandeznorona/status/1581107994162438144) | 0 Me Gusta | 60 Retweets
+Cardel, Antigua, Ver.
+[Permalink](https://twitter.com/fernandeznorona/status/1581329838576525313) | 46 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-10-2022 a las 17:50:02
+**Fernández Noroña** (**@fernandeznorona**) • 15-10-2022 a las 08:21:54
 *****
-Estaba haciendo una ironía.
-[Permalink](https://twitter.com/fernandeznorona/status/1581100053976199168) | 62 Me Gusta | 7 Retweets
+Desayunamos en Rinconada, garnachas y gorditas de frijoles. Espléndidas.
+[Permalink](https://twitter.com/fernandeznorona/status/1581319464687390720) | 116 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-10-2022 a las 16:17:13
+**Fernández Noroña** (**@fernandeznorona**) • 15-10-2022 a las 06:34:40
 *****
-E incluso quedó permanentemente el derecho de la gente a recuperar su dinero en cualquier momento. Mientras que en la ley vigente lo perdías después de seis años.
-[Permalink](https://twitter.com/fernandeznorona/status/1581076695401971712) | 268 Me Gusta | 111 Retweets
+Obvio, ya llegué a Veracruz.
+[Permalink](https://twitter.com/fernandeznorona/status/1581292480170848256) | 103 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-10-2022 a las 16:14:24
+**Fernández Noroña** (**@fernandeznorona**) • 15-10-2022 a las 06:32:31
 *****
-7186 en Facebook y, 6400 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1581075984178036737) | 160 Me Gusta | 19 Retweets
+“…la libertad como la revolución no tienen patria, su patria es el mundo y usted es un verdadero revolucionario”. Carlos León, revolucionario venezolano a Francisco J Múgica.
+[Permalink](https://twitter.com/fernandeznorona/status/1581291936740446210) | 46 Me Gusta | 10 Retweets

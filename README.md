@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-10-2022 a las 23:07:55
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 08:30:38
 *****
-RT @AnaLaris6: Amigos noroñistas, habrá alguien que vaya el 12 de novedades a la Reunión Informativa del diputado @fernandeznorona desde Cu…
-[Permalink](https://twitter.com/fernandeznorona/status/1581542437465755650) | 0 Me Gusta | 30 Retweets
+Cosamaloapan.
+[Permalink](https://twitter.com/fernandeznorona/status/1581684048262418432) | 70 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-10-2022 a las 19:38:31
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 08:27:02
 *****
-Hasta ahorita estoy cayendo en cuenta. Abrazote doble.
-[Permalink](https://twitter.com/fernandeznorona/status/1581489741706366976) | 70 Me Gusta | 12 Retweets
+Cosamaloapan.
+[Permalink](https://twitter.com/fernandeznorona/status/1581683144146948096) | 47 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-10-2022 a las 19:27:31
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 07:17:53
 *****
-Primero usa la @. Segundo, no seas miserable. Primero decían que era @JesusRCuevas, ahora que soy yo. Dejen de intrigar.
-[Permalink](https://twitter.com/fernandeznorona/status/1581486971415056384) | 66 Me Gusta | 9 Retweets
+En la misma feria del libro a la salida de la presentación.
+[Permalink](https://twitter.com/fernandeznorona/status/1581665744139431936) | 61 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-10-2022 a las 16:09:42
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 07:17:07
 *****
-6044 en Facebook y, 7207 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1581437189967163392) | 76 Me Gusta | 15 Retweets
+Fotos son de la presentación de “Regeneración” segunda y tercera etapa. Feria del libro del Zócalo
+[Permalink](https://twitter.com/fernandeznorona/status/1581665548727103490) | 63 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-10-2022 a las 16:08:48
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 06:18:05
 *****
-En la plaza de la Campana, Veracruz puerto.
-[Permalink](https://twitter.com/fernandeznorona/status/1581436962455814144) | 139 Me Gusta | 31 Retweets
+Ya vamos rumbo a Cosamaloapan.
+[Permalink](https://twitter.com/fernandeznorona/status/1581650691562426371) | 179 Me Gusta | 26 Retweets

@@ -3,17 +3,17 @@
 **Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 19:00:51
 *****
 Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1581842651430629376) | 82 Me Gusta | 11 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1581842651430629376) | 96 Me Gusta | 14 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:57:39
 *****
 RT @timodelpino: En breve nos dirán que la “vacuna” era voluntaria y que allá cada uno con su efecto secundario, y todos tan panchos.
-[Permalink](https://twitter.com/fernandeznorona/status/1581841843083350017) | 0 Me Gusta | 317 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1581841843083350017) | 0 Me Gusta | 320 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:42:05
 *****
 RT @H_Apfelschorle: Acabo de regresar a #Mérida de #Progreso. Salí a caminar. A la salida de Progreso, me detuvieron unos policías por el a…
-[Permalink](https://twitter.com/fernandeznorona/status/1581837926060523520) | 0 Me Gusta | 41 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1581837926060523520) | 0 Me Gusta | 45 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:41:45
 *****
@@ -23,4 +23,4 @@ RT @H_Apfelschorle: Acabo de regresar a #Mérida de #Progreso. Salí a caminar. 
 **Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:40:57
 *****
 Ya en el hotel Madrid, en Minatitlán. Me dormiré temprano.
-[Permalink](https://twitter.com/fernandeznorona/status/1581837640415879168) | 244 Me Gusta | 19 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1581837640415879168) | 279 Me Gusta | 20 Retweets

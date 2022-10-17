@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 08:30:38
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 16:52:21
 *****
-Cosamaloapan.
-[Permalink](https://twitter.com/fernandeznorona/status/1581684048262418432) | 70 Me Gusta | 19 Retweets
+RT @vifex: Que hermoso!!!
+[Permalink](https://twitter.com/fernandeznorona/status/1581810309685051392) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 08:27:02
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 14:06:28
 *****
-Cosamaloapan.
-[Permalink](https://twitter.com/fernandeznorona/status/1581683144146948096) | 47 Me Gusta | 10 Retweets
+Vamos rumbo Acayucan, de ahí transmitiré.
+[Permalink](https://twitter.com/fernandeznorona/status/1581768564394319873) | 138 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 07:17:53
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 12:15:18
 *****
-En la misma feria del libro a la salida de la presentación.
-[Permalink](https://twitter.com/fernandeznorona/status/1581665744139431936) | 61 Me Gusta | 20 Retweets
+En Ciudad Isla, Veracruz.
+[Permalink](https://twitter.com/fernandeznorona/status/1581740590571880449) | 100 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 07:17:07
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 11:24:43
 *****
-Fotos son de la presentación de “Regeneración” segunda y tercera etapa. Feria del libro del Zócalo
-[Permalink](https://twitter.com/fernandeznorona/status/1581665548727103490) | 63 Me Gusta | 14 Retweets
+Mañana volaré por Minatitlán. ¿Recomiendan quedarme a dormir en Minatitlán o en Acayucan?
+[Permalink](https://twitter.com/fernandeznorona/status/1581727858120327169) | 304 Me Gusta | 38 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 06:18:05
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 10:43:30
 *****
-Ya vamos rumbo a Cosamaloapan.
-[Permalink](https://twitter.com/fernandeznorona/status/1581650691562426371) | 179 Me Gusta | 26 Retweets
+@lauralun03 @LaydaSansores @mario_delgado Ha permitido.
+[Permalink](https://twitter.com/fernandeznorona/status/1581717485900136449) | 5 Me Gusta | 0 Retweets

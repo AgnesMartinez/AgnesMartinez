@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 19:00:51
+**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 09:56:42
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1581842651430629376) | 96 Me Gusta | 14 Retweets
+Quiero oír la opinión de los que gritaban histéricos que era la única vacuna que servía y que exigían les pusieran Pfizer.
+[Permalink](https://twitter.com/fernandeznorona/status/1582068098345336832) | 28 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:57:39
+**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 09:50:45
 *****
-RT @timodelpino: En breve nos dirán que la “vacuna” era voluntaria y que allá cada uno con su efecto secundario, y todos tan panchos.
-[Permalink](https://twitter.com/fernandeznorona/status/1581841843083350017) | 0 Me Gusta | 320 Retweets
+Ve disfrazado de @PonchoGutz.
+[Permalink](https://twitter.com/fernandeznorona/status/1582066600785883137) | 14 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:42:05
+**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 09:49:41
 *****
-RT @H_Apfelschorle: Acabo de regresar a #Mérida de #Progreso. Salí a caminar. A la salida de Progreso, me detuvieron unos policías por el a…
-[Permalink](https://twitter.com/fernandeznorona/status/1581837926060523520) | 0 Me Gusta | 45 Retweets
+Te hablas frente al espejo y ni cuenta te das, señor XJunior. Tu dinero no te hace ni mejor, ni más inteligente, en sentido literal eres un X, encima, junior. @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1582066333587734528) | 30 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:41:45
+**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 09:47:36
 *****
-@JuanRom36961565 Vez.
-[Permalink](https://twitter.com/fernandeznorona/status/1581837843735154690) | 5 Me Gusta | 1 Retweets
+Fue un líder cabronsísimo. Nefasto, pero sin duda fue un líder.
+[Permalink](https://twitter.com/fernandeznorona/status/1582065807198019584) | 24 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:40:57
+**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 09:12:05
 *****
-Ya en el hotel Madrid, en Minatitlán. Me dormiré temprano.
-[Permalink](https://twitter.com/fernandeznorona/status/1581837640415879168) | 279 Me Gusta | 20 Retweets
+Muchas felicidades a @RicardoBSalinas en su cumpleaños. Más allá de diferencias, ninguna debe llevarse al plano personal.
+[Permalink](https://twitter.com/fernandeznorona/status/1582056868993970177) | 38 Me Gusta | 6 Retweets

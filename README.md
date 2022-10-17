@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 16:52:21
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 19:00:51
 *****
-RT @vifex: Que hermoso!!!
-[Permalink](https://twitter.com/fernandeznorona/status/1581810309685051392) | 0 Me Gusta | 6 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1581842651430629376) | 82 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 14:06:28
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:57:39
 *****
-Vamos rumbo Acayucan, de ahí transmitiré.
-[Permalink](https://twitter.com/fernandeznorona/status/1581768564394319873) | 138 Me Gusta | 18 Retweets
+RT @timodelpino: En breve nos dirán que la “vacuna” era voluntaria y que allá cada uno con su efecto secundario, y todos tan panchos.
+[Permalink](https://twitter.com/fernandeznorona/status/1581841843083350017) | 0 Me Gusta | 317 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 12:15:18
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:42:05
 *****
-En Ciudad Isla, Veracruz.
-[Permalink](https://twitter.com/fernandeznorona/status/1581740590571880449) | 100 Me Gusta | 25 Retweets
+RT @H_Apfelschorle: Acabo de regresar a #Mérida de #Progreso. Salí a caminar. A la salida de Progreso, me detuvieron unos policías por el a…
+[Permalink](https://twitter.com/fernandeznorona/status/1581837926060523520) | 0 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 11:24:43
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:41:45
 *****
-Mañana volaré por Minatitlán. ¿Recomiendan quedarme a dormir en Minatitlán o en Acayucan?
-[Permalink](https://twitter.com/fernandeznorona/status/1581727858120327169) | 304 Me Gusta | 38 Retweets
+@JuanRom36961565 Vez.
+[Permalink](https://twitter.com/fernandeznorona/status/1581837843735154690) | 5 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 10:43:30
+**Fernández Noroña** (**@fernandeznorona**) • 16-10-2022 a las 18:40:57
 *****
-@lauralun03 @LaydaSansores @mario_delgado Ha permitido.
-[Permalink](https://twitter.com/fernandeznorona/status/1581717485900136449) | 5 Me Gusta | 0 Retweets
+Ya en el hotel Madrid, en Minatitlán. Me dormiré temprano.
+[Permalink](https://twitter.com/fernandeznorona/status/1581837640415879168) | 244 Me Gusta | 19 Retweets

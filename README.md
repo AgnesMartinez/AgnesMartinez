@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 09:56:42
+**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 16:58:47
 *****
-Quiero oír la opinión de los que gritaban histéricos que era la única vacuna que servía y que exigían les pusieran Pfizer.
-[Permalink](https://twitter.com/fernandeznorona/status/1582068098345336832) | 28 Me Gusta | 16 Retweets
+@MarthaCajigas Zonzo.
+[Permalink](https://twitter.com/fernandeznorona/status/1582174318728912896) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 09:50:45
+**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 16:57:01
 *****
-Ve disfrazado de @PonchoGutz.
-[Permalink](https://twitter.com/fernandeznorona/status/1582066600785883137) | 14 Me Gusta | 3 Retweets
+RT @aga10mx: @virdman6 @fernandeznorona Si te vacunaron con las "vacunas" ARNm Pfizer o Moderna, olvídalo, jamás te vacunaron.
+
+
+Fuiste obje…
+[Permalink](https://twitter.com/fernandeznorona/status/1582173873822310400) | 0 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 09:49:41
+**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 16:56:15
 *****
-Te hablas frente al espejo y ni cuenta te das, señor XJunior. Tu dinero no te hace ni mejor, ni más inteligente, en sentido literal eres un X, encima, junior. @ClaudioXGG.
-[Permalink](https://twitter.com/fernandeznorona/status/1582066333587734528) | 30 Me Gusta | 11 Retweets
+Me imagino que el compañero entrecomillado también es sarcasmo.
+[Permalink](https://twitter.com/fernandeznorona/status/1582173681588977664) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 09:47:36
+**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 16:41:52
 *****
-Fue un líder cabronsísimo. Nefasto, pero sin duda fue un líder.
-[Permalink](https://twitter.com/fernandeznorona/status/1582065807198019584) | 24 Me Gusta | 3 Retweets
+RT @aran_tirado: Una foto de los pasados días con mi profesor y tutor doctoral en la UNAM, el Dr.John Saxe-Fernández, un referente absoluto…
+[Permalink](https://twitter.com/fernandeznorona/status/1582170059006300162) | 0 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 09:12:05
+**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 16:40:30
 *****
-Muchas felicidades a @RicardoBSalinas en su cumpleaños. Más allá de diferencias, ninguna debe llevarse al plano personal.
-[Permalink](https://twitter.com/fernandeznorona/status/1582056868993970177) | 38 Me Gusta | 6 Retweets
+Ya lo hicimos. El ahorrador puede reclamar su dinero en cualquier momento. Algo que la ley no preveía. A los seis años prescribían las cuentas que no tuvieran movimiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1582169718537875456) | 33 Me Gusta | 9 Retweets

@@ -1,27 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 04:01:37
+**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 09:01:10
 *****
-Vamos saliendo del Pueblo quieto rumbo a @Mx_Diputados. De hecho salimos 6: 40.
-[Permalink](https://twitter.com/fernandeznorona/status/1582341125486301185) | 26 Me Gusta | 1 Retweets
+Lo compro.
+[Permalink](https://twitter.com/fernandeznorona/status/1582416510806462475) | 24 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 18:46:09
+**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 09:00:45
 *****
-Quienes critican a las personas que me apoyan, no se dan cuenta que son seres libres, que mantienen una posición crítica y que se han sumado producto del convencimiento de mi lucha de toda la vida. Ese núcleo duro, que es un colectivo sin serlo, logrará que alcancemos el objetivo
-[Permalink](https://twitter.com/fernandeznorona/status/1582201337609039872) | 532 Me Gusta | 125 Retweets
+RT @_BarbaraCabrera: ¡Buen día! 😄
+
+
+\#FelizMartes 🙌
+
+
+(Sean felices sin joder al prójimo: no corran, no empujen, no griten, no escupan, no fum…
+[Permalink](https://twitter.com/fernandeznorona/status/1582416405546553346) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 18:36:10
+**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 09:00:37
 *****
-RT @elgatopolitico_: #Urgente 📛📛
-Duro golpe de China a Europa. El gigante asiatico detiene las ventas de gas licuado a Europa y a extranjer…
-[Permalink](https://twitter.com/fernandeznorona/status/1582198825271185408) | 0 Me Gusta | 396 Retweets
+RT @Amandarosars: Este chofer @Uber_MEX acaba de robar todas las maletas de una amiga en el aeropuerto de CDMX. Le dijo “baja y te alcanzo…
+[Permalink](https://twitter.com/fernandeznorona/status/1582416371329429505) | 0 Me Gusta | 11,956 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 18:35:23
+**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 08:52:37
 *****
-RT @VictoriaAl100: Assshhhhh ya mejor me voy a dormir, ya me harto tuiter preguntándome qué si estoy segura de que quiero publicar eso 🙄 no…
-[Permalink](https://twitter.com/fernandeznorona/status/1582198628726120448) | 0 Me Gusta | 64 Retweets
+RT @politicomx: El gobierno de la CDMX suspendió los espectaculares que la alcaldesa de Cuauhtémoc, @SandraCuevas_ colocó en las calles de…
+[Permalink](https://twitter.com/fernandeznorona/status/1582414357115174912) | 0 Me Gusta | 53 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-10-2022 a las 18:33:48
+**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 08:33:14
 *****
-RT @Dvdzov: EEUU amenaza con invadir Haití y los "antiinvasiones imperialistas" aun no salen con las banderitas haitianas...
-[Permalink](https://twitter.com/fernandeznorona/status/1582198229390589952) | 0 Me Gusta | 1,631 Retweets
+El “cuestionamiento” son presunciones sin ningún sustento, intriga pura. Lo contesto el compañero presidente con absoluta contundencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1582409479189954570) | 27 Me Gusta | 3 Retweets

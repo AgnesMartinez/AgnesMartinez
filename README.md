@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 16:53:15
+**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:12:28
 *****
-Cada vez peor la plaza de Leandro Valle. Hecha un absoluto estacionamiento ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1582535315197042688) | 5 Me Gusta | 1 Retweets
+¿Cuándo vino Chilinsky?
+[Permalink](https://twitter.com/fernandeznorona/status/1582570346603241472) | 69 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 16:49:19
+**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:05:33
 *****
-Así se les dice en Sinaloa a quienes se hacen cirugía plástica de busto y de nalga.
-[Permalink](https://twitter.com/fernandeznorona/status/1582534321927135232) | 20 Me Gusta | 8 Retweets
+Mira @rubengluengas.
+[Permalink](https://twitter.com/fernandeznorona/status/1582568608156520448) | 70 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 16:13:24
+**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:04:36
 *****
-6577 en Facebook y, 8783 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1582525284255170560) | 37 Me Gusta | 6 Retweets
+RT @AleCamph: Agradezco mucho las menciones de mi querido diputado @fernandeznorona de ayer y hoy en sus video charlas, es un honor, aquí y…
+[Permalink](https://twitter.com/fernandeznorona/status/1582568367356923904) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 13:13:59
+**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:03:53
 *****
-Hoy en tribuna.
-[Permalink](https://twitter.com/fernandeznorona/status/1582480135277940736) | 198 Me Gusta | 46 Retweets
+RT @laoctavadigital: #VIDEO | Noroña: Fue @ChecoBarrera quien 'saboteó' la reunión con @Luis_C_Sandoval
+
+
+@fernandeznorona mencionó el ofici…
+[Permalink](https://twitter.com/fernandeznorona/status/1582568189329694720) | 0 Me Gusta | 100 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 11:25:27
+**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:01:08
 *****
-Quieren hacerlo de manera telemática. Ya parece que se va a animar a venir.
-[Permalink](https://twitter.com/fernandeznorona/status/1582452819482750976) | 42 Me Gusta | 12 Retweets
+RT @Marblanca3: Aquí otro sondeo sin bots en YouTube, ⁦@fernandeznorona⁩ sigue arrasando
+[Permalink](https://twitter.com/fernandeznorona/status/1582567495742812160) | 0 Me Gusta | 148 Retweets

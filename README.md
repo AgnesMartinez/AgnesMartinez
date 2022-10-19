@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:12:28
+**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 08:58:00
 *****
-¿Cuándo vino Chilinsky?
-[Permalink](https://twitter.com/fernandeznorona/status/1582570346603241472) | 77 Me Gusta | 14 Retweets
+Leer tus bobadas @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1582778102492835840) | 47 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:05:33
+**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 08:55:15
 *****
-Mira @rubengluengas.
-[Permalink](https://twitter.com/fernandeznorona/status/1582568608156520448) | 83 Me Gusta | 28 Retweets
+Bueno, que necedad. No hubo tal comparecencia. Ya cuando le crees a @MovCiudadanoMX hay un problema.
+[Permalink](https://twitter.com/fernandeznorona/status/1582777410084167684) | 21 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:04:36
+**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 08:54:08
 *****
-RT @AleCamph: Agradezco mucho las menciones de mi querido diputado @fernandeznorona de ayer y hoy en sus video charlas, es un honor, aquí y…
-[Permalink](https://twitter.com/fernandeznorona/status/1582568367356923904) | 0 Me Gusta | 12 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:03:53
-*****
-RT @laoctavadigital: #VIDEO | Noroña: Fue @ChecoBarrera quien 'saboteó' la reunión con @Luis_C_Sandoval
+RT @taller2006: Estas son las noticias que no le agradan a la oposición porque son medidas a favor de los que menos tienen.
 
 
-@fernandeznorona mencionó el ofici…
-[Permalink](https://twitter.com/fernandeznorona/status/1582568189329694720) | 0 Me Gusta | 107 Retweets
+Habrá un aumen…
+[Permalink](https://twitter.com/fernandeznorona/status/1582777126914121729) | 0 Me Gusta | 55 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:01:08
+**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 08:50:25
 *****
-RT @Marblanca3: Aquí otro sondeo sin bots en YouTube, ⁦@fernandeznorona⁩ sigue arrasando
-[Permalink](https://twitter.com/fernandeznorona/status/1582567495742812160) | 0 Me Gusta | 154 Retweets
+Así será. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1582776190497980416) | 15 Me Gusta | 2 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 08:49:53
+*****
+A @mario_dico no le alcanza ni para un pan con su sueldo de traidorzuelo. Lo tienen de asesor en la fracción del @PRI_Nacional en @Mx_Diputados. Parece que su desvergüenza es del tamaño de su necesidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1582776058696597508) | 55 Me Gusta | 15 Retweets

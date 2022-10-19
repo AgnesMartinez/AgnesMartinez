@@ -3,12 +3,12 @@
 **Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:12:28
 *****
 ¿Cuándo vino Chilinsky?
-[Permalink](https://twitter.com/fernandeznorona/status/1582570346603241472) | 69 Me Gusta | 13 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1582570346603241472) | 77 Me Gusta | 14 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:05:33
 *****
 Mira @rubengluengas.
-[Permalink](https://twitter.com/fernandeznorona/status/1582568608156520448) | 70 Me Gusta | 25 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1582568608156520448) | 83 Me Gusta | 28 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:04:36
 *****
@@ -21,9 +21,9 @@ RT @laoctavadigital: #VIDEO | Noroña: Fue @ChecoBarrera quien 'saboteó' la reu
 
 
 @fernandeznorona mencionó el ofici…
-[Permalink](https://twitter.com/fernandeznorona/status/1582568189329694720) | 0 Me Gusta | 100 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1582568189329694720) | 0 Me Gusta | 107 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 18-10-2022 a las 19:01:08
 *****
 RT @Marblanca3: Aquí otro sondeo sin bots en YouTube, ⁦@fernandeznorona⁩ sigue arrasando
-[Permalink](https://twitter.com/fernandeznorona/status/1582567495742812160) | 0 Me Gusta | 148 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1582567495742812160) | 0 Me Gusta | 154 Retweets

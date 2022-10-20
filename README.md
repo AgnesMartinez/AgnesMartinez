@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 16:28:02
+**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 19:55:46
 *****
-Seguimos ⁦@UCS_GCDMX⁩ ⁦@Claudiashein⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1582891356627705856) | 8 Me Gusta | 1 Retweets
+Tampoco me refería a discutir contigo pasmarote, simplemente acreditó que te urge un curso de comprensión de lectura. La carencia de chayote te afectado bárbaramente. El que fue periodista y se le olvidó es otro @rivapa
+[Permalink](https://twitter.com/fernandeznorona/status/1582943633270898689) | 69 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 14:43:54
+**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 19:52:08
 *****
-Ya está la patrulla se fue como a la plaza de Leandro Valle sigue siendo estacionamiento. ¿Me podrían explicar la razón ⁦@UCS_GCDMX⁩? ⁦@Claudiashein⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1582865150884790272) | 37 Me Gusta | 11 Retweets
+RT @LaydaSansores: Hace 25 años encabezamos un movimiento para lograr la apertura democrática en #Campeche, una fecha simbólica para los ca…
+[Permalink](https://twitter.com/fernandeznorona/status/1582942718824656896) | 0 Me Gusta | 83 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 13:27:44
+**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 19:27:29
 *****
-Esta gente cree que si no me nombra, no existo. Lo peor de todo es la cara que pondrán cuando les gane, en su momento, la candidatura.
-[Permalink](https://twitter.com/fernandeznorona/status/1582845981019676672) | 62 Me Gusta | 18 Retweets
+@VVMichua @VictoriaAl100 Ah
+[Permalink](https://twitter.com/fernandeznorona/status/1582936514878545920) | 5 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 13:21:30
+**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 19:27:18
 *****
-RT @Bgg6017: 📌“El INE va al extranjero,buscando el respaldo q le niega la sociedad mexicana.
-Los consejeros del INE traicionan a México,al…
-[Permalink](https://twitter.com/fernandeznorona/status/1582844410806800384) | 0 Me Gusta | 25 Retweets
+@martuchi63 @VictoriaAl100 Del.
+[Permalink](https://twitter.com/fernandeznorona/status/1582936467889827840) | 4 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 13:20:19
+**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 19:26:36
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1582844116412440577) | 11 Me Gusta | 2 Retweets
+@JuanRom36961565 Parece.
+[Permalink](https://twitter.com/fernandeznorona/status/1582936293146734592) | 7 Me Gusta | 0 Retweets

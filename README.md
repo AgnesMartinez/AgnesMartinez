@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-10-2022 a las 16:48:12
+**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 09:47:30
 *****
-8634 en Facebook y, 7607 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1583258816409268224) | 137 Me Gusta | 19 Retweets
+Bajo nivel es decir dictadura Castro chavista; de una nulidad de rigor intelectual, justificable para el diputado Caro Quintero.
+[Permalink](https://twitter.com/fernandeznorona/status/1583515335075905541) | 28 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-10-2022 a las 16:42:34
+**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 09:38:23
 *****
-Lo dicho, cada vez estamos peor en la plaza de Leandro valle echa un absoluto estacionamiento. ⁦@UCS_GCDMX⁩. Aparte hay otros tres vehículos pegados a la iglesia.
-[Permalink](https://twitter.com/fernandeznorona/status/1583257400207114240) | 119 Me Gusta | 33 Retweets
+RT @alvaro_delgado: Ojo: El magnate @RicardoBSalinas sólo liquidó un adeudo de 2 mil 772 millones de pesos que se negó por años a pagar, pe…
+[Permalink](https://twitter.com/fernandeznorona/status/1583513038870958082) | 0 Me Gusta | 452 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-10-2022 a las 13:10:59
+**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 09:36:08
 *****
-RT @EmilioP75745634: El imbécil del secretario de turismo de Acapulco, David Abarca ignora qué en el estado de Guerrero hay un decreto el c…
-[Permalink](https://twitter.com/fernandeznorona/status/1583204152938668032) | 0 Me Gusta | 5 Retweets
+Estás perdido Dip. Caro Quintero.
+[Permalink](https://twitter.com/fernandeznorona/status/1583512473834962945) | 28 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-10-2022 a las 06:41:13
+**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 09:32:32
 *****
-Ya en @Mx_Diputados
-[Permalink](https://twitter.com/fernandeznorona/status/1583106064345489408) | 261 Me Gusta | 28 Retweets
+La plaza de Leandro Valle NO es estacionamiento. Cada día peor. ¿Les pagan ⁦@UCS_GCDMX⁩? Compañera ⁦@Claudiashein⁩ ¿Qué pasa?
+[Permalink](https://twitter.com/fernandeznorona/status/1583511567764946944) | 55 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-10-2022 a las 19:55:46
+**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 09:25:43
 *****
-Tampoco me refería a discutir contigo pasmarote, simplemente acreditó que te urge un curso de comprensión de lectura. La carencia de chayote te afectado bárbaramente. El que fue periodista y se le olvidó es otro @rivapa
-[Permalink](https://twitter.com/fernandeznorona/status/1582943633270898689) | 196 Me Gusta | 53 Retweets
+RT @rubengluengas: Nuestro querido JR no quiere saber nada del mundo. Lleva literalmente horas ahí metido #Video 😻😻
+[Permalink](https://twitter.com/fernandeznorona/status/1583509851455770624) | 0 Me Gusta | 18 Retweets

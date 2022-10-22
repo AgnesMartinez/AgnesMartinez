@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 09:47:30
+**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 16:39:37
 *****
-Bajo nivel es decir dictadura Castro chavista; de una nulidad de rigor intelectual, justificable para el diputado Caro Quintero.
-[Permalink](https://twitter.com/fernandeznorona/status/1583515335075905541) | 28 Me Gusta | 8 Retweets
+13,235 en Facebook y, 11,063 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1583619046011871232) | 26 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 09:38:23
+**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 14:18:27
 *****
-RT @alvaro_delgado: Ojo: El magnate @RicardoBSalinas sólo liquidó un adeudo de 2 mil 772 millones de pesos que se negó por años a pagar, pe…
-[Permalink](https://twitter.com/fernandeznorona/status/1583513038870958082) | 0 Me Gusta | 452 Retweets
+Voy a comer en el “Bismarkcito”.
+[Permalink](https://twitter.com/fernandeznorona/status/1583583521972494337) | 140 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 09:36:08
+**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 13:18:25
 *****
-Estás perdido Dip. Caro Quintero.
-[Permalink](https://twitter.com/fernandeznorona/status/1583512473834962945) | 28 Me Gusta | 2 Retweets
+¿Ellos presumen que compartieron con un ex usurpador #TomandanteBorolas alias @FelipeCalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1583568414030721025) | 76 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 09:32:32
+**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 13:16:26
 *****
-La plaza de Leandro Valle NO es estacionamiento. Cada día peor. ¿Les pagan ⁦@UCS_GCDMX⁩? Compañera ⁦@Claudiashein⁩ ¿Qué pasa?
-[Permalink](https://twitter.com/fernandeznorona/status/1583511567764946944) | 55 Me Gusta | 14 Retweets
+@SinLinea_Mx ¡Zas!
+[Permalink](https://twitter.com/fernandeznorona/status/1583567915210579969) | 74 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 09:25:43
+**Fernández Noroña** (**@fernandeznorona**) • 21-10-2022 a las 13:14:57
 *****
-RT @rubengluengas: Nuestro querido JR no quiere saber nada del mundo. Lleva literalmente horas ahí metido #Video 😻😻
-[Permalink](https://twitter.com/fernandeznorona/status/1583509851455770624) | 0 Me Gusta | 18 Retweets
+Sophia Loren.
+[Permalink](https://twitter.com/fernandeznorona/status/1583567541451952128) | 31 Me Gusta | 5 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 16:11:34
+**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 22:09:17
 *****
-8121 en Facebook y, 9585 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1583974376302526464) | 39 Me Gusta | 6 Retweets
+@SraCristita @Arman_doCA Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1584064396107534336) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 13:20:54
+**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 22:00:31
 *****
-Ya vamos de Loreto rumbo a Comondú.
-[Permalink](https://twitter.com/fernandeznorona/status/1583931426805727232) | 157 Me Gusta | 17 Retweets
+Si haces una crítica de manera pública, no debes molestarte si te critican de manera pública. Debes aplicar el mismo consejo que das. Es simple, muestra la ecuanimidad que me exiges, con el ejemplo.
+[Permalink](https://twitter.com/fernandeznorona/status/1584062192005304320) | 16 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 12:28:51
+**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 21:51:51
 *****
-Tiene miles de millones de dólares. No es significativo, y son tan voraces y rapaces, que hasta eso les pesa.
-[Permalink](https://twitter.com/fernandeznorona/status/1583918325641330690) | 49 Me Gusta | 12 Retweets
+Sí, estuvo maravilloso con el atardecer enmarcando la asamblea.
+[Permalink](https://twitter.com/fernandeznorona/status/1584060011755732992) | 16 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 10:51:18
+**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 21:48:38
 *****
-Loreto.
-[Permalink](https://twitter.com/fernandeznorona/status/1583893778242248706) | 167 Me Gusta | 39 Retweets
+@QuesaVerdadess Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1584059199343906816) | 18 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 05:33:03
+**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 17:14:29
 *****
-Vamos rumbo a Loreto desde La Paz.
-[Permalink](https://twitter.com/fernandeznorona/status/1583813687114334209) | 435 Me Gusta | 51 Retweets
+Comondú.
+[Permalink](https://twitter.com/fernandeznorona/status/1583990210626347008) | 173 Me Gusta | 44 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 07:09:07
+**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 16:30:42
 *****
-Ayer en Comondú.
-[Permalink](https://twitter.com/fernandeznorona/status/1584200249631191040) | 209 Me Gusta | 33 Retweets
+8054 en Facebook y, 7219 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1584341577408737281) | 24 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 07:08:49
+**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 15:21:36
 *****
-Ayer al término de la asamblea en Comondú.
-[Permalink](https://twitter.com/fernandeznorona/status/1584200176558047233) | 103 Me Gusta | 29 Retweets
+Cabo San Lucas
+[Permalink](https://twitter.com/fernandeznorona/status/1584324186620600321) | 64 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 22:09:17
+**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 15:21:15
 *****
-@SraCristita @Arman_doCA Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1584064396107534336) | 20 Me Gusta | 4 Retweets
+Cabo San Lucas
+[Permalink](https://twitter.com/fernandeznorona/status/1584324101312630786) | 47 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 22:00:31
+**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 15:20:12
 *****
-Si haces una crítica de manera pública, no debes molestarte si te critican de manera pública. Debes aplicar el mismo consejo que das. Es simple, muestra la ecuanimidad que me exiges, con el ejemplo.
-[Permalink](https://twitter.com/fernandeznorona/status/1584062192005304320) | 105 Me Gusta | 25 Retweets
+Cabo San Lucas.
+[Permalink](https://twitter.com/fernandeznorona/status/1584323834462683136) | 38 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-10-2022 a las 21:51:51
+**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 15:19:32
 *****
-Sí, estuvo maravilloso con el atardecer enmarcando la asamblea.
-[Permalink](https://twitter.com/fernandeznorona/status/1584060011755732992) | 74 Me Gusta | 11 Retweets
+Cabo San Lucas.
+[Permalink](https://twitter.com/fernandeznorona/status/1584323666346577920) | 33 Me Gusta | 6 Retweets

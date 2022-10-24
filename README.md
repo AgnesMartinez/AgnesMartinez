@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 19:31:38
+**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 10:19:48
 *****
-¿Qué pasó?
-[Permalink](https://twitter.com/fernandeznorona/status/1584387112165511168) | 33 Me Gusta | 0 Retweets
+¡Qué rico!
+[Permalink](https://twitter.com/fernandeznorona/status/1584610624113639425) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 19:30:18
+**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 10:14:13
 *****
-¿Qué pasó?
-[Permalink](https://twitter.com/fernandeznorona/status/1584386775790673920) | 25 Me Gusta | 0 Retweets
+Aquí “Gabo André”, que no sé si salió del clóset o pretende burlarse. Para los que celebran al agresor.
+[Permalink](https://twitter.com/fernandeznorona/status/1584609221462659085) | 12 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 19:22:28
+**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 10:08:37
 *****
-¿No dije la verdad?
-[Permalink](https://twitter.com/fernandeznorona/status/1584384804245544960) | 31 Me Gusta | 1 Retweets
+El agresor es un acomplejado que se dice llamar “Gabo” -Gabriel- André, presumió que transmitió desde el salón de ⁦@AmericanExpress⁩. Veremos si me agrede la próxima vez que coincidamos en ese lugar.
+[Permalink](https://twitter.com/fernandeznorona/status/1584607810582679555) | 14 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 19:17:42
+**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 09:34:20
 *****
-“En los pocos y breves momentos de su primer discurso político, surgió de él un poder de comunicación que hablaba inexorablemente a desconocidos que lo amaban y que lo injuriaban, como a todos los profetas”. Taylor Branch sobre Martin Luther King.
-[Permalink](https://twitter.com/fernandeznorona/status/1584383605345685504) | 71 Me Gusta | 20 Retweets
+San José del Cabo ⁦@El_Universal_Mx⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1584599185600323584) | 24 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 17:23:47
+**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 09:31:30
 *****
-San José del Cabo.
-[Permalink](https://twitter.com/fernandeznorona/status/1584354935637889024) | 157 Me Gusta | 31 Retweets
+Recién aterrizamos en el D.F. Íbamos a aterrizar pero el avión volvió a elevarse. Francamente creo que tiene que ver con la saturación del @AICM_mx. Las líneas aéreas siguen saboteando al @aifaaero.
+[Permalink](https://twitter.com/fernandeznorona/status/1584598469494599680) | 96 Me Gusta | 18 Retweets

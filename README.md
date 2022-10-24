@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 16:30:42
+**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 19:31:38
 *****
-8054 en Facebook y, 7219 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1584341577408737281) | 24 Me Gusta | 1 Retweets
+¿Qué pasó?
+[Permalink](https://twitter.com/fernandeznorona/status/1584387112165511168) | 31 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 15:21:36
+**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 19:30:18
 *****
-Cabo San Lucas
-[Permalink](https://twitter.com/fernandeznorona/status/1584324186620600321) | 64 Me Gusta | 6 Retweets
+¿Qué pasó?
+[Permalink](https://twitter.com/fernandeznorona/status/1584386775790673920) | 23 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 15:21:15
+**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 19:22:28
 *****
-Cabo San Lucas
-[Permalink](https://twitter.com/fernandeznorona/status/1584324101312630786) | 47 Me Gusta | 9 Retweets
+¿No dije la verdad?
+[Permalink](https://twitter.com/fernandeznorona/status/1584384804245544960) | 30 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 15:20:12
+**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 19:17:42
 *****
-Cabo San Lucas.
-[Permalink](https://twitter.com/fernandeznorona/status/1584323834462683136) | 38 Me Gusta | 7 Retweets
+“En los pocos y breves momentos de su primer discurso político, surgió de él un poder de comunicación que hablaba inexorablemente a desconocidos que lo amaban y que lo injuriaban, como a todos los profetas”. Taylor Branch sobre Martin Luther King.
+[Permalink](https://twitter.com/fernandeznorona/status/1584383605345685504) | 59 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 15:19:32
+**Fernández Noroña** (**@fernandeznorona**) • 23-10-2022 a las 17:23:47
 *****
-Cabo San Lucas.
-[Permalink](https://twitter.com/fernandeznorona/status/1584323666346577920) | 33 Me Gusta | 6 Retweets
+San José del Cabo.
+[Permalink](https://twitter.com/fernandeznorona/status/1584354935637889024) | 144 Me Gusta | 30 Retweets

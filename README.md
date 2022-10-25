@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 16:33:23
+**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 19:22:35
 *****
-‘No permitas que ningún hombre te haga caer tan bajo como para que le odies’. Martín Luther King citando a Booker T. Washington
-[Permalink](https://twitter.com/fernandeznorona/status/1584704640678969344) | 41 Me Gusta | 12 Retweets
+RT @RaulGtzNR: Ford Lobo placas NGY1090 atropelló a una mujer y se dio a la fuga, ocurrió en la Vía Morelos a la altura de Laureles...
+Ayud…
+[Permalink](https://twitter.com/fernandeznorona/status/1584747220389490688) | 0 Me Gusta | 4,859 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 13:47:33
+**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 19:22:19
 *****
-“… Estando de buen humor”.  Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1584662909556097024) | 25 Me Gusta | 3 Retweets
+RT @trinomonero: Este gabinete es lo máximo…
+[Permalink](https://twitter.com/fernandeznorona/status/1584747154484367361) | 0 Me Gusta | 67 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 13:46:24
+**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 19:19:59
 *****
-¿Qué pasó ahí @Richardalier?
-[Permalink](https://twitter.com/fernandeznorona/status/1584662619151269888) | 35 Me Gusta | 13 Retweets
+“Llega un momento en que la gente se cansa de ser aplastada por la opresión. Llega un momento en que la gente se cansa de permanecer hundida en el abismo de la explotación y de la injusticia”. Martin Luther King. Esto no lo entenderá la derecha nunca.
+[Permalink](https://twitter.com/fernandeznorona/status/1584746566895620098) | 42 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 13:44:07
+**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 19:14:14
 *****
-El “Guapo Ben”.
-[Permalink](https://twitter.com/fernandeznorona/status/1584662043293949952) | 204 Me Gusta | 38 Retweets
+@cesargutipri @J_Fdz_Menendez Transas.
+[Permalink](https://twitter.com/fernandeznorona/status/1584745119915208704) | 8 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 11:16:30
+**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 19:12:46
 *****
-Voy rumbo a pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1584624895895678976) | 181 Me Gusta | 19 Retweets
+RT @SupsipS: Muy interesante sondeo el realizado por el Comité Jalisco de Apoyo a Gerardo Fernández Noroña.
+Nomás no fue puntero en Tonalá,…
+[Permalink](https://twitter.com/fernandeznorona/status/1584744751823085568) | 0 Me Gusta | 24 Retweets

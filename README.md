@@ -1,27 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 04:02:38
+**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 08:54:28
 *****
-Ya vamos rumbo a @Mx_Diputados desde Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1584878096003366913) | 22 Me Gusta | 2 Retweets
+RT @mlucascir: Hicieron un drama por la construcción del aeropuerto Felipe Ángeles.
+
+
+Mejor hubieran usado toda su enegía, tiempo y esfuerzo…
+[Permalink](https://twitter.com/fernandeznorona/status/1584951539189178368) | 0 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 19:22:35
+**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 08:52:41
 *****
-RT @RaulGtzNR: Ford Lobo placas NGY1090 atropelló a una mujer y se dio a la fuga, ocurrió en la Vía Morelos a la altura de Laureles...
-Ayud…
-[Permalink](https://twitter.com/fernandeznorona/status/1584747220389490688) | 0 Me Gusta | 5,574 Retweets
+RT @marhuez: @SraCristita Al parecer el problema es que Richard hizo un vídeo con el video del aeropuerto del diputado @fernandeznorona y l…
+[Permalink](https://twitter.com/fernandeznorona/status/1584951088599662593) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 19:22:19
+**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 07:11:45
 *****
-RT @trinomonero: Este gabinete es lo máximo…
-[Permalink](https://twitter.com/fernandeznorona/status/1584747154484367361) | 0 Me Gusta | 77 Retweets
+RT @Helioflores_mex: Marioneto.
+[Permalink](https://twitter.com/fernandeznorona/status/1584925687906959360) | 0 Me Gusta | 831 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 19:19:59
+**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 07:10:23
 *****
-“Llega un momento en que la gente se cansa de ser aplastada por la opresión. Llega un momento en que la gente se cansa de permanecer hundida en el abismo de la explotación y de la injusticia”. Martin Luther King. Esto no lo entenderá la derecha nunca.
-[Permalink](https://twitter.com/fernandeznorona/status/1584746566895620098) | 55 Me Gusta | 21 Retweets
+RT @karlatenorio3: Y qué tal cuando te dicen "¿Y él ya sabe el tema a tratar chula?"
+Me vuelvo chango. @marthadebayle @Rebmangas
+[Permalink](https://twitter.com/fernandeznorona/status/1584925345068654592) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-10-2022 a las 19:14:14
+**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 05:08:12
 *****
-@cesargutipri @J_Fdz_Menendez Transas.
-[Permalink](https://twitter.com/fernandeznorona/status/1584745119915208704) | 8 Me Gusta | 2 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1584894597347807232) | 38 Me Gusta | 6 Retweets

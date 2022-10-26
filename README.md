@@ -1,30 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 08:54:28
+**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 16:20:06
 *****
-RT @mlucascir: Hicieron un drama por la construcción del aeropuerto Felipe Ángeles.
-
-
-Mejor hubieran usado toda su enegía, tiempo y esfuerzo…
-[Permalink](https://twitter.com/fernandeznorona/status/1584951539189178368) | 0 Me Gusta | 37 Retweets
+12,701 en Facebook y, 9273 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1585063685571375104) | 25 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 08:52:41
+**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 13:13:05
 *****
-RT @marhuez: @SraCristita Al parecer el problema es que Richard hizo un vídeo con el video del aeropuerto del diputado @fernandeznorona y l…
-[Permalink](https://twitter.com/fernandeznorona/status/1584951088599662593) | 0 Me Gusta | 4 Retweets
+RT @DiputadosPTmx: 📌 #Checa || El dip. @fernandeznorona se reunió, atendió y escuchó las demandas más sentidas de maestras y maestros del @…
+[Permalink](https://twitter.com/fernandeznorona/status/1585016621948895232) | 0 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 07:11:45
+**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 13:12:50
 *****
-RT @Helioflores_mex: Marioneto.
-[Permalink](https://twitter.com/fernandeznorona/status/1584925687906959360) | 0 Me Gusta | 831 Retweets
+@jpau74 Acullá.
+[Permalink](https://twitter.com/fernandeznorona/status/1585016559814463488) | 27 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 07:10:23
+**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 13:01:36
 *****
-RT @karlatenorio3: Y qué tal cuando te dicen "¿Y él ya sabe el tema a tratar chula?"
-Me vuelvo chango. @marthadebayle @Rebmangas
-[Permalink](https://twitter.com/fernandeznorona/status/1584925345068654592) | 0 Me Gusta | 5 Retweets
+RT @rubengluengas: Esta información es muy importante, no la comparto con el conocido "sesgo de confirmación", sino con ánimo de seguir con…
+[Permalink](https://twitter.com/fernandeznorona/status/1585013731926605824) | 0 Me Gusta | 63 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 05:08:12
+**Fernández Noroña** (**@fernandeznorona**) • 25-10-2022 a las 12:54:55
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1584894597347807232) | 38 Me Gusta | 6 Retweets
+No se les nota lo paniaguados a los promotores de esta consulta en Facebook.
+[Permalink](https://twitter.com/fernandeznorona/status/1585012051721654272) | 91 Me Gusta | 17 Retweets

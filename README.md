@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-10-2022 a las 09:42:04
+**Fernández Noroña** (**@fernandeznorona**) • 26-10-2022 a las 13:39:24
 *****
-“¿Por qué desobedecer? Basta con tener ojos en la cara. La desobediencia están justificada, está normal, que lo que choca es la falta de reacción, la pasividad.” Frédéric Gros
-[Permalink](https://twitter.com/fernandeznorona/status/1585325903714078720) | 18 Me Gusta | 5 Retweets
+@jpau74 Zonzos.
+[Permalink](https://twitter.com/fernandeznorona/status/1585385632683073536) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-10-2022 a las 09:39:14
+**Fernández Noroña** (**@fernandeznorona**) • 26-10-2022 a las 13:03:21
 *****
-“La verdadera cuestión no es saber por qué se rebela la gente, sino por qué no se rebela”. Wilhelm Reich citado por Frédéric Gros
-[Permalink](https://twitter.com/fernandeznorona/status/1585325191147970560) | 13 Me Gusta | 3 Retweets
+Y @aramirezcuellar le ganó Rocio Banquells. @RocioBanquells.
+[Permalink](https://twitter.com/fernandeznorona/status/1585376562228383744) | 29 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-10-2022 a las 09:36:57
+**Fernández Noroña** (**@fernandeznorona**) • 26-10-2022 a las 12:21:39
 *****
-“El problema no es la desobediencia, el problema es la obediencia”. Howard Zinn, citado por Frédéric Gros.
-[Permalink](https://twitter.com/fernandeznorona/status/1585324616549122076) | 14 Me Gusta | 2 Retweets
+¿Debió estar sobre las dos? Jejeje. En broma y en serio, para pedirle perdón por lo que vendrá.
+[Permalink](https://twitter.com/fernandeznorona/status/1585366064090648577) | 32 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-10-2022 a las 09:35:49
+**Fernández Noroña** (**@fernandeznorona**) • 26-10-2022 a las 12:16:14
 *****
-“Los monstruos existen, pero son demasiado pocos para ser realmente peligrosos; los más peligrosos son los hombres corrientes, los funcionarios dispuestos a creer y obedecer sin rechistar”. Primo Levi. Ahí les hablan @AICM_mx
-[Permalink](https://twitter.com/fernandeznorona/status/1585324333492158466) | 15 Me Gusta | 7 Retweets
+Simple, cada quien debe manifestarle su apoyo a la persona con la que simpatiza. No solo los que tú mencionas, por cierto.
+[Permalink](https://twitter.com/fernandeznorona/status/1585364702703427584) | 39 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-10-2022 a las 09:34:14
+**Fernández Noroña** (**@fernandeznorona**) • 26-10-2022 a las 12:15:26
 *****
-Para los fanáticos de cumplir las reglas.
-[Permalink](https://twitter.com/fernandeznorona/status/1585323935561879552) | 29 Me Gusta | 5 Retweets
+Dice que se lo expliquen con manzanitas.
+[Permalink](https://twitter.com/fernandeznorona/status/1585364502882570241) | 29 Me Gusta | 8 Retweets

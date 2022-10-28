@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 19:10:49
+**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 08:20:28
 *****
-¡Seco el elotazo!
-[Permalink](https://twitter.com/fernandeznorona/status/1585831425193832448) | 34 Me Gusta | 3 Retweets
+En Tepeaca, Puebla. En el Centro de Estudios Superiores de Tepeaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1586030145600737281) | 80 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 19:09:03
+**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 08:02:02
 *****
-De ahí está como a cinco calles.
-[Permalink](https://twitter.com/fernandeznorona/status/1585830980266229761) | 31 Me Gusta | 7 Retweets
+Naa estimado amigo y compañero. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1586025507694333952) | 29 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 17:39:16
+**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 08:00:30
 *****
-Seré curioso: ¿cuáles son sus propios medios? ¿ realizar un golpe de estado promovido desde la embajada de Estados Unidos? No son sus propios medios, serían una vez más simples títeres de los intereses económicos supranacionales.
-[Permalink](https://twitter.com/fernandeznorona/status/1585808386288979968) | 69 Me Gusta | 26 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1586025122938650624) | 33 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 17:33:47
+**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 07:59:41
 *****
-La Paz, BCS.
-[Permalink](https://twitter.com/fernandeznorona/status/1585807004421033989) | 111 Me Gusta | 24 Retweets
+RT @arlenemaciel: Hoy venia con un taxista platicando y es INNEGABLE el apoyo al compañero @fernandeznorona aunque a algunos les incomode,…
+[Permalink](https://twitter.com/fernandeznorona/status/1586024914204921856) | 0 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 17:17:15
+**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 07:52:42
 *****
-En La Paz, BCS
-[Permalink](https://twitter.com/fernandeznorona/status/1585802842417156096) | 197 Me Gusta | 32 Retweets
+Ya en Tepeaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1586023156967694337) | 48 Me Gusta | 6 Retweets

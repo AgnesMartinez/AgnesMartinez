@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 09:30:32
+**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 16:20:35
 *****
-Me lo acaba de regalar ⁦@MariaRoseteMx⁩. Muy agradecido.
-[Permalink](https://twitter.com/fernandeznorona/status/1585685389448183827) | 75 Me Gusta | 16 Retweets
+6688 en Facebook y, 6671 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1585788581490016257) | 42 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 09:04:44
+**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 14:44:18
 *****
-Del domingo en La Paz, BCS.
-[Permalink](https://twitter.com/fernandeznorona/status/1585678897886203904) | 43 Me Gusta | 9 Retweets
+RT @RubiBobadilla: Ayuden por favor a compartir para dar con este sujeto quien chocó a nuestro compañero fotógrafo de El Informador @solrac…
+[Permalink](https://twitter.com/fernandeznorona/status/1585764352074088448) | 0 Me Gusta | 4,516 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 08:20:51
+**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 14:40:19
 *****
-Yo tampoco sabía.
-[Permalink](https://twitter.com/fernandeznorona/status/1585667854912847874) | 20 Me Gusta | 4 Retweets
+Nooooo, bueno.
+[Permalink](https://twitter.com/fernandeznorona/status/1585763349207416834) | 28 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 06:46:58
+**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 14:35:15
 *****
-Hace muuuuuuuucho de eso. Aunque la información es válida.
-[Permalink](https://twitter.com/fernandeznorona/status/1585644229623050241) | 26 Me Gusta | 2 Retweets
+RT @alvaro_delgado: Retrato de un impune:
+[Permalink](https://twitter.com/fernandeznorona/status/1585762075178958848) | 0 Me Gusta | 1,362 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 06:36:00
+**Fernández Noroña** (**@fernandeznorona**) • 27-10-2022 a las 14:01:25
 *****
-RT @SinLinea_Mx: 👉El INE contrató académicos para hacer un estudio, analizando una encuesta del INEGI y resulta que están reprobados. 🙈
-
-
-\#P…
-[Permalink](https://twitter.com/fernandeznorona/status/1585641466788950021) | 0 Me Gusta | 895 Retweets
+Muchas felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1585753559982899200) | 15 Me Gusta | 5 Retweets

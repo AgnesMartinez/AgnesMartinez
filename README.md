@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 21:30:03
+**Fernández Noroña** (**@fernandeznorona**) • 29-10-2022 a las 10:11:10
 *****
-“Pero sí recuerdo una o dos frases, en concreto cuando alababa a los atenienses diciendo que tenían la grandeza de alma de reconocer los éxitos de los demás sin ‘la tediosa máscara de la envidia”. Timandra, sobre el discurso de Pericles.
-[Permalink](https://twitter.com/fernandeznorona/status/1586228851851395073) | 30 Me Gusta | 5 Retweets
+Paradoja de paradojas: asumo que mi maestro es un creyente fervoroso, de nombre Martín Luther King. En este libro está mi programa político, mi objetivo, el camino, la visión y todo lo que haré hasta el final de mis días.
+[Permalink](https://twitter.com/fernandeznorona/status/1586420392230588418) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 21:20:04
+**Fernández Noroña** (**@fernandeznorona**) • 29-10-2022 a las 10:09:53
 *****
-Sentí horrible con ese video.
-[Permalink](https://twitter.com/fernandeznorona/status/1586226340432207873) | 34 Me Gusta | 5 Retweets
+Terminé. Lloré y lloré y lloré. No me importó aguantarme, pero tampoco hubiera podido evitarlo. Es un libro excepcional.
+[Permalink](https://twitter.com/fernandeznorona/status/1586420068212260864) | 4 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 21:14:23
+**Fernández Noroña** (**@fernandeznorona**) • 29-10-2022 a las 08:31:48
 *****
-RT @aga10mx: Explicación gráfica de la estupidez del racismo y clasismo (uno cree que es más)
-[Permalink](https://twitter.com/fernandeznorona/status/1586224907788070912) | 0 Me Gusta | 13 Retweets
+No.
+[Permalink](https://twitter.com/fernandeznorona/status/1586395386163318784) | 21 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 20:56:56
+**Fernández Noroña** (**@fernandeznorona**) • 29-10-2022 a las 08:30:39
 *****
-Apenas llegando a casa.
-[Permalink](https://twitter.com/fernandeznorona/status/1586220516246814720) | 163 Me Gusta | 3 Retweets
+Hecho de hacer. Echo de echar.
+[Permalink](https://twitter.com/fernandeznorona/status/1586395096676990976) | 14 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 20:48:45
+**Fernández Noroña** (**@fernandeznorona**) • 29-10-2022 a las 08:30:09
 *****
-Pero el cabeza hueca de @VicenteFoxQue si cumplió tus expectativas en cuánto a requisitos.
-[Permalink](https://twitter.com/fernandeznorona/status/1586218457930272769) | 38 Me Gusta | 6 Retweets
+Obvio, a 20 minutos de que salga el vuelo a Aguascalientes, aún no inicia el abordaje de @Aeromexico. Pero no llegues tú a esa hora a abordar, porque ya tienen cerrado el vuelo.
+[Permalink](https://twitter.com/fernandeznorona/status/1586394972474855424) | 39 Me Gusta | 16 Retweets

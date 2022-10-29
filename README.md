@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 15:57:56
+**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 21:30:03
 *****
-5362 en Facebook y, 7505 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1586145271393574913) | 34 Me Gusta | 2 Retweets
+“Pero sí recuerdo una o dos frases, en concreto cuando alababa a los atenienses diciendo que tenían la grandeza de alma de reconocer los éxitos de los demás sin ‘la tediosa máscara de la envidia”. Timandra, sobre el discurso de Pericles.
+[Permalink](https://twitter.com/fernandeznorona/status/1586228851851395073) | 13 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 11:43:42
+**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 21:20:04
 *****
-Acajete, Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1586081291031744512) | 234 Me Gusta | 43 Retweets
+Sentí horrible con ese video.
+[Permalink](https://twitter.com/fernandeznorona/status/1586226340432207873) | 18 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 10:44:48
+**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 21:14:23
 *****
-Ñiño doctor.
-[Permalink](https://twitter.com/fernandeznorona/status/1586066468478787589) | 67 Me Gusta | 7 Retweets
+RT @aga10mx: Explicación gráfica de la estupidez del racismo y clasismo (uno cree que es más)
+[Permalink](https://twitter.com/fernandeznorona/status/1586224907788070912) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 08:20:28
+**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 20:56:56
 *****
-En Tepeaca, Puebla. En el Centro de Estudios Superiores de Tepeaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1586030145600737281) | 172 Me Gusta | 47 Retweets
+Apenas llegando a casa.
+[Permalink](https://twitter.com/fernandeznorona/status/1586220516246814720) | 89 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 08:02:02
+**Fernández Noroña** (**@fernandeznorona**) • 28-10-2022 a las 20:48:45
 *****
-Naa estimado amigo y compañero. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1586025507694333952) | 44 Me Gusta | 5 Retweets
+Pero el cabeza hueca de @VicenteFoxQue si cumplió tus expectativas en cuánto a requisitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1586218457930272769) | 21 Me Gusta | 4 Retweets

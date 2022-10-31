@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 06:56:05
+**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 15:53:41
 *****
-“Mejor un león al mando de diez corderos, que diez leones al mando de un cordero”. Clearco citado por Timandra según Kallifatides.
-[Permalink](https://twitter.com/fernandeznorona/status/1586733687709777923) | 48 Me Gusta | 18 Retweets
+RT @Marblanca3: Gerardo Fernández Noroña Conferencia de Prensa PT en Zacatecas 30 Octubr...
+[Permalink](https://twitter.com/fernandeznorona/status/1586868976033964032) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 06:22:05
+**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 15:52:15
 *****
-Se siente a toda madre que te regresen la hora que te habían robado. #HorarioDeVerano.
-[Permalink](https://twitter.com/fernandeznorona/status/1586725131518369792) | 919 Me Gusta | 155 Retweets
+Feliz de que haya ganado @LulaOficial en Brasil. La patria grande está de fiesta. Hace cuatro años lo metieron a la cárcel para que no fuera presidente: la justicia cojea pero llega.
+[Permalink](https://twitter.com/fernandeznorona/status/1586868615315341313) | 227 Me Gusta | 57 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-10-2022 a las 20:21:02
+**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 15:50:49
 *****
-Ahí @UCS_GCDMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1586573869686849536) | 44 Me Gusta | 14 Retweets
+Doña Lola, cantando canciones de Sonia López. Chingona mujer. Ambas, doña Lola y Sonia López.
+[Permalink](https://twitter.com/fernandeznorona/status/1586868255297265664) | 88 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-10-2022 a las 20:20:50
+**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 13:09:40
 *****
-RT @adela_bicha: Mi vecino obstruye que pueda sacar mi vehículo; regreso y se estaciona mal, o no sabe reglas de tránsito o es un provocado…
-[Permalink](https://twitter.com/fernandeznorona/status/1586573821103972352) | 0 Me Gusta | 97 Retweets
+RT @Revolucion3_0: Carlos Salinas de Gortari, expresidente priista de México, obtiene la nacionalidad española
+[Permalink](https://twitter.com/fernandeznorona/status/1586827702534918152) | 0 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-10-2022 a las 20:06:20
+**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 13:00:16
 *****
-“La única sombra que caía sobre su persona era la suya propia”. Timandra sobre Alcibíades. Sostenía que nadie le hacía sombra.
-[Permalink](https://twitter.com/fernandeznorona/status/1586570171233320961) | 36 Me Gusta | 13 Retweets
+Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1586825335722631169) | 15 Me Gusta | 1 Retweets

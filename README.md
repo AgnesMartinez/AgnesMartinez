@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 20:39:07
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 08:54:05
 *****
-“Una vez, en broma, pregunté al geómetra Teodoro qué hacía cuando reflexionaba. Me miró fijamente un buen rato. -Depende. Cuando quiero solucionar un problema, me duermo. Cuando quiero encontrar un problema, me despierto”.Timandra.
-[Permalink](https://twitter.com/fernandeznorona/status/1586940808552497153) | 30 Me Gusta | 4 Retweets
+Ya listo para volar de Zacatecas al D.F.
+[Permalink](https://twitter.com/fernandeznorona/status/1587125769347686408) | 39 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 20:34:40
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 08:47:53
 *****
-“El hombre sufre con independencia de la realidad”.
-[Permalink](https://twitter.com/fernandeznorona/status/1586939689201795073) | 28 Me Gusta | 2 Retweets
+RT @taller2006: Este horario se debería de llamar: 
+El horario del Bienestar
+[Permalink](https://twitter.com/fernandeznorona/status/1587124209200906240) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 20:24:55
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 08:47:46
 *****
-RT @Nubia_SCG: Mi hijita va mañana de Lilo, y consiguió esta joya que obviamente me voy a apropiar 🥰
-[Permalink](https://twitter.com/fernandeznorona/status/1586937236330844163) | 0 Me Gusta | 3 Retweets
+¡Qué bonito! Si no lo echan a perder, ese niño va a ser un gran ser humano.
+[Permalink](https://twitter.com/fernandeznorona/status/1587124178951589888) | 37 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 20:22:53
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 08:45:48
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1586936723153584128) | 18 Me Gusta | 0 Retweets
+¿Dónde quedó el joven talentoso, mordaz, comprometido? Lo perdió la ambición.
+[Permalink](https://twitter.com/fernandeznorona/status/1587123683369406466) | 265 Me Gusta | 85 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 20:22:40
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 08:43:31
 *****
-Es muy bello.
-[Permalink](https://twitter.com/fernandeznorona/status/1586936668837363713) | 27 Me Gusta | 5 Retweets
+Estarían todos en la cárcel, mi estimado, si lo que dices fuera cierto. Confundes el debate con la inquina.
+[Permalink](https://twitter.com/fernandeznorona/status/1587123108384735234) | 24 Me Gusta | 9 Retweets

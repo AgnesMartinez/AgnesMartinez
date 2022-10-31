@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 15:53:41
+**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 20:39:07
 *****
-RT @Marblanca3: Gerardo Fernández Noroña Conferencia de Prensa PT en Zacatecas 30 Octubr...
-[Permalink](https://twitter.com/fernandeznorona/status/1586868976033964032) | 0 Me Gusta | 4 Retweets
+“Una vez, en broma, pregunté al geómetra Teodoro qué hacía cuando reflexionaba. Me miró fijamente un buen rato. -Depende. Cuando quiero solucionar un problema, me duermo. Cuando quiero encontrar un problema, me despierto”.Timandra.
+[Permalink](https://twitter.com/fernandeznorona/status/1586940808552497153) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 15:52:15
+**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 20:34:40
 *****
-Feliz de que haya ganado @LulaOficial en Brasil. La patria grande está de fiesta. Hace cuatro años lo metieron a la cárcel para que no fuera presidente: la justicia cojea pero llega.
-[Permalink](https://twitter.com/fernandeznorona/status/1586868615315341313) | 227 Me Gusta | 57 Retweets
+“El hombre sufre con independencia de la realidad”.
+[Permalink](https://twitter.com/fernandeznorona/status/1586939689201795073) | 22 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 15:50:49
+**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 20:24:55
 *****
-Doña Lola, cantando canciones de Sonia López. Chingona mujer. Ambas, doña Lola y Sonia López.
-[Permalink](https://twitter.com/fernandeznorona/status/1586868255297265664) | 88 Me Gusta | 15 Retweets
+RT @Nubia_SCG: Mi hijita va mañana de Lilo, y consiguió esta joya que obviamente me voy a apropiar 🥰
+[Permalink](https://twitter.com/fernandeznorona/status/1586937236330844163) | 0 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 13:09:40
+**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 20:22:53
 *****
-RT @Revolucion3_0: Carlos Salinas de Gortari, expresidente priista de México, obtiene la nacionalidad española
-[Permalink](https://twitter.com/fernandeznorona/status/1586827702534918152) | 0 Me Gusta | 19 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1586936723153584128) | 14 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 13:00:16
+**Fernández Noroña** (**@fernandeznorona**) • 30-10-2022 a las 20:22:40
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1586825335722631169) | 15 Me Gusta | 1 Retweets
+Es muy bello.
+[Permalink](https://twitter.com/fernandeznorona/status/1586936668837363713) | 19 Me Gusta | 4 Retweets

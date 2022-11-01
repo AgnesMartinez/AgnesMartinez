@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 13:03:29
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 18:17:58
 *****
-Mira, no sabía que era responsable de la red del Cutzamala, y en particular de la zona de Atizapán de Zaragoza. Siempre se aprende algo nuevo con ustedes tan brillantes.
-[Permalink](https://twitter.com/fernandeznorona/status/1587188534800252930) | 145 Me Gusta | 36 Retweets
+Ahí @UCS_GCDMX. Acacias 11, Santa María la Ribera.
+[Permalink](https://twitter.com/fernandeznorona/status/1587267676748935168) | 22 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 12:38:53
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 18:12:39
 *****
-Qué no se diga.
-[Permalink](https://twitter.com/fernandeznorona/status/1587182342350655488) | 350 Me Gusta | 66 Retweets
+RT @AliteyU: Este chamaco hermoso se merece todos los dulces del mundo 👌🏼🥰 #Halloween2022
+[Permalink](https://twitter.com/fernandeznorona/status/1587266335532204032) | 0 Me Gusta | 42 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 12:38:18
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 18:11:55
 *****
-Ayer todo mundo subió sus fotos con ⁦@LulaOficial⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1587182194686328832) | 291 Me Gusta | 55 Retweets
+Sip. ¡Qué fuerte!
+[Permalink](https://twitter.com/fernandeznorona/status/1587266154564706304) | 203 Me Gusta | 61 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 10:51:00
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 18:07:04
 *****
-Dice @MarkoCortes:”¡Y si!”. @monerohernandez es genial.
-[Permalink](https://twitter.com/fernandeznorona/status/1587155194357469191) | 47 Me Gusta | 12 Retweets
+Una brillante respuesta, a su altura racista y clasista. Si yo le dijera mugrosa, me acusaría de violencia política de género. ¡Pobres seres tan elementales y tan hipócritas! @AmerangelLorenz.
+[Permalink](https://twitter.com/fernandeznorona/status/1587264930431967232) | 373 Me Gusta | 100 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 10:46:20
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 17:58:03
 *****
-RT @alvaro_delgado: “Consuelo”, de @monerohernandez, en @lajornadaonline
-[Permalink](https://twitter.com/fernandeznorona/status/1587154018354270212) | 0 Me Gusta | 1,134 Retweets
+RT @Rottweilers_usa: Absolutely precious 🥰
+
+
+Cute or not??
+
+
+\#Rottweiler #Rottweilers
+[Permalink](https://twitter.com/fernandeznorona/status/1587262662454349824) | 0 Me Gusta | 4,830 Retweets

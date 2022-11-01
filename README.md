@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 08:54:05
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 13:03:29
 *****
-Ya listo para volar de Zacatecas al D.F.
-[Permalink](https://twitter.com/fernandeznorona/status/1587125769347686408) | 39 Me Gusta | 6 Retweets
+Mira, no sabía que era responsable de la red del Cutzamala, y en particular de la zona de Atizapán de Zaragoza. Siempre se aprende algo nuevo con ustedes tan brillantes.
+[Permalink](https://twitter.com/fernandeznorona/status/1587188534800252930) | 145 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 08:47:53
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 12:38:53
 *****
-RT @taller2006: Este horario se debería de llamar: 
-El horario del Bienestar
-[Permalink](https://twitter.com/fernandeznorona/status/1587124209200906240) | 0 Me Gusta | 10 Retweets
+Qué no se diga.
+[Permalink](https://twitter.com/fernandeznorona/status/1587182342350655488) | 350 Me Gusta | 66 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 08:47:46
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 12:38:18
 *****
-¡Qué bonito! Si no lo echan a perder, ese niño va a ser un gran ser humano.
-[Permalink](https://twitter.com/fernandeznorona/status/1587124178951589888) | 37 Me Gusta | 7 Retweets
+Ayer todo mundo subió sus fotos con ⁦@LulaOficial⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1587182194686328832) | 291 Me Gusta | 55 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 08:45:48
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 10:51:00
 *****
-¿Dónde quedó el joven talentoso, mordaz, comprometido? Lo perdió la ambición.
-[Permalink](https://twitter.com/fernandeznorona/status/1587123683369406466) | 265 Me Gusta | 85 Retweets
+Dice @MarkoCortes:”¡Y si!”. @monerohernandez es genial.
+[Permalink](https://twitter.com/fernandeznorona/status/1587155194357469191) | 47 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 08:43:31
+**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 10:46:20
 *****
-Estarían todos en la cárcel, mi estimado, si lo que dices fuera cierto. Confundes el debate con la inquina.
-[Permalink](https://twitter.com/fernandeznorona/status/1587123108384735234) | 24 Me Gusta | 9 Retweets
+RT @alvaro_delgado: “Consuelo”, de @monerohernandez, en @lajornadaonline
+[Permalink](https://twitter.com/fernandeznorona/status/1587154018354270212) | 0 Me Gusta | 1,134 Retweets

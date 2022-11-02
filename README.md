@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 09:55:20
+**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 15:49:47
 *****
-RT @GloryOropeza: #Noroñaespueblo
-Empieza la cuenta regresiva, estamos a 12 días de acompañar a nuestro diputado @fernandeznorona  a la Pri…
-[Permalink](https://twitter.com/fernandeznorona/status/1587503571125370880) | 0 Me Gusta | 20 Retweets
+Los siete vagos.
+[Permalink](https://twitter.com/fernandeznorona/status/1587592770977288192) | 60 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 09:13:42
+**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 15:46:55
 *****
-Desde California.
-[Permalink](https://twitter.com/fernandeznorona/status/1587493092453588993) | 98 Me Gusta | 20 Retweets
+Nuestros siete gatos, que no son nuestros.
+[Permalink](https://twitter.com/fernandeznorona/status/1587592052094619650) | 33 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 18:17:58
+**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 15:46:40
 *****
-Ahí @UCS_GCDMX. Acacias 11, Santa María la Ribera.
-[Permalink](https://twitter.com/fernandeznorona/status/1587267676748935168) | 31 Me Gusta | 7 Retweets
+Nuestros siete gatos, que no son nuestros.
+[Permalink](https://twitter.com/fernandeznorona/status/1587591988316057600) | 28 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 18:12:39
+**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 14:23:28
 *****
-RT @AliteyU: Este chamaco hermoso se merece todos los dulces del mundo 👌🏼🥰 #Halloween2022
-[Permalink](https://twitter.com/fernandeznorona/status/1587266335532204032) | 0 Me Gusta | 69 Retweets
+“En aquella velada me convencí de qué los hombres no saben nada del amor”. Timandra.
+[Permalink](https://twitter.com/fernandeznorona/status/1587571049847218178) | 33 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-10-2022 a las 18:11:55
+**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 14:17:35
 *****
-Sip. ¡Qué fuerte!
-[Permalink](https://twitter.com/fernandeznorona/status/1587266154564706304) | 386 Me Gusta | 99 Retweets
+Disfraz.
+[Permalink](https://twitter.com/fernandeznorona/status/1587569570033844224) | 48 Me Gusta | 11 Retweets

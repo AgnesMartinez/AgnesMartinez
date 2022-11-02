@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 15:49:47
+**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 21:35:45
 *****
-Los siete vagos.
-[Permalink](https://twitter.com/fernandeznorona/status/1587592770977288192) | 60 Me Gusta | 5 Retweets
+RT @SupsipS: Lo he dicho antes. Hay personajes que tienen que pagar hashtags, mover gente para que hable de un tema, hacer uso de aparatos…
+[Permalink](https://twitter.com/fernandeznorona/status/1587679838042697728) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 15:46:55
+**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 21:34:13
 *****
-Nuestros siete gatos, que no son nuestros.
-[Permalink](https://twitter.com/fernandeznorona/status/1587592052094619650) | 33 Me Gusta | 7 Retweets
+“Era el sueño de Narciso. Y no hay nadie que pueda seducir a un Narciso”. Timandra.
+[Permalink](https://twitter.com/fernandeznorona/status/1587679452045070336) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 15:46:40
+**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 21:23:05
 *****
-Nuestros siete gatos, que no son nuestros.
-[Permalink](https://twitter.com/fernandeznorona/status/1587591988316057600) | 28 Me Gusta | 4 Retweets
+“Los líderes verdaderamente fuertes no se fían de nadie. Pericles no tenía amigos de confianza”. Timandra.
+[Permalink](https://twitter.com/fernandeznorona/status/1587676648379273216) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 14:23:28
+**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 21:22:06
 *****
-“En aquella velada me convencí de qué los hombres no saben nada del amor”. Timandra.
-[Permalink](https://twitter.com/fernandeznorona/status/1587571049847218178) | 33 Me Gusta | 10 Retweets
+“… era un hombre que no tenía secretos, y éste era su único punto flaco como líder”. Timandra sobre Alcibíades.
+[Permalink](https://twitter.com/fernandeznorona/status/1587676403670999043) | 15 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 14:17:35
+**Fernández Noroña** (**@fernandeznorona**) • 01-11-2022 a las 21:19:53
 *****
-Disfraz.
-[Permalink](https://twitter.com/fernandeznorona/status/1587569570033844224) | 48 Me Gusta | 11 Retweets
+“¡Sófocles exagerado! Por supuesto. ¿Y qué otra cosa podía ser? ¿Cómo podría escribir esas tragedias inmortales? Tensó el arco cuanto pudo y un día se rompió. Siempre existe ese peligro, pero hay que asumirlo. Precisamente es un peligro que no hay que eludir”. Agatarco.
+[Permalink](https://twitter.com/fernandeznorona/status/1587675843878215680) | 15 Me Gusta | 2 Retweets

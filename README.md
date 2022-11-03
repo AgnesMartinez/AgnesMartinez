@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-11-2022 a las 19:42:09
+**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 08:50:11
 *****
-RT @epigmenioibarra: Con la misma terquedad con la que, hace años, convoco en twitter al #PaseDeListaDel1al43, vuelvo, de nuevo, a Ayotzina…
-[Permalink](https://twitter.com/fernandeznorona/status/1588013635858665472) | 0 Me Gusta | 474 Retweets
+Mira @ChicChillon alias @ChicShion.
+[Permalink](https://twitter.com/fernandeznorona/status/1588211950890242048) | 26 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-11-2022 a las 19:27:17
+**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 08:48:34
 *****
-Pues el director del @AICM_mx permite todo tipo de violencia en el aeropuerto. !Gravísimo! Carlos Ignacio Velázquez Tiscareño, no parece preocuparse del tema.
-[Permalink](https://twitter.com/fernandeznorona/status/1588009894652813314) | 144 Me Gusta | 73 Retweets
+RT @alvaro_delgado: “Encuesta a la basura”, de @monerohernandez, en @lajornadaonline
+[Permalink](https://twitter.com/fernandeznorona/status/1588211544558637058) | 0 Me Gusta | 343 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-11-2022 a las 19:20:38
+**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 08:46:57
 *****
-Cómo andarán de faltos de municiones en mi contra, que la mayor crítica que pueden hacerme es la ridiculez de que compro en City Market, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1588008222333337608) | 940 Me Gusta | 178 Retweets
+Al pobre @ChicChillon le enmendaron la plana y mostraron que debe reeducarse para erradicar su clasismo y racismo. @ChicShion.
+[Permalink](https://twitter.com/fernandeznorona/status/1588211138877165570) | 35 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-11-2022 a las 18:05:11
+**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 08:26:42
 *****
-Gasté tres veces más ayer en @Costco que en City Market.
-[Permalink](https://twitter.com/fernandeznorona/status/1587989232756305920) | 220 Me Gusta | 43 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1588206041006841857) | 41 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-11-2022 a las 18:00:10
+**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 07:55:28
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1587987971222867969) | 215 Me Gusta | 34 Retweets
+Ahí te hablan Pasquín @beltrandelrio.
+[Permalink](https://twitter.com/fernandeznorona/status/1588198181699047425) | 60 Me Gusta | 15 Retweets

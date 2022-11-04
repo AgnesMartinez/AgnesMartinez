@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 13:37:43
+**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 20:57:01
 *****
-El delito no puede ser desaparición forzada. Eso aplica solamente para autoridades gubernamentales. Creo que confunden la desaparición, con desaparición forzada.
-[Permalink](https://twitter.com/fernandeznorona/status/1588284310586818560) | 23 Me Gusta | 10 Retweets
+RT @jgnaredo: Dos naciones votaron en contra de condenar en la ONU el bloqueo de EU a Cuba; y dos se abstuvieron. 
+
+
+185 votaron por condena…
+[Permalink](https://twitter.com/fernandeznorona/status/1588394863435087872) | 0 Me Gusta | 305 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 12:19:36
+**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 19:22:23
 *****
-Mi agenda de esta semana.
-[Permalink](https://twitter.com/fernandeznorona/status/1588264651497914369) | 73 Me Gusta | 14 Retweets
+@Ilianalimon @UrsulaBethManzo Hociquito.
+[Permalink](https://twitter.com/fernandeznorona/status/1588371048869007361) | 7 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 12:14:43
+**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 19:01:33
 *****
-RT @NachoRgz: La lección alterna que deja la filtración de la encuesta del @INEMexico es que las encuestas reales SÍ EXISTEN, pero nomás NO…
-[Permalink](https://twitter.com/fernandeznorona/status/1588263424445644800) | 0 Me Gusta | 204 Retweets
+Una locura el tránsito. Está desquiciada la ciudad.
+[Permalink](https://twitter.com/fernandeznorona/status/1588365805476978688) | 122 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 12:03:25
+**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 18:01:54
 *****
-Casi unánime.
-[Permalink](https://twitter.com/fernandeznorona/status/1588260579298672640) | 171 Me Gusta | 50 Retweets
+Recibió tantas muestras de aprecio que ya bloqueó toda interacción.
+[Permalink](https://twitter.com/fernandeznorona/status/1588350797242601472) | 142 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 11:23:04
+**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 17:58:59
 *****
-Xacto, se burlan de su dicción, que no deja de ser clasista y racista la burla.
-[Permalink](https://twitter.com/fernandeznorona/status/1588250427090345985) | 73 Me Gusta | 15 Retweets
+Ya en @mileniotv, pensé que no llegaría a la entrevista con @elisaalanis.
+[Permalink](https://twitter.com/fernandeznorona/status/1588350059846205440) | 85 Me Gusta | 24 Retweets

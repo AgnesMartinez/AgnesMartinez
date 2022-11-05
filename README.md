@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-11-2022 a las 10:02:22
+**Fernández Noroña** (**@fernandeznorona**) • 04-11-2022 a las 15:47:33
 *****
-Si se priorizaran las obras innecesarias, priorizaríamos lo que promueven los paniaguados, mi estimado.
-[Permalink](https://twitter.com/fernandeznorona/status/1588592505146474497) | 15 Me Gusta | 3 Retweets
+El problema es que todavía no estamos en el final.
+[Permalink](https://twitter.com/fernandeznorona/status/1588679372458061824) | 29 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-11-2022 a las 07:39:54
+**Fernández Noroña** (**@fernandeznorona**) • 04-11-2022 a las 14:21:01
 *****
-RT @jgnaredo: En la epidemia de AH1N1 de 2009 @FelipeCalderon endeudó al país con 5.2 billones de pesos y detuvo decenas de programas socia…
-[Permalink](https://twitter.com/fernandeznorona/status/1588556651145334785) | 0 Me Gusta | 1,419 Retweets
+Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1588657596327919616) | 29 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-11-2022 a las 07:17:30
+**Fernández Noroña** (**@fernandeznorona**) • 04-11-2022 a las 14:20:30
 *****
-¿Hoy nuevamente van a hacer estacionamiento de la plaza de Leandro Valle @UCS_GCDMX?
-[Permalink](https://twitter.com/fernandeznorona/status/1588551013451313152) | 54 Me Gusta | 9 Retweets
+La buena noticia: sacaron a todo el personal paniaguado de @twittermexico; la mala: ahora contratarán a puro facho ultraconservador.
+[Permalink](https://twitter.com/fernandeznorona/status/1588657466224824320) | 299 Me Gusta | 62 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 20:57:01
+**Fernández Noroña** (**@fernandeznorona**) • 04-11-2022 a las 14:19:12
 *****
-RT @jgnaredo: Dos naciones votaron en contra de condenar en la ONU el bloqueo de EU a Cuba; y dos se abstuvieron. 
-
-
-185 votaron por condena…
-[Permalink](https://twitter.com/fernandeznorona/status/1588394863435087872) | 0 Me Gusta | 476 Retweets
+Xacto, la realidad siempre puede ser peor.
+[Permalink](https://twitter.com/fernandeznorona/status/1588657141421953024) | 21 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-11-2022 a las 19:22:23
+**Fernández Noroña** (**@fernandeznorona**) • 04-11-2022 a las 14:10:30
 *****
-@Ilianalimon @UrsulaBethManzo Hociquito.
-[Permalink](https://twitter.com/fernandeznorona/status/1588371048869007361) | 8 Me Gusta | 0 Retweets
+RT @melishcs: Si no entendiste a Marx, ahora te puedes marchar.
+[Permalink](https://twitter.com/fernandeznorona/status/1588654949063610369) | 0 Me Gusta | 6 Retweets

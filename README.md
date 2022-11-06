@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 22:17:30
+**Fernández Noroña** (**@fernandeznorona**) • 06-11-2022 a las 09:57:58
 *****
-Apenas en el hotel en Lázaro Cárdenas.
-[Permalink](https://twitter.com/fernandeznorona/status/1589139895377100800) | 77 Me Gusta | 4 Retweets
+Lázaro Cárdenas, Michoacán.
+[Permalink](https://twitter.com/fernandeznorona/status/1589316173593812994) | 16 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 19:35:48
+**Fernández Noroña** (**@fernandeznorona**) • 06-11-2022 a las 09:49:12
 *****
-Ya entrado en gastos haz un estudio sobre mi caso. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1589099203418263552) | 70 Me Gusta | 8 Retweets
+Apenas llegando al encuentro en Lázaro Cárdenas.
+[Permalink](https://twitter.com/fernandeznorona/status/1589313965389418496) | 30 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 19:34:49
+**Fernández Noroña** (**@fernandeznorona**) • 06-11-2022 a las 09:43:47
 *****
-Naa, en tres semanas darán a conocer la fecha de inauguración.
-[Permalink](https://twitter.com/fernandeznorona/status/1589098952850231296) | 59 Me Gusta | 8 Retweets
+Fíjate el tamaño de tu miopía. El @aifaaero resolvería la saturación del @AICM_mx; pero gente como tú y las aerolíneas, en su rabia conservadora lo sabotean y prefieren vivir lo que te sucedió. Se llama necedad.
+[Permalink](https://twitter.com/fernandeznorona/status/1589312605788680193) | 36 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 19:32:55
+**Fernández Noroña** (**@fernandeznorona**) • 06-11-2022 a las 09:41:42
 *****
-RT @alvaro_delgado: No sean ingenuos: No por que hayan despedido a un grupo de panistas, encabezados por @HugoRodriguezN, tuíter México dej…
-[Permalink](https://twitter.com/fernandeznorona/status/1589098475815591936) | 0 Me Gusta | 895 Retweets
+Y por pura torpeza de uno. Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1589312079479312386) | 11 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 19:32:36
+**Fernández Noroña** (**@fernandeznorona**) • 06-11-2022 a las 09:40:11
 *****
-Pasamos a echarnos unos tacos en Apatzingán y saldremos rumbo a Lázaro Cárdenas.
-[Permalink](https://twitter.com/fernandeznorona/status/1589098395599527937) | 289 Me Gusta | 36 Retweets
+Yo, pero les faltan frijolitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1589311699110461441) | 24 Me Gusta | 2 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 09:47:24
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 15:23:48
 *****
-Oye @mauriciotabe ¿irá tu padre a la manifestación del domingo 13? ¿Será con cuchillos cebolleros la manifestación?
-[Permalink](https://twitter.com/fernandeznorona/status/1588951127714066435) | 106 Me Gusta | 31 Retweets
+No se eliminó del todo. Por ejemplo las empresas de seguridad privada, dan derechos pero cada año cambian de razón social. No permiten que la gente genere antigüedad. Por lo tanto, en los hechos escatiman derechos fundamentales.
+[Permalink](https://twitter.com/fernandeznorona/status/1589035784036048896) | 42 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 09:44:53
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 14:58:35
 *****
-Son una pandilla de cretinos.
-[Permalink](https://twitter.com/fernandeznorona/status/1588950491320705025) | 31 Me Gusta | 5 Retweets
+Pues el burro hablando de orejas. Abrazote. Me refiero al burro wicha.
+[Permalink](https://twitter.com/fernandeznorona/status/1589029440339996672) | 20 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 09:43:17
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 14:55:33
 *****
-Ya ni comenté, muy bien la rueda de prensa en Morelia. Ya vamos rumbo a Zacapu.
-[Permalink](https://twitter.com/fernandeznorona/status/1588950091351875584) | 23 Me Gusta | 1 Retweets
+RT @lximenezsarro: Como la gran experta en agronomía que soy, recomiendo ampliamente utilizar #ElReyDelCash de @luzelenachavez8, para quien…
+[Permalink](https://twitter.com/fernandeznorona/status/1589028673977733121) | 0 Me Gusta | 146 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-11-2022 a las 20:26:04
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 14:53:18
 *****
-Está resultando un libro muy fuerte. Entre otras cosas, ratifica mi convicción de que las escuelas no deben ser confesionales, deben ser laicas, públicas o privadas. Toda mujer debe leerlo, todo hombre, también.
-[Permalink](https://twitter.com/fernandeznorona/status/1588749465464188929) | 110 Me Gusta | 23 Retweets
+Lamento el fallecimiento de nuestro compañero ex Dip. federal Luis Alegre. Mis condolencias para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1589028107352408064) | 67 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-11-2022 a las 20:16:02
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 14:50:15
 *****
-@jonasenelabismo Sandez.
-[Permalink](https://twitter.com/fernandeznorona/status/1588746937867853825) | 9 Me Gusta | 3 Retweets
+Mientes para variar. De entrada son cerca 50 las iniciativas de reforma que se revisan. Por otra parte, fuiste un fraudulento y tramposo en la comisión que proceso la elección de consejeros de la pasada legislatura. Eres un farsante @dvalades.
+[Permalink](https://twitter.com/fernandeznorona/status/1589027340000333824) | 39 Me Gusta | 14 Retweets

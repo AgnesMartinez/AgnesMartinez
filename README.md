@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 15:23:48
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 19:35:48
 *****
-No se eliminó del todo. Por ejemplo las empresas de seguridad privada, dan derechos pero cada año cambian de razón social. No permiten que la gente genere antigüedad. Por lo tanto, en los hechos escatiman derechos fundamentales.
-[Permalink](https://twitter.com/fernandeznorona/status/1589035784036048896) | 42 Me Gusta | 15 Retweets
+Ya entrado en gastos haz un estudio sobre mi caso. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1589099203418263552) | 50 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 14:58:35
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 19:34:49
 *****
-Pues el burro hablando de orejas. Abrazote. Me refiero al burro wicha.
-[Permalink](https://twitter.com/fernandeznorona/status/1589029440339996672) | 20 Me Gusta | 1 Retweets
+Naa, en tres semanas darán a conocer la fecha de inauguración.
+[Permalink](https://twitter.com/fernandeznorona/status/1589098952850231296) | 43 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 14:55:33
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 19:32:55
 *****
-RT @lximenezsarro: Como la gran experta en agronomía que soy, recomiendo ampliamente utilizar #ElReyDelCash de @luzelenachavez8, para quien…
-[Permalink](https://twitter.com/fernandeznorona/status/1589028673977733121) | 0 Me Gusta | 146 Retweets
+RT @alvaro_delgado: No sean ingenuos: No por que hayan despedido a un grupo de panistas, encabezados por @HugoRodriguezN, tuíter México dej…
+[Permalink](https://twitter.com/fernandeznorona/status/1589098475815591936) | 0 Me Gusta | 777 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 14:53:18
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 19:32:36
 *****
-Lamento el fallecimiento de nuestro compañero ex Dip. federal Luis Alegre. Mis condolencias para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1589028107352408064) | 67 Me Gusta | 8 Retweets
+Pasamos a echarnos unos tacos en Apatzingán y saldremos rumbo a Lázaro Cárdenas.
+[Permalink](https://twitter.com/fernandeznorona/status/1589098395599527937) | 221 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 14:50:15
+**Fernández Noroña** (**@fernandeznorona**) • 05-11-2022 a las 19:27:29
 *****
-Mientes para variar. De entrada son cerca 50 las iniciativas de reforma que se revisan. Por otra parte, fuiste un fraudulento y tramposo en la comisión que proceso la elección de consejeros de la pasada legislatura. Eres un farsante @dvalades.
-[Permalink](https://twitter.com/fernandeznorona/status/1589027340000333824) | 39 Me Gusta | 14 Retweets
+Zacapu, Mich.
+[Permalink](https://twitter.com/fernandeznorona/status/1589097110644957184) | 99 Me Gusta | 28 Retweets

@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 02:53:46
+**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 10:08:37
 *****
-Eclipse.
-[Permalink](https://twitter.com/fernandeznorona/status/1589934194385379329) | 26 Me Gusta | 1 Retweets
+RT @ebauman70: Para aquellos que creen eso del asesino solitario.
+
+
+A más de 60 años, el discurso hoy parece algo sacado de una lejana mitol…
+[Permalink](https://twitter.com/fernandeznorona/status/1590043631083474944) | 0 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 01:58:03
+**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 09:50:56
 *****
-En la foto no se ve el eclipse. Lástima.
-[Permalink](https://twitter.com/fernandeznorona/status/1589920175989870592) | 20 Me Gusta | 1 Retweets
+RT @AristeguiOnline: 'El INE se convirtió en un actor político y no en un árbitro': Fabrizio Mejía
+👉
+[Permalink](https://twitter.com/fernandeznorona/status/1590039181358944258) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 01:29:13
+**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 09:50:52
 *****
-No se ve el eclipse en la foto. Inició.
-[Permalink](https://twitter.com/fernandeznorona/status/1589912916324765696) | 12 Me Gusta | 1 Retweets
+RT @TobiasLatour: Tan anti democrático es el @INEMexico que están en contra de que el pueblo elija a sus consejeros
+[Permalink](https://twitter.com/fernandeznorona/status/1590039163822571520) | 0 Me Gusta | 206 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 19:52:40
+**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 09:37:59
 *****
-García Luna mantuvo nexos con el narco por más de 18 años (en sexenios de Fox y Calderón), aseguraron fiscales de EEUU - Infobae. Su opinión cabeza hueca ⁦@VicenteFoxQue⁩ y #TomandanteBorolas alias ⁦@FelipeCalderon⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1589828224011280389) | 261 Me Gusta | 128 Retweets
+RT @jairocalixto: En nombre de la democracia participativa, la tolerancia y la fe en el debate, voy a enmarcar esta bonita imagen. Muchos t…
+[Permalink](https://twitter.com/fernandeznorona/status/1590035920958681088) | 0 Me Gusta | 294 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 18:18:23
+**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 09:37:07
 *****
-Muy gentil la titular de @SEMARNAT_mx, @Mary_Luisa_AG revisarán Camécuaro.
-[Permalink](https://twitter.com/fernandeznorona/status/1589804494912917505) | 132 Me Gusta | 31 Retweets
+RT @lximenezsarro: El eclipse de anoche, provocará 2 millones de abortos, la criminal gestión de Gatell no pudo preveer y no entregó liston…
+[Permalink](https://twitter.com/fernandeznorona/status/1590035703693737984) | 0 Me Gusta | 116 Retweets

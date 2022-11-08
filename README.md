@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 11:50:01
+**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 19:52:40
 *****
-Este pe…rsonaje considera un defecto del sistema democrático que el pueblo decida. Cada vez muestran más su rostro facho.
-[Permalink](https://twitter.com/fernandeznorona/status/1589706758909743104) | 150 Me Gusta | 49 Retweets
+García Luna mantuvo nexos con el narco por más de 18 años (en sexenios de Fox y Calderón), aseguraron fiscales de EEUU - Infobae. Su opinión cabeza hueca ⁦@VicenteFoxQue⁩ y #TomandanteBorolas alias ⁦@FelipeCalderon⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1589828224011280389) | 169 Me Gusta | 75 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 11:47:02
+**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 18:18:23
 *****
-RT @xX_DarkAdria_Xx: El amor y apoyo del pueblo ❤️
-[Permalink](https://twitter.com/fernandeznorona/status/1589706010175844352) | 0 Me Gusta | 16 Retweets
+Muy gentil la titular de @SEMARNAT_mx, @Mary_Luisa_AG revisarán Camécuaro.
+[Permalink](https://twitter.com/fernandeznorona/status/1589804494912917505) | 104 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 11:46:24
+**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 17:38:28
 *****
-¡Mira! Siempre se aprende algo nuevo.  Mis disculpas a @PonchoGutz.
-[Permalink](https://twitter.com/fernandeznorona/status/1589705850104401920) | 52 Me Gusta | 9 Retweets
+RT @paolagzzcas: Ayudaaaaaa 🚨🚨🚨
+\#Apodaca #NuevoLeon
+[Permalink](https://twitter.com/fernandeznorona/status/1589794448787247104) | 0 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 11:11:56
+**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 17:36:18
 *****
-Esta vez te equivocaste, las comillas nunca son para denotar sarcasmo. En todo caso se podría pensar que estás citando a alguien.
-[Permalink](https://twitter.com/fernandeznorona/status/1589697174795059201) | 48 Me Gusta | 10 Retweets
+Relájate.
+[Permalink](https://twitter.com/fernandeznorona/status/1589793903167049728) | 30 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 11:09:05
+**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 17:33:20
 *****
-Está garantizado.
-[Permalink](https://twitter.com/fernandeznorona/status/1589696458554736640) | 33 Me Gusta | 6 Retweets
+La luna.
+[Permalink](https://twitter.com/fernandeznorona/status/1589793157796896768) | 203 Me Gusta | 23 Retweets

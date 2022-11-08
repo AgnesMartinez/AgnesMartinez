@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 09:32:15
+**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 11:50:01
 *****
-O buscarás en vano o no es leído la iniciativa. ¿Ya también le entrarás a la campaña de mentiras?
-[Permalink](https://twitter.com/fernandeznorona/status/1589672090151833600) | 25 Me Gusta | 7 Retweets
+Este pe…rsonaje considera un defecto del sistema democrático que el pueblo decida. Cada vez muestran más su rostro facho.
+[Permalink](https://twitter.com/fernandeznorona/status/1589706758909743104) | 150 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 09:29:38
+**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 11:47:02
 *****
-Claro, para ti todo acuerdo popular y reparto de posiciones es democracia. Toda participación del pueblo es demagogia. Farsante @dvalades.
-[Permalink](https://twitter.com/fernandeznorona/status/1589671430501076993) | 18 Me Gusta | 11 Retweets
+RT @xX_DarkAdria_Xx: El amor y apoyo del pueblo ❤️
+[Permalink](https://twitter.com/fernandeznorona/status/1589706010175844352) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 09:24:18
+**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 11:46:24
 *****
-Próximo sábado 12 de noviembre a las 12 del día, Plaza de Santo Domingo, en la capital del país. Asamblea informativa e de inicio de campaña nacional de afiliación del @PTnacionalMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1589670088533082113) | 35 Me Gusta | 14 Retweets
+¡Mira! Siempre se aprende algo nuevo.  Mis disculpas a @PonchoGutz.
+[Permalink](https://twitter.com/fernandeznorona/status/1589705850104401920) | 52 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 09:22:18
+**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 11:11:56
 *****
-RT @maurojas360: La lucha revolucionaria es de izquierda. Si bien es cierto que existen numerosos ejemplos de que la llamada burguesía ha h…
-[Permalink](https://twitter.com/fernandeznorona/status/1589669587402240000) | 0 Me Gusta | 15 Retweets
+Esta vez te equivocaste, las comillas nunca son para denotar sarcasmo. En todo caso se podría pensar que estás citando a alguien.
+[Permalink](https://twitter.com/fernandeznorona/status/1589697174795059201) | 48 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 09:19:03
+**Fernández Noroña** (**@fernandeznorona**) • 07-11-2022 a las 11:09:05
 *****
-Elineno, creo que es la panza, y no se toca.
-[Permalink](https://twitter.com/fernandeznorona/status/1589668766928891904) | 15 Me Gusta | 5 Retweets
+Está garantizado.
+[Permalink](https://twitter.com/fernandeznorona/status/1589696458554736640) | 33 Me Gusta | 6 Retweets

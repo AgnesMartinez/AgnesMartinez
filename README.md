@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 22:00:21
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 10:08:43
 *****
-Cierto.
-[Permalink](https://twitter.com/fernandeznorona/status/1590222744519872512) | 33 Me Gusta | 7 Retweets
+RT @NachoRgz: Dirán lo que quieran de las encuestas de youtubers pero estos números NO son inventados -y menos bots-
+[Permalink](https://twitter.com/fernandeznorona/status/1590406043313786880) | 0 Me Gusta | 52 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 21:59:53
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 10:07:37
 *****
-No generalizó, hizo un diagnóstico preciso.
-[Permalink](https://twitter.com/fernandeznorona/status/1590222627469414400) | 76 Me Gusta | 21 Retweets
+Ya dio la instrucción de que quede liberado el Zócalo para que no tengan pretexto alguno.
+[Permalink](https://twitter.com/fernandeznorona/status/1590405764614873089) | 10 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 17:21:14
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 09:07:36
 *****
-12,252 en Facebook y, 7945 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1590152499238817792) | 112 Me Gusta | 19 Retweets
+RT @Jualicra: A pesar de que el evento de béisbol estaba planeado antes de la marcha del domingo, el presidente @lopezobrador_ pidió hablar…
+[Permalink](https://twitter.com/fernandeznorona/status/1590390662033444864) | 0 Me Gusta | 40 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 15:54:16
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 09:06:47
 *****
-En el antiguo ayuntamiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1590130615344472066) | 187 Me Gusta | 37 Retweets
+Una persona humana y sensata.
+[Permalink](https://twitter.com/fernandeznorona/status/1590390454893576193) | 21 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-11-2022 a las 14:48:33
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 09:06:35
 *****
-Hoy en tribuna.
-[Permalink](https://twitter.com/fernandeznorona/status/1590114076067176449) | 616 Me Gusta | 107 Retweets
+RT @NachoRgz: Prácticamente TODAS las encuestas que son publicadas en los medios son sesgadas por la sencilla razón que NO encuestan @ferna…
+[Permalink](https://twitter.com/fernandeznorona/status/1590390408085143554) | 0 Me Gusta | 29 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 13:34:23
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 20:33:20
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1590457798315634688) | 45 Me Gusta | 8 Retweets
+RT @rubengluengas: Coca-Cola, el mayor contaminador plástico del mundo, patrocinador de la Conferencia Ambiental en #Egipto (COP 27) | Rubé…
+[Permalink](https://twitter.com/fernandeznorona/status/1590563230522699776) | 0 Me Gusta | 112 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 11:59:39
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 20:19:27
 *****
-RT @NachoRgz: Acabo de lanzar otra encuesta súper mega representativa en El Chapucero y pues el dato más fuerte no es @fernandeznorona, sin…
-[Permalink](https://twitter.com/fernandeznorona/status/1590433960416645120) | 0 Me Gusta | 19 Retweets
+No lo maltrata verbalmente, de hecho lo agrede físicamente.
+[Permalink](https://twitter.com/fernandeznorona/status/1590559740551041024) | 171 Me Gusta | 97 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 11:57:39
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 20:17:36
 *****
-Oye #TomandanteBorolas alias @FelipeCalderon, dice mi amigo @insolitista que las olas de calor se mitigan tomando cerveza y en eso tienes mucha experiencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1590433455938342912) | 314 Me Gusta | 86 Retweets
+Por fin lo terminé. Demoledor libro. Lectura obligada para hombres y mujeres. Sobre todo para quienes quieren hacer vida de pareja.
+[Permalink](https://twitter.com/fernandeznorona/status/1590559270957121539) | 88 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 11:43:50
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 20:00:42
 *****
-Más vale tarde. Muchas felicidades. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1590429980709691392) | 23 Me Gusta | 8 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1590555020155445249) | 52 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 11:21:38
+**Fernández Noroña** (**@fernandeznorona**) • 09-11-2022 a las 19:52:33
 *****
-Aunque espero que les hayas dicho que eres especialista en las olas de calor provocado por el vapor etílico, #TomandanteBorolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1590424393741905920) | 146 Me Gusta | 44 Retweets
+Ya está desocupada. No habrá ninguna dificultad.
+[Permalink](https://twitter.com/fernandeznorona/status/1590552968054837248) | 43 Me Gusta | 18 Retweets

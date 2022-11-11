@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 15:46:35
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 21:40:13
 *****
-RT @ceciazul: 4-Otro:"Se proporcionarán escuelas separadas para niños blancos y de color, no se permitirá q ningún niño de ninguna raza asi…
-[Permalink](https://twitter.com/fernandeznorona/status/1590853456541405184) | 0 Me Gusta | 36 Retweets
+Jajajajejejejijijijojojojujuju, sigan marchando. Marcharon desde el 2018 y seguirán marchando. Abur.
+[Permalink](https://twitter.com/fernandeznorona/status/1590942450092318720) | 31 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 15:46:22
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 21:38:57
 *****
-RT @ceciazul: 3-Hasta ayer, la constitución de Alabama todavía tenía artículos racistas como: "la Legislatura nunca aprobará ninguna ley pa…
-[Permalink](https://twitter.com/fernandeznorona/status/1590853403168866304) | 0 Me Gusta | 47 Retweets
+Buenas noches, eso dicen siempre pero yo no veo claro @UCS_GCDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1590942132868874240) | 9 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 15:41:24
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 21:38:30
 *****
-Los que ganen menos de 250,000 pesos.
-[Permalink](https://twitter.com/fernandeznorona/status/1590852151445594113) | 24 Me Gusta | 4 Retweets
+¡Claro! Pero parece tan @FelipeCalderon que me dieron ganas de responderle.
+[Permalink](https://twitter.com/fernandeznorona/status/1590942019358429184) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 14:41:56
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 21:37:15
 *****
-RT @juanbaaq: Lee el proyecto de reforma, y una vez enterado, haz los reclamos que surjan de tu propio criterio. 
-
-
-Y… más que el código de…
-[Permalink](https://twitter.com/fernandeznorona/status/1590837189315014656) | 0 Me Gusta | 169 Retweets
+Uh, desaparecería @AccionNacional.
+[Permalink](https://twitter.com/fernandeznorona/status/1590941705993605121) | 12 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 14:39:56
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 21:35:26
 *****
-Pon el ejemplo y asiste. ¿O te falta valor #TomandanteBorolas alias @felipecalderon?
-[Permalink](https://twitter.com/fernandeznorona/status/1590836685528764417) | 78 Me Gusta | 34 Retweets
+RT @Ilianalimon: Sigo sin poder creer el tuit del Director del Williams, por mas que intento ponerme en sus zapatos, no entiendo qué pensó…
+[Permalink](https://twitter.com/fernandeznorona/status/1590941249065795589) | 0 Me Gusta | 4 Retweets

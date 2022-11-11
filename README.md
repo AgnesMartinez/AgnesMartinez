@@ -1,26 +1,39 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 21:40:13
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 10:11:26
 *****
-Jajajajejejejijijijojojojujuju, sigan marchando. Marcharon desde el 2018 y seguirán marchando. Abur.
-[Permalink](https://twitter.com/fernandeznorona/status/1590942450092318720) | 77 Me Gusta | 24 Retweets
+RT @Nubia_SCG: 🔊🔊🔊¡¡ ES MAÑANA !!🔊🔊🔊
+
+
+\#NoroñaEsPueblo
+\#MovimientoNoroñista
+
+
+"Por el sueño que entre todos estamos construyendo" ❤️🇲🇽 https:…
+[Permalink](https://twitter.com/fernandeznorona/status/1591131502561341441) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 21:38:57
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 10:09:26
 *****
-Buenas noches, eso dicen siempre pero yo no veo claro @UCS_GCDMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1590942132868874240) | 21 Me Gusta | 5 Retweets
+Bozal.
+[Permalink](https://twitter.com/fernandeznorona/status/1591131000347951104) | 5 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 21:38:30
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 10:04:29
 *****
-¡Claro! Pero parece tan @FelipeCalderon que me dieron ganas de responderle.
-[Permalink](https://twitter.com/fernandeznorona/status/1590942019358429184) | 19 Me Gusta | 2 Retweets
+Siguen usando la plaza de Leandro Valle como estacionamiento ⁦@UCS_GCDMX⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1591129751757852672) | 16 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 21:37:15
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 07:42:10
 *****
-Uh, desaparecería @AccionNacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1590941705993605121) | 33 Me Gusta | 10 Retweets
+RT @Dinorah_Pizano: Ayer en la clase de natación de 1er grado en el #ColegioWilliams , Abner de 6 años se hundió en la alberca.  Nadie del…
+[Permalink](https://twitter.com/fernandeznorona/status/1591093937036722176) | 0 Me Gusta | 1,568 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 21:35:26
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 07:41:58
 *****
-RT @Ilianalimon: Sigo sin poder creer el tuit del Director del Williams, por mas que intento ponerme en sus zapatos, no entiendo qué pensó…
-[Permalink](https://twitter.com/fernandeznorona/status/1590941249065795589) | 0 Me Gusta | 8 Retweets
+RT @mlucascir: No van al Zócalo porque no lo llenan.
+
+
+No van al Hemiciclo a Juárez porque desprecian a Benito. 
+
+
+Si supieran que la Revoluc…
+[Permalink](https://twitter.com/fernandeznorona/status/1591093888487657473) | 0 Me Gusta | 147 Retweets

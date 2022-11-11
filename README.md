@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 10:07:27
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 15:46:35
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1590768111720042498) | 3 Me Gusta | 0 Retweets
+RT @ceciazul: 4-Otro:"Se proporcionarán escuelas separadas para niños blancos y de color, no se permitirá q ningún niño de ninguna raza asi…
+[Permalink](https://twitter.com/fernandeznorona/status/1590853456541405184) | 0 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 09:53:55
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 15:46:22
 *****
-Puse a leer a los paniaguados.
-[Permalink](https://twitter.com/fernandeznorona/status/1590764704397402112) | 41 Me Gusta | 7 Retweets
+RT @ceciazul: 3-Hasta ayer, la constitución de Alabama todavía tenía artículos racistas como: "la Legislatura nunca aprobará ninguna ley pa…
+[Permalink](https://twitter.com/fernandeznorona/status/1590853403168866304) | 0 Me Gusta | 47 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 09:53:28
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 15:41:24
 *****
-El doctor Noroña recomendándoles libros a los paniaguados.
-[Permalink](https://twitter.com/fernandeznorona/status/1590764594146021391) | 35 Me Gusta | 3 Retweets
+Los que ganen menos de 250,000 pesos.
+[Permalink](https://twitter.com/fernandeznorona/status/1590852151445594113) | 24 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 08:48:47
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 14:41:56
 *****
-Oye #TomandanteBorolas alias @FelipeCalderon, te recuerdo que se fue al @PRI_Nacional; ah, que ya son tus “brothers”. Aunque por lo menos @EufrosinaCruz asume su origen, aunque se desclase. Tú, ni a eso llegas, desclasado, farsante y traidor al pueblo.
-[Permalink](https://twitter.com/fernandeznorona/status/1590748316244901891) | 50 Me Gusta | 15 Retweets
+RT @juanbaaq: Lee el proyecto de reforma, y una vez enterado, haz los reclamos que surjan de tu propio criterio. 
+
+
+Y… más que el código de…
+[Permalink](https://twitter.com/fernandeznorona/status/1590837189315014656) | 0 Me Gusta | 169 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 08:44:11
+**Fernández Noroña** (**@fernandeznorona**) • 10-11-2022 a las 14:39:56
 *****
-RT @MarthaCajigas: No entiendo como hay gente defendiendo a Colegio Williams, son unos miserables, ahí murió UN NIÑO, UN NIÑO… y hay gente…
-[Permalink](https://twitter.com/fernandeznorona/status/1590747155152502793) | 0 Me Gusta | 42 Retweets
+Pon el ejemplo y asiste. ¿O te falta valor #TomandanteBorolas alias @felipecalderon?
+[Permalink](https://twitter.com/fernandeznorona/status/1590836685528764417) | 78 Me Gusta | 34 Retweets

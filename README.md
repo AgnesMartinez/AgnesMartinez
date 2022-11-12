@@ -1,39 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 10:11:26
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 15:41:19
 *****
-RT @Nubia_SCG: 🔊🔊🔊¡¡ ES MAÑANA !!🔊🔊🔊
-
-
-\#NoroñaEsPueblo
-\#MovimientoNoroñista
-
-
-"Por el sueño que entre todos estamos construyendo" ❤️🇲🇽 https:…
-[Permalink](https://twitter.com/fernandeznorona/status/1591131502561341441) | 0 Me Gusta | 6 Retweets
+RT @Beatriz84981597: Compañer@s ya mañana es la gran asamblea popular, hay que cerrar filas con GERARDO FERNÁNDEZ NOROÑA, demostremos que a…
+[Permalink](https://twitter.com/fernandeznorona/status/1591214521019879424) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 10:09:26
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 15:40:41
 *****
-Bozal.
-[Permalink](https://twitter.com/fernandeznorona/status/1591131000347951104) | 5 Me Gusta | 0 Retweets
+¡Qué bello!
+[Permalink](https://twitter.com/fernandeznorona/status/1591214360047030272) | 12 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 10:04:29
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 15:40:02
 *****
-Siguen usando la plaza de Leandro Valle como estacionamiento ⁦@UCS_GCDMX⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1591129751757852672) | 16 Me Gusta | 3 Retweets
+RT @AlbertoAnayaGt: Mañana acompañaremos a nuestro amigo y compañero @fernandeznorona, quien encabezará la Asamblea Informativa sobre el pr…
+[Permalink](https://twitter.com/fernandeznorona/status/1591214195604742146) | 0 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 07:42:10
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 15:39:32
 *****
-RT @Dinorah_Pizano: Ayer en la clase de natación de 1er grado en el #ColegioWilliams , Abner de 6 años se hundió en la alberca.  Nadie del…
-[Permalink](https://twitter.com/fernandeznorona/status/1591093937036722176) | 0 Me Gusta | 1,568 Retweets
+Soy un privilegiado. Yo lo hago todos los días.
+[Permalink](https://twitter.com/fernandeznorona/status/1591214071650562048) | 27 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 07:41:58
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 13:37:30
 *****
-RT @mlucascir: No van al Zócalo porque no lo llenan.
-
-
-No van al Hemiciclo a Juárez porque desprecian a Benito. 
-
-
-Si supieran que la Revoluc…
-[Permalink](https://twitter.com/fernandeznorona/status/1591093888487657473) | 0 Me Gusta | 147 Retweets
+Muy buen análisis de @Sergeluna_S. Se los recomiendo.
+[Permalink](https://twitter.com/fernandeznorona/status/1591183361183461376) | 149 Me Gusta | 71 Retweets

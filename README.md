@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 15:41:19
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 21:37:51
 *****
-RT @Beatriz84981597: Compañer@s ya mañana es la gran asamblea popular, hay que cerrar filas con GERARDO FERNÁNDEZ NOROÑA, demostremos que a…
-[Permalink](https://twitter.com/fernandeznorona/status/1591214521019879424) | 0 Me Gusta | 28 Retweets
+Acabamos de rebasar los 251 votos. Hay presupuesto 2023. Cumplimos pueblo de México.
+[Permalink](https://twitter.com/fernandeznorona/status/1591304242584850433) | 289 Me Gusta | 91 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 15:40:41
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 18:43:51
 *****
-¡Qué bello!
-[Permalink](https://twitter.com/fernandeznorona/status/1591214360047030272) | 12 Me Gusta | 1 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1591260455137587200) | 56 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 15:40:02
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 18:41:34
 *****
-RT @AlbertoAnayaGt: Mañana acompañaremos a nuestro amigo y compañero @fernandeznorona, quien encabezará la Asamblea Informativa sobre el pr…
-[Permalink](https://twitter.com/fernandeznorona/status/1591214195604742146) | 0 Me Gusta | 37 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1591259879989444608) | 23 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 15:39:32
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 18:41:06
 *****
-Soy un privilegiado. Yo lo hago todos los días.
-[Permalink](https://twitter.com/fernandeznorona/status/1591214071650562048) | 27 Me Gusta | 5 Retweets
+RT @JulietaRamirezP: Me apagan el micrófono por decirle sus verdades al PRIAN.
+
+
+Extrañan manotear el Presupuesto de México.
+[Permalink](https://twitter.com/fernandeznorona/status/1591259761873682432) | 0 Me Gusta | 1,143 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 13:37:30
+**Fernández Noroña** (**@fernandeznorona**) • 11-11-2022 a las 18:39:24
 *****
-Muy buen análisis de @Sergeluna_S. Se los recomiendo.
-[Permalink](https://twitter.com/fernandeznorona/status/1591183361183461376) | 149 Me Gusta | 71 Retweets
+Ninguno de éstos marchará el domingo. Tenían 143,000 millones de dólares; ahora tienen 161,300 millones de dólares. Pero dicen que el compañero presidente ha destrozado el país.
+[Permalink](https://twitter.com/fernandeznorona/status/1591259337007435777) | 276 Me Gusta | 142 Retweets

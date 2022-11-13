@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 09:56:56
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 15:45:28
 *****
-Comparte los de @PartidoMorenaMx, que son de primerísima.
-[Permalink](https://twitter.com/fernandeznorona/status/1591490241608941568) | 14 Me Gusta | 4 Retweets
+Plaza de Santo Domingo.
+[Permalink](https://twitter.com/fernandeznorona/status/1591577952273432576) | 55 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 09:54:57
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 14:54:04
 *****
-No hay duda que hoy alcanzas el nivel de excelencia en estulticia, cabeza hueca @VicenteFoxQue.
-[Permalink](https://twitter.com/fernandeznorona/status/1591489739546570752) | 17 Me Gusta | 4 Retweets
+Mis nahuales.
+[Permalink](https://twitter.com/fernandeznorona/status/1591565015173169153) | 102 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 09:53:15
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 14:53:02
 *****
-Vividor. Explotas a los trabajadores. Si tu dinero se reprodujera enterrándolo, eso harías. Farsante.
-[Permalink](https://twitter.com/fernandeznorona/status/1591489312297816066) | 23 Me Gusta | 6 Retweets
+Plaza de Santo Domingo.
+[Permalink](https://twitter.com/fernandeznorona/status/1591564757399658498) | 84 Me Gusta | 40 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 09:52:09
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 14:50:50
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1591489036694192128) | 20 Me Gusta | 7 Retweets
+Con ⁦@AlbertoAnayaGt⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1591564201713369090) | 85 Me Gusta | 38 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 09:50:00
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 14:50:13
 *****
-Va tomando forma la Asamblea Informativa y el inicio de la Campaña Nacional de Afiliación del ⁦@PTnacionalMX⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1591488496853610497) | 33 Me Gusta | 11 Retweets
+Hoy en la plaza de Santo Domingo.
+[Permalink](https://twitter.com/fernandeznorona/status/1591564049682239489) | 108 Me Gusta | 44 Retweets

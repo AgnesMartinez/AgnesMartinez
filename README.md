@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 15:45:28
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 20:33:41
 *****
-Plaza de Santo Domingo.
-[Permalink](https://twitter.com/fernandeznorona/status/1591577952273432576) | 55 Me Gusta | 22 Retweets
+Hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1591650482283773956) | 76 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 14:54:04
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 20:28:34
 *****
-Mis nahuales.
-[Permalink](https://twitter.com/fernandeznorona/status/1591565015173169153) | 102 Me Gusta | 26 Retweets
+Sólo te faltó decir que la fuente y el vándalo eres tú mismo. @RicardoAlemanMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1591649197891416066) | 52 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 14:53:02
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 20:25:35
 *****
-Plaza de Santo Domingo.
-[Permalink](https://twitter.com/fernandeznorona/status/1591564757399658498) | 84 Me Gusta | 40 Retweets
+Es un tipejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1591648447694000130) | 19 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 14:50:50
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 20:23:03
 *****
-Con ⁦@AlbertoAnayaGt⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1591564201713369090) | 85 Me Gusta | 38 Retweets
+Cierto. Es mi amigo @_VicenteSerrano.
+[Permalink](https://twitter.com/fernandeznorona/status/1591647808502861825) | 29 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 14:50:13
+**Fernández Noroña** (**@fernandeznorona**) • 12-11-2022 a las 20:21:00
 *****
-Hoy en la plaza de Santo Domingo.
-[Permalink](https://twitter.com/fernandeznorona/status/1591564049682239489) | 108 Me Gusta | 44 Retweets
+RT @PonchoGutz: El Partido Acción Nacional los invita a esta marcha totalmente apartidista*
+[Permalink](https://twitter.com/fernandeznorona/status/1591647293983592449) | 0 Me Gusta | 256 Retweets

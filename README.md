@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 15:44:24
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 20:56:13
 *****
-RT @PedroFerriz: Te adoro cabrón. 
-Eres un gran mexicano
-[Permalink](https://twitter.com/fernandeznorona/status/1591940071661477891) | 0 Me Gusta | 110 Retweets
+“Los libros me han enseñado, y de ellos he aprendido que el cielo no es humano en absoluto y que un hombre que piensa tampoco lo es, no porque no quiera sino porque va contra el sentido común”. Hrabal.
+[Permalink](https://twitter.com/fernandeznorona/status/1592018544526753792) | 35 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 15:44:12
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 20:42:24
 *****
-Uh si, no sabes mi chayote feroz, hoy no dormiré de la angustia @rivapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1591940021871063040) | 49 Me Gusta | 8 Retweets
+Lo hemos hecho TODO el tiempo y se volverá a llenar el zócalo el 1 de diciembre. Con que poquita cosa se alteran.
+[Permalink](https://twitter.com/fernandeznorona/status/1592015063652904960) | 33 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 15:43:23
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 20:40:19
 *****
-Me imagino que siempre te reprobaron en aritmética básica. De lógica, ya ni hablamos. Abur.
-[Permalink](https://twitter.com/fernandeznorona/status/1591939815653646337) | 28 Me Gusta | 6 Retweets
+Lo terminé. Muy bueno.
+[Permalink](https://twitter.com/fernandeznorona/status/1592014539578658816) | 32 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 15:42:06
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 19:52:00
 *****
-Ilústranos con tu sapiencia, ¿cuántos fueron?
-[Permalink](https://twitter.com/fernandeznorona/status/1591939493837541376) | 25 Me Gusta | 8 Retweets
+No me había dado cuenta que ayer hubo medio millón en mi asamblea informativa. Lo que uno aprende con la derecha.
+[Permalink](https://twitter.com/fernandeznorona/status/1592002382598393856) | 493 Me Gusta | 111 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 15:40:57
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 19:48:31
 *****
-RT @Eponiatowska: Al  salir de  "La Lechuza" a la que fui a pie  con 
- el  estudiante Axel Vega Castillo, una señora me espetó: "¿Por qué n…
-[Permalink](https://twitter.com/fernandeznorona/status/1591939202908057601) | 0 Me Gusta | 30 Retweets
+Me voy a dormir. Al paso que van, los derechosos dirán que fueron 130 millones de personas a la marcha. Hasta yo fui y ni me di cuenta.
+[Permalink](https://twitter.com/fernandeznorona/status/1592001505766563840) | 947 Me Gusta | 183 Retweets

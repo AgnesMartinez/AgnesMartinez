@@ -1,29 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 09:29:06
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 15:44:24
 *****
-RT @DiegodelBosqueV: Primer logro de la marcha:
-
-
-@lorenzocordovav canceló su gira por Europa
-[Permalink](https://twitter.com/fernandeznorona/status/1591845623174778971) | 0 Me Gusta | 133 Retweets
+RT @PedroFerriz: Te adoro cabrón. 
+Eres un gran mexicano
+[Permalink](https://twitter.com/fernandeznorona/status/1591940071661477891) | 0 Me Gusta | 110 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 09:27:03
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 15:44:12
 *****
-Mira @ivonnemelgar, tú que dices que es un legislador excelso tu paniaguado amigo. Es un cobarde, un provocador vulgar. Lástima de herencia. Ser refugiado español y que tú descendencia termine en ese ínfimo ser humano. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1591845110018609154) | 44 Me Gusta | 11 Retweets
+Uh si, no sabes mi chayote feroz, hoy no dormiré de la angustia @rivapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1591940021871063040) | 49 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 09:19:42
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 15:43:23
 *****
-Jajajajejejejijijijojojojujuju, échenle más ganitas.
-[Permalink](https://twitter.com/fernandeznorona/status/1591843258531221504) | 44 Me Gusta | 9 Retweets
+Me imagino que siempre te reprobaron en aritmética básica. De lógica, ya ni hablamos. Abur.
+[Permalink](https://twitter.com/fernandeznorona/status/1591939815653646337) | 28 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 09:17:38
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 15:42:06
 *****
-RT @lopezobrador_: Estoy con Beatriz, Jesús, Gonzalo, Andrés, José Ramón y mis nietos, Mateo y Salomón. Cuento también con el cariño de ust…
-[Permalink](https://twitter.com/fernandeznorona/status/1591842738521403394) | 0 Me Gusta | 3,975 Retweets
+Ilústranos con tu sapiencia, ¿cuántos fueron?
+[Permalink](https://twitter.com/fernandeznorona/status/1591939493837541376) | 25 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 09:16:27
+**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 15:40:57
 *****
-Ahí la llevan. Échenle más ganitas.
-[Permalink](https://twitter.com/fernandeznorona/status/1591842440897777664) | 162 Me Gusta | 22 Retweets
+RT @Eponiatowska: Al  salir de  "La Lechuza" a la que fui a pie  con 
+ el  estudiante Axel Vega Castillo, una señora me espetó: "¿Por qué n…
+[Permalink](https://twitter.com/fernandeznorona/status/1591939202908057601) | 0 Me Gusta | 30 Retweets

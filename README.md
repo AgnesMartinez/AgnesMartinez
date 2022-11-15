@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 15:56:26
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 19:55:34
 *****
-Mi agenda de esta semana.
-[Permalink](https://twitter.com/fernandeznorona/status/1592305487344963586) | 26 Me Gusta | 8 Retweets
+Ajustes a la agenda.
+[Permalink](https://twitter.com/fernandeznorona/status/1592365665947889665) | 36 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 15:52:19
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 19:20:01
 *****
-Me hacen la denuncia, que en autos particulares, supuestos policías del Estado de México detuvieron a Gilberto Cuba Lara en Tecalco, Ozumba.
-[Permalink](https://twitter.com/fernandeznorona/status/1592304451494232065) | 15 Me Gusta | 2 Retweets
+“… en cambio, la única cosa satisfactoria es cuando un individuo, mejor dicho, toda la sociedad, consiguen rejuvenecerse en la lucha, conquistar su derecho a una nueva vida”. Hrabal.
+[Permalink](https://twitter.com/fernandeznorona/status/1592356720235642880) | 30 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 15:42:11
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 18:39:20
 *****
-Naa, nos veremos el 1 de diciembre en el Zócalo. No tenemos porque reaccionar. La agenda la fija el compañero presidente y la oposición baila al son que éste le toca.
-[Permalink](https://twitter.com/fernandeznorona/status/1592301900082610176) | 107 Me Gusta | 39 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1592346483264978944) | 66 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 15:34:28
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 18:36:16
 *****
-Me hacen la denuncia que Gilberto Cuba Lara unos minutos en el crucero de Tecalco, Ozumba. También se le conoce como libramiento a Atlautla. Lo golpearon, iban en autos particulares. Fiscalía General de Justicia del Estado de México.
-[Permalink](https://twitter.com/fernandeznorona/status/1592299958253899776) | 37 Me Gusta | 18 Retweets
+La derecha después de la marcha.
+[Permalink](https://twitter.com/fernandeznorona/status/1592345710862958592) | 316 Me Gusta | 89 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 15:24:35
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 18:06:01
 *****
-Muchísimas gracias por tus comentarios. Sólo hacerte una precisión: que no fue una tienda en Estados Unidos, fue el City Market de Cuernavaca￼, jejeje. Pero ya los viste ayer.
-[Permalink](https://twitter.com/fernandeznorona/status/1592297471056674816) | 33 Me Gusta | 12 Retweets
+@Bgg6017 Transas.
+[Permalink](https://twitter.com/fernandeznorona/status/1592338096275992579) | 4 Me Gusta | 0 Retweets

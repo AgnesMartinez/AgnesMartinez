@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 10:04:28
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 15:56:26
 *****
-Maravilloso.
-[Permalink](https://twitter.com/fernandeznorona/status/1592216910883684352) | 13 Me Gusta | 2 Retweets
+Mi agenda de esta semana.
+[Permalink](https://twitter.com/fernandeznorona/status/1592305487344963586) | 26 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 10:03:55
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 15:52:19
 *****
-Hoy llegamos a un lugar al que no habíamos ido.
-[Permalink](https://twitter.com/fernandeznorona/status/1592216775684345856) | 14 Me Gusta | 3 Retweets
+Me hacen la denuncia, que en autos particulares, supuestos policías del Estado de México detuvieron a Gilberto Cuba Lara en Tecalco, Ozumba.
+[Permalink](https://twitter.com/fernandeznorona/status/1592304451494232065) | 15 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 20:56:13
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 15:42:11
 *****
-“Los libros me han enseñado, y de ellos he aprendido que el cielo no es humano en absoluto y que un hombre que piensa tampoco lo es, no porque no quiera sino porque va contra el sentido común”. Hrabal.
-[Permalink](https://twitter.com/fernandeznorona/status/1592018544526753792) | 86 Me Gusta | 15 Retweets
+Naa, nos veremos el 1 de diciembre en el Zócalo. No tenemos porque reaccionar. La agenda la fija el compañero presidente y la oposición baila al son que éste le toca.
+[Permalink](https://twitter.com/fernandeznorona/status/1592301900082610176) | 107 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 20:42:24
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 15:34:28
 *****
-Lo hemos hecho TODO el tiempo y se volverá a llenar el zócalo el 1 de diciembre. Con que poquita cosa se alteran.
-[Permalink](https://twitter.com/fernandeznorona/status/1592015063652904960) | 65 Me Gusta | 19 Retweets
+Me hacen la denuncia que Gilberto Cuba Lara unos minutos en el crucero de Tecalco, Ozumba. También se le conoce como libramiento a Atlautla. Lo golpearon, iban en autos particulares. Fiscalía General de Justicia del Estado de México.
+[Permalink](https://twitter.com/fernandeznorona/status/1592299958253899776) | 37 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-11-2022 a las 20:40:19
+**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 15:24:35
 *****
-Lo terminé. Muy bueno.
-[Permalink](https://twitter.com/fernandeznorona/status/1592014539578658816) | 59 Me Gusta | 6 Retweets
+Muchísimas gracias por tus comentarios. Sólo hacerte una precisión: que no fue una tienda en Estados Unidos, fue el City Market de Cuernavaca￼, jejeje. Pero ya los viste ayer.
+[Permalink](https://twitter.com/fernandeznorona/status/1592297471056674816) | 33 Me Gusta | 12 Retweets

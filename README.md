@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 19:55:34
+**Fernández Noroña** (**@fernandeznorona**) • 15-11-2022 a las 08:15:18
 *****
-Ajustes a la agenda.
-[Permalink](https://twitter.com/fernandeznorona/status/1592365665947889665) | 49 Me Gusta | 10 Retweets
+Ayúdanos @adela_bicha.
+[Permalink](https://twitter.com/fernandeznorona/status/1592551829287866370) | 30 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 19:20:01
+**Fernández Noroña** (**@fernandeznorona**) • 15-11-2022 a las 08:14:46
 *****
-“… en cambio, la única cosa satisfactoria es cuando un individuo, mejor dicho, toda la sociedad, consiguen rejuvenecerse en la lucha, conquistar su derecho a una nueva vida”. Hrabal.
-[Permalink](https://twitter.com/fernandeznorona/status/1592356720235642880) | 40 Me Gusta | 4 Retweets
+Es el mismo origen, la misma esencia, la misma misoginia.
+[Permalink](https://twitter.com/fernandeznorona/status/1592551693698625537) | 22 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 18:39:20
+**Fernández Noroña** (**@fernandeznorona**) • 15-11-2022 a las 08:12:29
+*****
+Xacto. Para más precisión, le hizo la tarea sucia al @PRI_Nacional; ayudó al fraude electoral que despojó a @delfinagomeza.
+[Permalink](https://twitter.com/fernandeznorona/status/1592551120211087361) | 30 Me Gusta | 10 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 15-11-2022 a las 08:10:40
 *****
 Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1592346483264978944) | 83 Me Gusta | 16 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1592550661170003969) | 35 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 18:36:16
+**Fernández Noroña** (**@fernandeznorona**) • 15-11-2022 a las 08:02:35
 *****
-La derecha después de la marcha.
-[Permalink](https://twitter.com/fernandeznorona/status/1592345710862958592) | 387 Me Gusta | 108 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 14-11-2022 a las 18:06:01
-*****
-@Bgg6017 Transas.
-[Permalink](https://twitter.com/fernandeznorona/status/1592338096275992579) | 4 Me Gusta | 0 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1592548627821785089) | 38 Me Gusta | 8 Retweets

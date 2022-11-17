@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 22:32:12
+**Fernández Noroña** (**@fernandeznorona**) • 17-11-2022 a las 10:00:45
 *****
-Lo terminé. Es un gran escritor, el final está muy cabrón. Sobre todo sabiendo al final del propio autor.
-[Permalink](https://twitter.com/fernandeznorona/status/1593129862960934912) | 49 Me Gusta | 9 Retweets
+“Para mi Benn tenía -¿cómo se dice ahora?-, carisma. En realidad, no me fío de esa palabra. Suena a enfermedad. ‘De qué murió aquel individuo?’ ‘De carisma, me parece’. Tan siniestro como el sida;…”. Bellow.
+[Permalink](https://twitter.com/fernandeznorona/status/1593303141210013697) | 9 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 22:16:41
+**Fernández Noroña** (**@fernandeznorona**) • 17-11-2022 a las 08:06:18
 *****
-Apenas vi mi intervención en @Mx_Diputados sobre la marcha de la derecha el 13 de noviembre. Francamente es muy buena.
-[Permalink](https://twitter.com/fernandeznorona/status/1593125956075786241) | 190 Me Gusta | 43 Retweets
+De los millones cabeza hueca @VicenteFoxQue, porque le metieron millones de pesos y ni así.
+[Permalink](https://twitter.com/fernandeznorona/status/1593274339864072192) | 76 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 22:14:43
+**Fernández Noroña** (**@fernandeznorona**) • 17-11-2022 a las 07:51:34
 *****
-RT @epigmenioibarra: Marcharon el domingo las y los iguales; uniformados, reconociéndose, alimentando sus fobias, hermanados por el odio a…
-[Permalink](https://twitter.com/fernandeznorona/status/1593125461529628672) | 0 Me Gusta | 1,518 Retweets
+RT @AliteyU: Dejaré esto por aquí y me iré lentamente…
+[Permalink](https://twitter.com/fernandeznorona/status/1593270632300658693) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 21:59:52
+**Fernández Noroña** (**@fernandeznorona**) • 17-11-2022 a las 06:59:29
 *****
-RT @RaulOjedaZ52: Convocados por el Presidente d la República, Andrés Manuel López Obrador a celebrar marchando el 27 ,ahí estaré pero avis…
-[Permalink](https://twitter.com/fernandeznorona/status/1593121725344251905) | 0 Me Gusta | 32 Retweets
+¿Ya te aterraste señor XJr @ClaudioXGG? Por cierto, ya les diste sus 200 pesos a los dirigentes del @PRI_Nacional, @AccionNacional y @PRDMexico?
+[Permalink](https://twitter.com/fernandeznorona/status/1593257524870144000) | 137 Me Gusta | 53 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 21:56:56
+**Fernández Noroña** (**@fernandeznorona**) • 17-11-2022 a las 06:58:00
 *****
-@HUGOSV2 Dizque.
-[Permalink](https://twitter.com/fernandeznorona/status/1593120984667951104) | 1 Me Gusta | 1 Retweets
+Jajajajejejejijijijojojojujuju, el tocado es otro. Ya no consumas tu producción cabeza hueca @VicenteFoxQue, te está haciendo daño.
+[Permalink](https://twitter.com/fernandeznorona/status/1593257149374701570) | 168 Me Gusta | 44 Retweets

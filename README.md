@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 08:46:14
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 21:59:52
 *****
-Este sábado.
-[Permalink](https://twitter.com/fernandeznorona/status/1592921998107496449) | 349 Me Gusta | 90 Retweets
+RT @RaulOjedaZ52: Convocados por el Presidente d la República, Andrés Manuel López Obrador a celebrar marchando el 27 ,ahí estaré pero avis…
+[Permalink](https://twitter.com/fernandeznorona/status/1593121725344251905) | 0 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-11-2022 a las 17:30:31
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 21:56:56
 *****
-22,794 en Facebook y, 8532 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1592691550743859200) | 264 Me Gusta | 45 Retweets
+@HUGOSV2 Dizque.
+[Permalink](https://twitter.com/fernandeznorona/status/1593120984667951104) | 0 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-11-2022 a las 14:40:14
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 21:55:08
 *****
-RT @adela_bicha: @ElMosquito1900 participación de @fernandeznorona el lunes  28 de noviembre, 17hrs, salón I, ubicado en salones de eventos…
-[Permalink](https://twitter.com/fernandeznorona/status/1592648698982715393) | 0 Me Gusta | 25 Retweets
+Intensa jornada la de hoy, terminaré mi libro y me dormiré.
+[Permalink](https://twitter.com/fernandeznorona/status/1593120533956395009) | 40 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-11-2022 a las 13:30:46
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 21:54:46
 *****
-1 de diciembre.
-[Permalink](https://twitter.com/fernandeznorona/status/1592631215227826176) | 142 Me Gusta | 34 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1593120439743942656) | 16 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-11-2022 a las 08:15:18
+**Fernández Noroña** (**@fernandeznorona**) • 16-11-2022 a las 18:44:57
 *****
-Ayúdanos @adela_bicha.
-[Permalink](https://twitter.com/fernandeznorona/status/1592551829287866370) | 67 Me Gusta | 13 Retweets
+Con el presidente de la Cámara de Diputados de República Dominicana y un grupo de legisladores del hermano país.
+[Permalink](https://twitter.com/fernandeznorona/status/1593072672925446144) | 268 Me Gusta | 59 Retweets

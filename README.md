@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-11-2022 a las 21:01:45
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 09:25:28
 *****
-18,390 en Facebook y, 9853 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1593469484890669056) | 42 Me Gusta | 7 Retweets
+@AleCamph @lopezobrador_ Buenas.
+[Permalink](https://twitter.com/fernandeznorona/status/1593656647343276032) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-11-2022 a las 18:48:32
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 09:23:46
 *****
-¿No?
-[Permalink](https://twitter.com/fernandeznorona/status/1593435963350450177) | 18 Me Gusta | 3 Retweets
+“…sino por amor y admiración a las potencias y facultades humanas a las que, sin exageración, pueden aplicarse los calificativos de ‘milagrosas’ y ‘sublimes”.
+[Permalink](https://twitter.com/fernandeznorona/status/1593656221143384065) | 11 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-11-2022 a las 17:55:14
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 09:23:42
 *****
-Obvio decirlo, acabamos de aterrizar en Guadalajara.
-[Permalink](https://twitter.com/fernandeznorona/status/1593422547554512897) | 182 Me Gusta | 23 Retweets
+“No obstante, a quien sea de la opinión de que las fuerzas de la historia están mandando a todo el mundo a la mierda, le caben dos posibilidades: o bien seguir resignadamente al rebaño o resistirse, no por orgullo u otros motivos personales, sino por amor y admiración…”
+[Permalink](https://twitter.com/fernandeznorona/status/1593656203799924742) | 28 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-11-2022 a las 17:54:53
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 09:18:02
 *****
-“El amo es amo porque está dispuesto a enfrentarse a la muerte con tal de mantener sus privilegios. El esclavo no quiere arriesgar su vida…”
-[Permalink](https://twitter.com/fernandeznorona/status/1593422459843158017) | 58 Me Gusta | 20 Retweets
+RT @DiegodelBosqueV: Don Cresencio Navarro, un humilde Obrero jubilado, que por nada se perdía las marchas de López Obrador tenía una consi…
+[Permalink](https://twitter.com/fernandeznorona/status/1593654777442869249) | 0 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-11-2022 a las 16:47:11
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 09:17:06
 *****
-RT @cabohealth: Ya tengo mi boleto de avión y hotel para acompañar a nuestro Presidente este próximo 27 de Noviembre 🤗🇲🇽🙌🏼#EsUnHonorMarchar…
-[Permalink](https://twitter.com/fernandeznorona/status/1593405422538571779) | 0 Me Gusta | 58 Retweets
+@danielmterres Zas.
+[Permalink](https://twitter.com/fernandeznorona/status/1593654542570344448) | 5 Me Gusta | 1 Retweets

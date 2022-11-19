@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 09:25:28
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 15:42:09
 *****
-@AleCamph @lopezobrador_ Buenas.
-[Permalink](https://twitter.com/fernandeznorona/status/1593656647343276032) | 6 Me Gusta | 0 Retweets
+Entre 6:30 y 7 será la video charla, apenas voy llegando a Tonalá.
+[Permalink](https://twitter.com/fernandeznorona/status/1593751444758269952) | 53 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 09:23:46
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 14:49:43
 *****
-“…sino por amor y admiración a las potencias y facultades humanas a las que, sin exageración, pueden aplicarse los calificativos de ‘milagrosas’ y ‘sublimes”.
-[Permalink](https://twitter.com/fernandeznorona/status/1593656221143384065) | 11 Me Gusta | 4 Retweets
+Chingado, vamos horrorosamente tarde a Tonalá.
+[Permalink](https://twitter.com/fernandeznorona/status/1593738249129922562) | 104 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 09:23:42
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 14:38:15
 *****
-“No obstante, a quien sea de la opinión de que las fuerzas de la historia están mandando a todo el mundo a la mierda, le caben dos posibilidades: o bien seguir resignadamente al rebaño o resistirse, no por orgullo u otros motivos personales, sino por amor y admiración…”
-[Permalink](https://twitter.com/fernandeznorona/status/1593656203799924742) | 28 Me Gusta | 7 Retweets
+Yo igual. ¿De qué estamos hablando?
+[Permalink](https://twitter.com/fernandeznorona/status/1593735361531871234) | 11 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 09:18:02
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 14:37:44
 *****
-RT @DiegodelBosqueV: Don Cresencio Navarro, un humilde Obrero jubilado, que por nada se perdía las marchas de López Obrador tenía una consi…
-[Permalink](https://twitter.com/fernandeznorona/status/1593654777442869249) | 0 Me Gusta | 36 Retweets
+Obvio, no. Ni los mexicanos nacidos en Estados Unidos son n pochos.
+[Permalink](https://twitter.com/fernandeznorona/status/1593735233135845383) | 21 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 09:17:06
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 14:36:55
 *****
-@danielmterres Zas.
-[Permalink](https://twitter.com/fernandeznorona/status/1593654542570344448) | 5 Me Gusta | 1 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1593735029410172931) | 13 Me Gusta | 4 Retweets

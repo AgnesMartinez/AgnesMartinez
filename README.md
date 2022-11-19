@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 15:42:09
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 21:50:34
 *****
-Entre 6:30 y 7 será la video charla, apenas voy llegando a Tonalá.
-[Permalink](https://twitter.com/fernandeznorona/status/1593751444758269952) | 53 Me Gusta | 9 Retweets
+Muchísimas gracias. Aunque estoy muy satisfecho y ya se me antojó desayunar en “El Pariente”.
+[Permalink](https://twitter.com/fernandeznorona/status/1593844160204791809) | 22 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 14:49:43
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 21:47:31
 *****
-Chingado, vamos horrorosamente tarde a Tonalá.
-[Permalink](https://twitter.com/fernandeznorona/status/1593738249129922562) | 104 Me Gusta | 13 Retweets
+Qué bárbaro, me comí unos sopes estilo Sayula que eran una delicia y ahora no voy a poder dormir de lo satisfecho que estoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1593843391858868224) | 43 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 14:38:15
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 20:46:10
 *****
-Yo igual. ¿De qué estamos hablando?
-[Permalink](https://twitter.com/fernandeznorona/status/1593735361531871234) | 11 Me Gusta | 3 Retweets
+Ya en Sayula. Muy bonito el hotel, “La Casa de los Patios”.
+[Permalink](https://twitter.com/fernandeznorona/status/1593827951476604928) | 99 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 14:37:44
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 19:26:20
 *****
-Obvio, no. Ni los mexicanos nacidos en Estados Unidos son n pochos.
-[Permalink](https://twitter.com/fernandeznorona/status/1593735233135845383) | 21 Me Gusta | 8 Retweets
+Si soy.
+[Permalink](https://twitter.com/fernandeznorona/status/1593807860613398533) | 86 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 14:36:55
+**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 18:04:37
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1593735029410172931) | 13 Me Gusta | 4 Retweets
+Vamos saliendo de Tonalá rumbo a Sayula.
+[Permalink](https://twitter.com/fernandeznorona/status/1593787296414941184) | 158 Me Gusta | 20 Retweets

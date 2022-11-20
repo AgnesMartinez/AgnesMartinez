@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 23:09:06
+*****
+@xX_DarkAdria_Xx Transas.
+[Permalink](https://twitter.com/fernandeznorona/status/1594226312922759170) | 3 Me Gusta | 1 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 22:42:12
+*****
+Apenas bajamos del avión al camioncito, porque es posición remota. Ahí la llevamos.
+[Permalink](https://twitter.com/fernandeznorona/status/1594219540258476032) | 51 Me Gusta | 7 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 22:23:55
+*****
+Lo que hay que leer. No puedes reconciliarte con tu movimiento, pero andas promoviendo la supuesta reconciliación.
+[Permalink](https://twitter.com/fernandeznorona/status/1594214942005428224) | 489 Me Gusta | 116 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 22:21:18
+*****
+Apenas aterrizamos.
+[Permalink](https://twitter.com/fernandeznorona/status/1594214282702589954) | 37 Me Gusta | 4 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 21:05:37
 *****
 Ya en el avión a punto de salir de Guadalajara al DF. @viajaVolaris.
-[Permalink](https://twitter.com/fernandeznorona/status/1594195233532628992) | 55 Me Gusta | 3 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 20:28:00
-*****
-Pues nada, el vuelo no es de @VivaAerobus, es de @viajaVolaris no tiene para qué hora salir de regreso a la ciudad de México.
-[Permalink](https://twitter.com/fernandeznorona/status/1594185770507456514) | 62 Me Gusta | 9 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 20:08:00
-*****
-RT @VictoriaAl100: AMO ÉSTE HORARIO, LO AMO! BUENAS NOCHES 🌛 YA ME VOY A DORMIR, DESCANSEN 😴😴😴😴
-
-
-AH!  SE ME OLVIDABA, Y RECUERDEN AMIGUIT@S…
-[Permalink](https://twitter.com/fernandeznorona/status/1594180734058606592) | 0 Me Gusta | 45 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 19:01:51
-*****
-Así estuvo en Ciudad Guzmán.
-[Permalink](https://twitter.com/fernandeznorona/status/1594164089718128640) | 136 Me Gusta | 35 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 18:01:01
-*****
-RT @AkireLincho: Miren fachitos. La Ciudad Luz. El respeto a los derechos humanos de quienes tanto admiran. ¿Cuánto pagaría @ClaudioXGG por…
-[Permalink](https://twitter.com/fernandeznorona/status/1594148780991197184) | 0 Me Gusta | 348 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1594195233532628992) | 75 Me Gusta | 5 Retweets

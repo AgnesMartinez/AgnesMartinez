@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 14:12:12
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 21:05:37
 *****
-Ciudad Guzmán
-[Permalink](https://twitter.com/fernandeznorona/status/1594091196892475392) | 110 Me Gusta | 29 Retweets
+Ya en el avión a punto de salir de Guadalajara al DF. @viajaVolaris.
+[Permalink](https://twitter.com/fernandeznorona/status/1594195233532628992) | 55 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 13:38:45
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 20:28:00
 *****
-A ver…
-[Permalink](https://twitter.com/fernandeznorona/status/1594082776789135360) | 12 Me Gusta | 2 Retweets
+Pues nada, el vuelo no es de @VivaAerobus, es de @viajaVolaris no tiene para qué hora salir de regreso a la ciudad de México.
+[Permalink](https://twitter.com/fernandeznorona/status/1594185770507456514) | 62 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 13:24:07
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 20:08:00
 *****
-No es época de lluvias y está lloviendo en Ciudad Guzmán.
-[Permalink](https://twitter.com/fernandeznorona/status/1594079096174219267) | 154 Me Gusta | 17 Retweets
+RT @VictoriaAl100: AMO ÉSTE HORARIO, LO AMO! BUENAS NOCHES 🌛 YA ME VOY A DORMIR, DESCANSEN 😴😴😴😴
+
+
+AH!  SE ME OLVIDABA, Y RECUERDEN AMIGUIT@S…
+[Permalink](https://twitter.com/fernandeznorona/status/1594180734058606592) | 0 Me Gusta | 45 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 11:22:01
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 19:01:51
 *****
-A propósito del cambio climático: ‘Es una cuestión sumamente grave, pero creo que muere más gente por desamor que por la radiación’. Bellow.
-[Permalink](https://twitter.com/fernandeznorona/status/1594048369613312000) | 71 Me Gusta | 17 Retweets
+Así estuvo en Ciudad Guzmán.
+[Permalink](https://twitter.com/fernandeznorona/status/1594164089718128640) | 136 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 10:59:45
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 18:01:01
 *****
-A propósito del cambio climático: ‘Es una cuestión sumamente grave, pero creo que muere más gente por desamor que por la radiación’. Bellow.
-[Permalink](https://twitter.com/fernandeznorona/status/1594042763175022592) | 31 Me Gusta | 8 Retweets
+RT @AkireLincho: Miren fachitos. La Ciudad Luz. El respeto a los derechos humanos de quienes tanto admiran. ¿Cuánto pagaría @ClaudioXGG por…
+[Permalink](https://twitter.com/fernandeznorona/status/1594148780991197184) | 0 Me Gusta | 348 Retweets

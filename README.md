@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 08:04:15
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 14:12:12
 *****
-“Además, hoy se permite que las mujeres sean más emprendedoras. Pero cuando se las rechaza, se lo toman muy a mal. Antes ocurría a la inversa, eran las mujeres quienes decían que no a los hombres. Y ellos estaban acostumbrados”.
-[Permalink](https://twitter.com/fernandeznorona/status/1593998596365500422) | 58 Me Gusta | 8 Retweets
+Ciudad Guzmán
+[Permalink](https://twitter.com/fernandeznorona/status/1594091196892475392) | 110 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 07:52:14
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 13:38:45
 *****
-O incluso que te lo inviten. Acarreado es a quien llevan a la fuerza o pagado.
-[Permalink](https://twitter.com/fernandeznorona/status/1593995574616915971) | 44 Me Gusta | 19 Retweets
+A ver…
+[Permalink](https://twitter.com/fernandeznorona/status/1594082776789135360) | 12 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 07:28:58
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 13:24:07
 *****
-Ambos salieron de ese salón para cumplir con su destino. Sin ningún dramatismo, sin ningún comparativo histórico, -paradójicamente- he salido de ahí -de ese salón -, para hacer lo propio.
-[Permalink](https://twitter.com/fernandeznorona/status/1593989717179203584) | 28 Me Gusta | 4 Retweets
+No es época de lluvias y está lloviendo en Ciudad Guzmán.
+[Permalink](https://twitter.com/fernandeznorona/status/1594079096174219267) | 154 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 07:28:57
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 11:22:01
 *****
-Ayer, mi amigo @EnriqueIbarraP me mostró el salón Juárez en el palacio de gobierno de Jalisco. En ese lugar, despacho Hidalgo, ahí vivió, políticamente hablando, su momento de mayor gloria en vida -valga la redundancia-. Ahí también, Juárez estuvo a punto de ser asesinado.
-[Permalink](https://twitter.com/fernandeznorona/status/1593989714649894912) | 94 Me Gusta | 19 Retweets
+A propósito del cambio climático: ‘Es una cuestión sumamente grave, pero creo que muere más gente por desamor que por la radiación’. Bellow.
+[Permalink](https://twitter.com/fernandeznorona/status/1594048369613312000) | 71 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-11-2022 a las 21:50:34
+**Fernández Noroña** (**@fernandeznorona**) • 19-11-2022 a las 10:59:45
 *****
-Muchísimas gracias. Aunque estoy muy satisfecho y ya se me antojó desayunar en “El Pariente”.
-[Permalink](https://twitter.com/fernandeznorona/status/1593844160204791809) | 88 Me Gusta | 18 Retweets
+A propósito del cambio climático: ‘Es una cuestión sumamente grave, pero creo que muere más gente por desamor que por la radiación’. Bellow.
+[Permalink](https://twitter.com/fernandeznorona/status/1594042763175022592) | 31 Me Gusta | 8 Retweets

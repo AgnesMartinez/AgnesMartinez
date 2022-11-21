@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 15:14:51
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 19:55:46
 *****
-Así va Zihuatanejo
-[Permalink](https://twitter.com/fernandeznorona/status/1594469352035999746) | 75 Me Gusta | 15 Retweets
+Naa, seré regidor en Zihuatanejo. ¿Te parece? Besitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1594540043796086784) | 33 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 14:27:17
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 19:53:30
+*****
+Muy contentitos en Zihuatanejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1594539474125406210) | 105 Me Gusta | 20 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 19:52:57
+*****
+Hoy en Zihuatanejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1594539337139494912) | 45 Me Gusta | 14 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 19:51:57
 *****
 Zihuatanejo.
-[Permalink](https://twitter.com/fernandeznorona/status/1594457381072941056) | 98 Me Gusta | 25 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1594539085745397760) | 51 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 11:14:52
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 17:46:24
 *****
-Acabamos de aterrizar en Zihuatanejo.
-[Permalink](https://twitter.com/fernandeznorona/status/1594408956130385921) | 135 Me Gusta | 24 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 10:32:56
-*****
-RT @santillanpe1: Y ¿qué creen?que @lialimon se chingo la imagen de Diego Rivera en la fachada del teatro de la Juventud en la @AlcaldiaAO.…
-[Permalink](https://twitter.com/fernandeznorona/status/1594398401906499585) | 0 Me Gusta | 1,694 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 10:32:01
-*****
-RT @aran_tirado: Hasta la victoria siempre, Hebe de Bonafini 💗✊🏾
-[Permalink](https://twitter.com/fernandeznorona/status/1594398171240726528) | 0 Me Gusta | 41 Retweets
+10,669 en Facebook y, 9145 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1594507488493441024) | 89 Me Gusta | 16 Retweets

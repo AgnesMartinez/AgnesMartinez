@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 09:38:40
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 15:14:51
 *****
-Esto casi no se cuenta: me alcanza un hombre corriendo, de mí rodada. Me dice: lo amamos, lo adoramos, Dios lo bendiga. ¡Lo dijo con un amor!. Me lo llevo en lo más profundo de mi corazón. Eso no me lo quitará nadie.
-[Permalink](https://twitter.com/fernandeznorona/status/1594384746951446531) | 129 Me Gusta | 20 Retweets
+Así va Zihuatanejo
+[Permalink](https://twitter.com/fernandeznorona/status/1594469352035999746) | 75 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 09:11:17
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 14:27:17
 *****
-Si soy.
-[Permalink](https://twitter.com/fernandeznorona/status/1594377854934044673) | 20 Me Gusta | 3 Retweets
+Zihuatanejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1594457381072941056) | 98 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 09:10:42
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 11:14:52
 *****
-Peor, fue el secretario de hacienda del gobierno legítimo. Era de un lambiscón majadero. Es muy corrupto y centavero. @mario_dico50 es un ser deleznable. Traidor le queda corto.
-[Permalink](https://twitter.com/fernandeznorona/status/1594377706870919168) | 33 Me Gusta | 12 Retweets
+Acabamos de aterrizar en Zihuatanejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1594408956130385921) | 135 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 08:49:17
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 10:32:56
 *****
-La @UNAM_MX están hechos unos cretinos. Nunca fue obligatorio el uso de cubrebocas y ahora menos que nunca. Su autoritarismo le sale por los poros y quieren a la comunidad universitaria amordazada.
-[Permalink](https://twitter.com/fernandeznorona/status/1594372317160824832) | 30 Me Gusta | 8 Retweets
+RT @santillanpe1: Y ¿qué creen?que @lialimon se chingo la imagen de Diego Rivera en la fachada del teatro de la Juventud en la @AlcaldiaAO.…
+[Permalink](https://twitter.com/fernandeznorona/status/1594398401906499585) | 0 Me Gusta | 1,694 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 08:46:39
+**Fernández Noroña** (**@fernandeznorona**) • 20-11-2022 a las 10:32:01
 *****
-Ya en el aeropuerto.
-[Permalink](https://twitter.com/fernandeznorona/status/1594371656218251270) | 55 Me Gusta | 5 Retweets
+RT @aran_tirado: Hasta la victoria siempre, Hebe de Bonafini 💗✊🏾
+[Permalink](https://twitter.com/fernandeznorona/status/1594398171240726528) | 0 Me Gusta | 41 Retweets

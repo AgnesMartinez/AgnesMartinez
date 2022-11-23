@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-11-2022 a las 19:16:31
+**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 09:38:07
 *****
-RT @hugo_Beats81: Diputado @fernandeznorona y @lopezobrador_  que no se nos olvide nunca lo que la oposición hacia en tiempos del mundial.…
-[Permalink](https://twitter.com/fernandeznorona/status/1595254941756850177) | 0 Me Gusta | 30 Retweets
+Muchas felicidades en su cumpleaños al presidente @NicolasMaduro. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1595471770580140045) | 53 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-11-2022 a las 19:01:47
+**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 09:23:58
 *****
-RT @VictoriaAl100: Favor de difundir, NECESITAMOS ENCONTRARLO 🙏🙏🙏
-[Permalink](https://twitter.com/fernandeznorona/status/1595251233425707009) | 0 Me Gusta | 135 Retweets
+Pues claro, sube a 6.
+[Permalink](https://twitter.com/fernandeznorona/status/1595468211646087168) | 16 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-11-2022 a las 18:56:04
+**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 09:14:34
 *****
-RT @Profe_Perlita: Mi hermano, vive en USA y ya avisó q viene a la marcha del 27 con el Presidente. El será un acarreado? EL SE PAGA EL VIA…
-[Permalink](https://twitter.com/fernandeznorona/status/1595249797258166273) | 0 Me Gusta | 24 Retweets
+Estimada Ivonne, eso es una interpretación incorrecta. Nunca nadie planteó que desaparecías al órgano electoral por cambiar de IFE a INE.
+[Permalink](https://twitter.com/fernandeznorona/status/1595465846280884225) | 38 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-11-2022 a las 18:55:12
+**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 08:47:02
 *****
-En Mata Comedor Cantina. Qué buen lugar y encima nos tocó para nosotros solitos todo el espacio. Muy buena cocina. Súper razonables precios. Muy recomendable.
-[Permalink](https://twitter.com/fernandeznorona/status/1595249580622450691) | 190 Me Gusta | 37 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1595458914811879424) | 20 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-11-2022 a las 17:10:24
+**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 08:41:04
 *****
-11,296 en Facebook y, 7901 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1595223204750032896) | 92 Me Gusta | 19 Retweets
+RT @lximenezsarro: Vamos a celebrar la victoria de Japón, con unas luchas de sumo. Por lo que a través de este tuit, reto a @ClouthierManue…
+[Permalink](https://twitter.com/fernandeznorona/status/1595457415247446019) | 0 Me Gusta | 94 Retweets

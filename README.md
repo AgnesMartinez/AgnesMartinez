@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-11-2022 a las 18:49:24
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2022 a las 14:01:20
 *****
-Mas vale tarde, muchas felicidades @DianaKarinaBa, que la pases súper en tu cumpleaños.
-[Permalink](https://twitter.com/fernandeznorona/status/1594885730597216257) | 110 Me Gusta | 12 Retweets
+RT @Sanx415: Felicidades a todos los colegas músicas
+PD @PepetonD buen libro recomienda 🐾🐾
+[Permalink](https://twitter.com/fernandeznorona/status/1595175626100641804) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-11-2022 a las 17:22:26
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2022 a las 13:55:20
 *****
-25,154 en Facebook y, 6345 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1594863846191239172) | 174 Me Gusta | 36 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1595174115639496724) | 18 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-11-2022 a las 12:08:34
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2022 a las 13:55:01
 *****
-Decisiones.
-[Permalink](https://twitter.com/fernandeznorona/status/1594784856453615634) | 47 Me Gusta | 9 Retweets
+RT @pakok56: Aquí la comisión de pueblos indígenas de la Bahía de Topolobampo que salió el día de ayer rumbo a CdMx, hoy, en la embajada de…
+[Permalink](https://twitter.com/fernandeznorona/status/1595174034261835776) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-11-2022 a las 08:50:51
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2022 a las 13:54:25
 *****
-Petacalco, La Union, Gro.
-[Permalink](https://twitter.com/fernandeznorona/status/1594735099827949568) | 318 Me Gusta | 75 Retweets
+@esnoticiaalesal Meado.
+[Permalink](https://twitter.com/fernandeznorona/status/1595173882289586176) | 12 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-11-2022 a las 06:59:11
+**Fernández Noroña** (**@fernandeznorona**) • 22-11-2022 a las 13:51:00
 *****
-Vamos rumbo a Petacalco.
-[Permalink](https://twitter.com/fernandeznorona/status/1594707001233346560) | 268 Me Gusta | 30 Retweets
+Acabamos de aterrizar en el D.F.
+[Permalink](https://twitter.com/fernandeznorona/status/1595173023065247755) | 70 Me Gusta | 5 Retweets

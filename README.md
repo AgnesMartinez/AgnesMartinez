@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 13:54:59
+**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 20:30:25
 *****
-RT @DANTEMONTANO: Noroñizate… y afíliate al PT. @PT_Oaxaca @BenjaminRoblesM @NoeDoroteo @maribelmruiz
-[Permalink](https://twitter.com/fernandeznorona/status/1595536415705669637) | 0 Me Gusta | 8 Retweets
+Bellísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1595635926876798977) | 56 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 11:32:21
+**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 19:02:53
 *****
-Agua de jamaica.
-[Permalink](https://twitter.com/fernandeznorona/status/1595500520642428928) | 30 Me Gusta | 2 Retweets
+Contentitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1595613901021974530) | 99 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 10:31:25
+**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 19:01:54
 *****
-Además, dejas de lado, que el argumento es que desaparecemos el órgano electoral para tener el control del mismo, lo cual es otra patraña. Ni desaparecemos el órgano electoral, ni tendríamos su control, ni volvemos a la época del partido único. Mentiras, mentiras y más mentiras.
-[Permalink](https://twitter.com/fernandeznorona/status/1595485185163903007) | 45 Me Gusta | 10 Retweets
+Contra todos los pronósticos alcanzamos a llegar al #CirqueDuSoleil a tiempo.
+[Permalink](https://twitter.com/fernandeznorona/status/1595613652933033984) | 117 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 10:31:24
+**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 18:04:35
 *****
-Bajo ese argumento, desaparecieron al órgano electoral crear el @INEMexico. Y de cualquier manera, es un debate ocioso la oposición ya dijo que votará en contra la iniciativa.
-[Permalink](https://twitter.com/fernandeznorona/status/1595485183058362393) | 79 Me Gusta | 17 Retweets
+RT @epigmenioibarra: Tengo memoria y asumo mi responsabilidad. La victoria del 2018,como a millones de mexicanas y mexicanos,también me per…
+[Permalink](https://twitter.com/fernandeznorona/status/1595599229728194560) | 0 Me Gusta | 1,224 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 09:38:07
+**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 17:13:13
 *****
-Muchas felicidades en su cumpleaños al presidente @NicolasMaduro. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1595471770580140045) | 413 Me Gusta | 80 Retweets
+10,796 en Facebook y, 5691 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1595586303361531904) | 108 Me Gusta | 17 Retweets

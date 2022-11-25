@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 09:58:58
+**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 14:47:08
 *****
-Voy rumbo al aeropuerto para salir a Chihuahua.
-[Permalink](https://twitter.com/fernandeznorona/status/1595839405226610690) | 31 Me Gusta | 2 Retweets
+Acabamos de aterrizar en Chihuahua.
+[Permalink](https://twitter.com/fernandeznorona/status/1595911926600634368) | 87 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 20:30:25
+**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 12:48:19
 *****
-Bellísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1595635926876798977) | 98 Me Gusta | 11 Retweets
+¿Qué país es, mísero intrigante? @13_iracheta
+[Permalink](https://twitter.com/fernandeznorona/status/1595882027026464771) | 212 Me Gusta | 51 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 19:02:53
+**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 12:31:16
 *****
-Contentitos.
-[Permalink](https://twitter.com/fernandeznorona/status/1595613901021974530) | 169 Me Gusta | 20 Retweets
+Ya en el vuelo de @Aeromexico para salir a Chihuahua desde el DF. Ya es misión imposible acreditarlos kilómetros Premier si no es en el mostrador.
+[Permalink](https://twitter.com/fernandeznorona/status/1595877732935671813) | 79 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 19:01:54
+**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 12:17:47
 *****
-Contra todos los pronósticos alcanzamos a llegar al #CirqueDuSoleil a tiempo.
-[Permalink](https://twitter.com/fernandeznorona/status/1595613652933033984) | 251 Me Gusta | 26 Retweets
+Eso chingao.
+[Permalink](https://twitter.com/fernandeznorona/status/1595874342029623298) | 37 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-11-2022 a las 18:04:35
+**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 12:16:22
 *****
-RT @epigmenioibarra: Tengo memoria y asumo mi responsabilidad. La victoria del 2018,como a millones de mexicanas y mexicanos,también me per…
-[Permalink](https://twitter.com/fernandeznorona/status/1595599229728194560) | 0 Me Gusta | 1,400 Retweets
+RT @VictoriaAl100: Hola buenos Días 😃🌞🌻🌻🌻🌻
+
+
+Respecto a la pregunta que hizo mi AMLO respecto al "¿Vinieron a civilizarnos?" 
+
+
+Pues dejare e…
+[Permalink](https://twitter.com/fernandeznorona/status/1595873984247398400) | 0 Me Gusta | 206 Retweets

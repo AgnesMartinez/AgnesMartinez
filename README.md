@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 14:47:08
+**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 20:31:51
 *****
-Acabamos de aterrizar en Chihuahua.
-[Permalink](https://twitter.com/fernandeznorona/status/1595911926600634368) | 87 Me Gusta | 9 Retweets
+Ya en el hotel. Leeré y a dormir pues mañana me toca empezar temprano.
+[Permalink](https://twitter.com/fernandeznorona/status/1595998678971400193) | 92 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 12:48:19
+**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 17:39:30
 *****
-¿Qué país es, mísero intrigante? @13_iracheta
-[Permalink](https://twitter.com/fernandeznorona/status/1595882027026464771) | 212 Me Gusta | 51 Retweets
+Así va la asistencia. Hablando @YankoDuran1.
+[Permalink](https://twitter.com/fernandeznorona/status/1595955303132053506) | 72 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 12:31:16
+**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 17:17:59
 *****
-Ya en el vuelo de @Aeromexico para salir a Chihuahua desde el DF. Ya es misión imposible acreditarlos kilómetros Premier si no es en el mostrador.
-[Permalink](https://twitter.com/fernandeznorona/status/1595877732935671813) | 79 Me Gusta | 9 Retweets
+Facultad de Derecho, Universidad de Chihuahua.
+[Permalink](https://twitter.com/fernandeznorona/status/1595949889342537728) | 151 Me Gusta | 44 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 12:17:47
+**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 17:17:01
 *****
-Eso chingao.
-[Permalink](https://twitter.com/fernandeznorona/status/1595874342029623298) | 37 Me Gusta | 5 Retweets
+RT @JhoannaMatilde: En un rastro en Arriaga, Chiapas, se documentaron caballos que apenas podían mantenerse de pie. Los golpean, les avient…
+[Permalink](https://twitter.com/fernandeznorona/status/1595949644764573697) | 0 Me Gusta | 151 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 12:16:22
+**Fernández Noroña** (**@fernandeznorona**) • 24-11-2022 a las 17:16:44
 *****
-RT @VictoriaAl100: Hola buenos Días 😃🌞🌻🌻🌻🌻
-
-
-Respecto a la pregunta que hizo mi AMLO respecto al "¿Vinieron a civilizarnos?" 
-
-
-Pues dejare e…
-[Permalink](https://twitter.com/fernandeznorona/status/1595873984247398400) | 0 Me Gusta | 206 Retweets
+¿Es el chirris o el amarillo?
+[Permalink](https://twitter.com/fernandeznorona/status/1595949574820335616) | 28 Me Gusta | 8 Retweets

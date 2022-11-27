@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-11-2022 a las 08:39:00
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2022 a las 14:00:51
 *****
-En la tienda de arte popular de Chihuahua.
-[Permalink](https://twitter.com/fernandeznorona/status/1596544060285673472) | 160 Me Gusta | 30 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1596625053587841024) | 29 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-11-2022 a las 08:38:39
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2022 a las 13:59:19
 *****
-Mensaje a los racista y clasistas.
-[Permalink](https://twitter.com/fernandeznorona/status/1596543971052105728) | 120 Me Gusta | 46 Retweets
+Yo sé que están triste porque perdió la selección, pero un día como hoy, murió Balfre Vargas Cortés, mi hermanito.
+[Permalink](https://twitter.com/fernandeznorona/status/1596624667153993728) | 269 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-11-2022 a las 20:13:20
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2022 a las 13:58:45
 *****
-RT @lopezobrador_: Si tuviese que resumir en una palabra cómo es la relación entre nuestros pueblos y con el gobierno del presidente de Col…
-[Permalink](https://twitter.com/fernandeznorona/status/1596356403446558720) | 0 Me Gusta | 3,964 Retweets
+RT @lximenezsarro: Los pronósticos de mi gemela // mis pronósticos
+[Permalink](https://twitter.com/fernandeznorona/status/1596624524837093378) | 0 Me Gusta | 132 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-11-2022 a las 20:12:16
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2022 a las 13:58:40
 *****
-RT @DrLorenzoMeyer: La manera tan brutal como dos super ricos -Elon Musk de twitter y Jeff Bezos de Amazon- maltratan a sus empleados exigi…
-[Permalink](https://twitter.com/fernandeznorona/status/1596356135518621696) | 0 Me Gusta | 870 Retweets
+Eres una genio.
+[Permalink](https://twitter.com/fernandeznorona/status/1596624503299362816) | 33 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-11-2022 a las 20:11:04
+**Fernández Noroña** (**@fernandeznorona**) • 26-11-2022 a las 13:50:20
 *****
-Obvio.
-[Permalink](https://twitter.com/fernandeznorona/status/1596355835042869249) | 70 Me Gusta | 9 Retweets
+Acabamos de aterrizar en el D.F.
+[Permalink](https://twitter.com/fernandeznorona/status/1596622407682621440) | 133 Me Gusta | 12 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-11-2022 a las 20:21:32
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 09:58:49
 *****
-Para despedirme hoy, les diré que se realizó la marcha más grande que se hayan efectuado en la historia del país. Digan misa, esa es la verdad.
-[Permalink](https://twitter.com/fernandeznorona/status/1597083243978686464) | 1,893 Me Gusta | 415 Retweets
+Ahora dilo sin llorar. @RicardoAlemanMx
+[Permalink](https://twitter.com/fernandeznorona/status/1597288919326167041) | 19 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-11-2022 a las 20:19:35
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 09:57:36
 *****
-Es decir que debieron participar 6 millones, si con ustedes participaron 60,000.  Ya que si con ustedes participaron 680,000, entonces con nosotros participaron 20 millones. Lógica derechueca le dicen.
-[Permalink](https://twitter.com/fernandeznorona/status/1597082753224544256) | 88 Me Gusta | 21 Retweets
+RT @AntonioAttolini: DOCTRINA.
+[Permalink](https://twitter.com/fernandeznorona/status/1597288612470861824) | 0 Me Gusta | 95 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-11-2022 a las 20:07:08
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 09:56:06
 *****
-Ahora dilo sin llorar @MarkoCortes.
-[Permalink](https://twitter.com/fernandeznorona/status/1597079619014127616) | 139 Me Gusta | 38 Retweets
+Mi repudio a la bajeza y cobardía cometida ayer con nuestro compañero y amigo canciller @m_ebrard.
+[Permalink](https://twitter.com/fernandeznorona/status/1597288238439608320) | 39 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-11-2022 a las 20:06:36
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 09:55:12
 *****
-RT @coyoacan1521: Lleno total el zócalo !!!!!👏👏👏👏👏👏👏✌️👏✌️✌️👍👍👍👍
-[Permalink](https://twitter.com/fernandeznorona/status/1597079487274921985) | 0 Me Gusta | 28 Retweets
+Ahora dilo sin llorar @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1597288012362108928) | 47 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-11-2022 a las 20:03:39
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 09:53:42
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1597078743419617281) | 121 Me Gusta | 18 Retweets
+@coyoacan1521 Ha tenido.
+[Permalink](https://twitter.com/fernandeznorona/status/1597287633813929984) | 0 Me Gusta | 0 Retweets

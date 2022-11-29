@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 14:42:10
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 20:45:17
 *****
-En el módulo de ⁦@Mx_Diputados⁩ de la FIL de Guadalajara, ⁦@CE_MXdiputados⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1597360227892039683) | 61 Me Gusta | 15 Retweets
+Miren lo que compré en la FIL de Guadalajara.
+[Permalink](https://twitter.com/fernandeznorona/status/1597451609268752384) | 133 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 14:35:06
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 20:44:51
 *****
-Agenda de esta semana aunque los días de sesión será martes y miércoles.
-[Permalink](https://twitter.com/fernandeznorona/status/1597358450891259905) | 46 Me Gusta | 15 Retweets
+45,091 en Facebook y, 11,671 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1597451501995429888) | 60 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 13:55:23
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 20:43:14
 *****
-Ayer.
-[Permalink](https://twitter.com/fernandeznorona/status/1597348455797645313) | 114 Me Gusta | 31 Retweets
+Ya estaba haciendo cuentas alegres, deberé salir a las 5:45 AM del hotel.
+[Permalink](https://twitter.com/fernandeznorona/status/1597451091188547585) | 70 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 13:49:31
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 20:41:26
 *****
-Eres un pelmazo.
-[Permalink](https://twitter.com/fernandeznorona/status/1597346976475271168) | 44 Me Gusta | 13 Retweets
+A dormir, hice una compra de pánico en la FIL de Guadalajara. Mañana deberé salir muy temprano rumbo a la @Mx_Diputados desde el aeropuerto de Guadalajara.
+[Permalink](https://twitter.com/fernandeznorona/status/1597450638946111488) | 91 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 13:17:20
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 20:36:35
 *****
-Ayer al inicio.
-[Permalink](https://twitter.com/fernandeznorona/status/1597338879304024069) | 103 Me Gusta | 20 Retweets
+Chingón. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1597449419896819712) | 69 Me Gusta | 6 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 09:58:49
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 14:42:10
 *****
-Ahora dilo sin llorar. @RicardoAlemanMx
-[Permalink](https://twitter.com/fernandeznorona/status/1597288919326167041) | 19 Me Gusta | 1 Retweets
+En el módulo de ⁦@Mx_Diputados⁩ de la FIL de Guadalajara, ⁦@CE_MXdiputados⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1597360227892039683) | 61 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 09:57:36
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 14:35:06
 *****
-RT @AntonioAttolini: DOCTRINA.
-[Permalink](https://twitter.com/fernandeznorona/status/1597288612470861824) | 0 Me Gusta | 95 Retweets
+Agenda de esta semana aunque los días de sesión será martes y miércoles.
+[Permalink](https://twitter.com/fernandeznorona/status/1597358450891259905) | 46 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 09:56:06
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 13:55:23
 *****
-Mi repudio a la bajeza y cobardía cometida ayer con nuestro compañero y amigo canciller @m_ebrard.
-[Permalink](https://twitter.com/fernandeznorona/status/1597288238439608320) | 39 Me Gusta | 5 Retweets
+Ayer.
+[Permalink](https://twitter.com/fernandeznorona/status/1597348455797645313) | 114 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 09:55:12
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 13:49:31
 *****
-Ahora dilo sin llorar @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1597288012362108928) | 47 Me Gusta | 15 Retweets
+Eres un pelmazo.
+[Permalink](https://twitter.com/fernandeznorona/status/1597346976475271168) | 44 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 09:53:42
+**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 13:17:20
 *****
-@coyoacan1521 Ha tenido.
-[Permalink](https://twitter.com/fernandeznorona/status/1597287633813929984) | 0 Me Gusta | 0 Retweets
+Ayer al inicio.
+[Permalink](https://twitter.com/fernandeznorona/status/1597338879304024069) | 103 Me Gusta | 20 Retweets

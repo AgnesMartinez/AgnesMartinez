@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 20:45:17
+**Fernández Noroña** (**@fernandeznorona**) • 29-11-2022 a las 07:56:34
 *****
-Miren lo que compré en la FIL de Guadalajara.
-[Permalink](https://twitter.com/fernandeznorona/status/1597451609268752384) | 179 Me Gusta | 10 Retweets
+Mira lo agobiados que estamos.
+[Permalink](https://twitter.com/fernandeznorona/status/1597620543855165441) | 73 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 20:44:51
+**Fernández Noroña** (**@fernandeznorona**) • 29-11-2022 a las 07:53:06
 *****
-45,091 en Facebook y, 11,671 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1597451501995429888) | 81 Me Gusta | 9 Retweets
+Ya no pudimos, sólo pudimos llenar la ciudad.
+[Permalink](https://twitter.com/fernandeznorona/status/1597619670479437824) | 62 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 20:43:14
+**Fernández Noroña** (**@fernandeznorona**) • 29-11-2022 a las 07:50:56
 *****
-Ya estaba haciendo cuentas alegres, deberé salir a las 5:45 AM del hotel.
-[Permalink](https://twitter.com/fernandeznorona/status/1597451091188547585) | 97 Me Gusta | 8 Retweets
+RT @TobiasLatour: En 2022 México pasa a nivel mundial:
+Del lugar:
+- 9 a 2 en turismo; solo debajo de Francia
+- 17 al 9 en divisas
+- 40 a 29…
+[Permalink](https://twitter.com/fernandeznorona/status/1597619126012608513) | 0 Me Gusta | 120 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 20:41:26
+**Fernández Noroña** (**@fernandeznorona**) • 29-11-2022 a las 07:50:36
 *****
-A dormir, hice una compra de pánico en la FIL de Guadalajara. Mañana deberé salir muy temprano rumbo a la @Mx_Diputados desde el aeropuerto de Guadalajara.
-[Permalink](https://twitter.com/fernandeznorona/status/1597450638946111488) | 154 Me Gusta | 16 Retweets
+RT @scabbiamx: @joraplas Zas pinche llorón, vamos a jugar a las comparaciones... aunque estoy sgeuro de que estas no te van a gustar. Cada…
+[Permalink](https://twitter.com/fernandeznorona/status/1597619040972775427) | 0 Me Gusta | 85 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-11-2022 a las 20:36:35
+**Fernández Noroña** (**@fernandeznorona**) • 29-11-2022 a las 07:16:25
 *****
-Chingón. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1597449419896819712) | 86 Me Gusta | 6 Retweets
+RT @NachoMierV: Por prudencia y dar tiempo para el análisis del dictamen de reforma electoral, aprobado en comisiones, los coordinadores de…
+[Permalink](https://twitter.com/fernandeznorona/status/1597610438292033536) | 0 Me Gusta | 172 Retweets

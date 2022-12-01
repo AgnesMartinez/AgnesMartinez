@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-11-2022 a las 20:29:45
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 16:01:18
 *****
-RT @LaydaSansores: ¿Qué hace el señor Claudio X. González organizando a los presidentes de los partidos? Poniendo el lugar, la hora y la fe…
-[Permalink](https://twitter.com/fernandeznorona/status/1597810086340046850) | 0 Me Gusta | 3,408 Retweets
+La afición. Siempre han jugado con su pasión y con sus sentimientos, literal.
+[Permalink](https://twitter.com/fernandeznorona/status/1598104917444792320) | 29 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-11-2022 a las 20:26:26
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 16:00:33
 *****
-Otra muestra de lo sucedido el domingo en torno a mi persona.
-[Permalink](https://twitter.com/fernandeznorona/status/1597809254005501954) | 521 Me Gusta | 102 Retweets
+@MarthaCajigas Estatice.
+[Permalink](https://twitter.com/fernandeznorona/status/1598104729510621185) | 10 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-11-2022 a las 18:54:05
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 15:22:41
 *****
-Ajustes a la agenda.
-[Permalink](https://twitter.com/fernandeznorona/status/1597786012398194688) | 101 Me Gusta | 25 Retweets
+RT @rikiricardof: Rumbo a Guadalajara por el Felipe Ángeles el aeropuerto más hermoso del mundo y el más cómodo
+[Permalink](https://twitter.com/fernandeznorona/status/1598095198084792323) | 0 Me Gusta | 47 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-11-2022 a las 17:32:27
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 15:20:50
 *****
-Pues llevo media hora oyendo a @losperiodistas y nada que entró a la entrevista.
-[Permalink](https://twitter.com/fernandeznorona/status/1597765466923028482) | 311 Me Gusta | 42 Retweets
+RT @LJyDMX: Estamos apoyando a la mejor opción...
+¡No profundizar sería un retroceso!
+\#EstamosConNoroña hasta la victoria 😉
+[Permalink](https://twitter.com/fernandeznorona/status/1598094732798103554) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-11-2022 a las 15:14:16
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 15:20:18
 *****
-Vino hasta el Nieve, que cada vez está más guapo el cabrón.
-[Permalink](https://twitter.com/fernandeznorona/status/1597730694658072576) | 115 Me Gusta | 15 Retweets
+¿Nuevo cambio?
+[Permalink](https://twitter.com/fernandeznorona/status/1598094599972536320) | 22 Me Gusta | 1 Retweets

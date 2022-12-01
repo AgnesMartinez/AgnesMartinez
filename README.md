@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 16:01:18
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 21:35:01
 *****
-La afición. Siempre han jugado con su pasión y con sus sentimientos, literal.
-[Permalink](https://twitter.com/fernandeznorona/status/1598104917444792320) | 29 Me Gusta | 5 Retweets
+18,500 en Facebook y, 8876 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1598188900731998208) | 36 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 16:00:33
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 19:31:16
 *****
-@MarthaCajigas Estatice.
-[Permalink](https://twitter.com/fernandeznorona/status/1598104729510621185) | 10 Me Gusta | 0 Retweets
+RT @epigmenioibarra: La marcha mostró una fusión inédita entre el pueblo y el gobierno de AMLO que expresa, detona y acelera la Revolución…
+[Permalink](https://twitter.com/fernandeznorona/status/1598157760067440640) | 0 Me Gusta | 1,015 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 15:22:41
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 19:19:02
 *****
-RT @rikiricardof: Rumbo a Guadalajara por el Felipe Ángeles el aeropuerto más hermoso del mundo y el más cómodo
-[Permalink](https://twitter.com/fernandeznorona/status/1598095198084792323) | 0 Me Gusta | 47 Retweets
+Téngame paciencia. Ya casi en la video charla, como a las 10, jeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1598154680450043907) | 136 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 15:20:50
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 18:45:13
 *****
-RT @LJyDMX: Estamos apoyando a la mejor opción...
-¡No profundizar sería un retroceso!
-\#EstamosConNoroña hasta la victoria 😉
-[Permalink](https://twitter.com/fernandeznorona/status/1598094732798103554) | 0 Me Gusta | 13 Retweets
+Apenas aterrizamos en el aeropuerto de Oaxaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1598146168630169600) | 101 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 15:20:18
+**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 17:55:40
 *****
-¿Nuevo cambio?
-[Permalink](https://twitter.com/fernandeznorona/status/1598094599972536320) | 22 Me Gusta | 1 Retweets
+Será hasta las nueve de la noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1598133699408977920) | 50 Me Gusta | 5 Retweets

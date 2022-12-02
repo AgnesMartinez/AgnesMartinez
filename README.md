@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 15:42:31
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 20:07:22
 *****
-Éste también.
-[Permalink](https://twitter.com/fernandeznorona/status/1598462580254658560) | 46 Me Gusta | 11 Retweets
+Ya en @Radio_Formula. La entrevista será a las 10:30 P.M. y me citaron a las 10. Yo que les hago caso.
+[Permalink](https://twitter.com/fernandeznorona/status/1598529231784378368) | 48 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 15:42:04
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 19:29:19
 *****
-El mezcal que me regalaron el día de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1598462464852516864) | 102 Me Gusta | 19 Retweets
+RT @naocrochet: Amo tejer 🧶. ¡Vamos por más!. #naocrochet, #hechoamano #tejeresmisuperpoder #crocheteando #lavidaesmejortejiendo #hechoenme…
+[Permalink](https://twitter.com/fernandeznorona/status/1598519655651475457) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 15:31:38
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 18:34:48
 *****
-Miren esta belleza.
-[Permalink](https://twitter.com/fernandeznorona/status/1598459838299656192) | 84 Me Gusta | 11 Retweets
+Tú eres un ladrón, cabeza hueca @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1598505936049799169) | 162 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 15:13:23
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 18:32:55
 *****
-Si eso no es belleza, no sé que lo sea.
-[Permalink](https://twitter.com/fernandeznorona/status/1598455248267288577) | 85 Me Gusta | 9 Retweets
+Un adulto mayor, se fue a la mitad del avión a pedir un aplauso a mi persona y le hicieron caso algunos pasajeros. Ese video no existirá en los medios, pero me lo llevo en el corazón
+[Permalink](https://twitter.com/fernandeznorona/status/1598505461778591744) | 264 Me Gusta | 42 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 15:10:29
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 18:32:54
 *****
-Hace mucho que no entraba a Santo Domingo.
-[Permalink](https://twitter.com/fernandeznorona/status/1598454517208559616) | 94 Me Gusta | 21 Retweets
+El piloto pidió que se viera un aplauso aún sobrecargo que cumple años hoy antes de despegar. Al aterrizar, solicito un aplauso para alguien de la tripulación que se casa mañana
+[Permalink](https://twitter.com/fernandeznorona/status/1598505459106865153) | 216 Me Gusta | 31 Retweets

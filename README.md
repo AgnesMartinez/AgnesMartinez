@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 08:41:51
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 15:42:31
 *****
-Empieza por escribir bien, es posicionado. No es una posesión, es una posición.
-[Permalink](https://twitter.com/fernandeznorona/status/1598356716118507520) | 45 Me Gusta | 8 Retweets
+Éste también.
+[Permalink](https://twitter.com/fernandeznorona/status/1598462580254658560) | 46 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 08:33:50
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 15:42:04
 *****
-Toma protesta @salomonj.
-[Permalink](https://twitter.com/fernandeznorona/status/1598354697105965056) | 65 Me Gusta | 13 Retweets
+El mezcal que me regalaron el día de hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1598462464852516864) | 102 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 21:35:01
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 15:31:38
 *****
-18,500 en Facebook y, 8876 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1598188900731998208) | 122 Me Gusta | 13 Retweets
+Miren esta belleza.
+[Permalink](https://twitter.com/fernandeznorona/status/1598459838299656192) | 84 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 19:31:16
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 15:13:23
 *****
-RT @epigmenioibarra: La marcha mostró una fusión inédita entre el pueblo y el gobierno de AMLO que expresa, detona y acelera la Revolución…
-[Permalink](https://twitter.com/fernandeznorona/status/1598157760067440640) | 0 Me Gusta | 1,331 Retweets
+Si eso no es belleza, no sé que lo sea.
+[Permalink](https://twitter.com/fernandeznorona/status/1598455248267288577) | 85 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-11-2022 a las 19:19:02
+**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 15:10:29
 *****
-Téngame paciencia. Ya casi en la video charla, como a las 10, jeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1598154680450043907) | 198 Me Gusta | 27 Retweets
+Hace mucho que no entraba a Santo Domingo.
+[Permalink](https://twitter.com/fernandeznorona/status/1598454517208559616) | 94 Me Gusta | 21 Retweets

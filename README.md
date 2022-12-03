@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 20:07:22
+**Fernández Noroña** (**@fernandeznorona**) • 02-12-2022 a las 16:03:10
 *****
-Ya en @Radio_Formula. La entrevista será a las 10:30 P.M. y me citaron a las 10. Yo que les hago caso.
-[Permalink](https://twitter.com/fernandeznorona/status/1598529231784378368) | 94 Me Gusta | 9 Retweets
+Inicio una entrevista en @SinEmbargoMX, “Latinidades”.
+[Permalink](https://twitter.com/fernandeznorona/status/1598830163474534402) | 24 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 19:29:19
+**Fernández Noroña** (**@fernandeznorona**) • 02-12-2022 a las 15:22:23
 *****
-RT @naocrochet: Amo tejer 🧶. ¡Vamos por más!. #naocrochet, #hechoamano #tejeresmisuperpoder #crocheteando #lavidaesmejortejiendo #hechoenme…
-[Permalink](https://twitter.com/fernandeznorona/status/1598519655651475457) | 0 Me Gusta | 8 Retweets
+Agradezco el comentario y preciso que @Claudiashein no es judía. Es mexicana por los cuatro costados y que yo sepa, su religión no es el judaísmo. Porque ser judío es una religión, no una raza, ni una nacionalidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1598819902021898240) | 46 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 18:34:48
+**Fernández Noroña** (**@fernandeznorona**) • 02-12-2022 a las 15:17:31
 *****
-Tú eres un ladrón, cabeza hueca @VicenteFoxQue.
-[Permalink](https://twitter.com/fernandeznorona/status/1598505936049799169) | 246 Me Gusta | 51 Retweets
+Dejen de joder a los futbolistas. Ellos no son responsables del fracaso permanente que por décadas la selección mexicana vive en cada mundial. Encubren a los responsables que se hinchan de dinero, y pretenden linchar a los jugadores.
+[Permalink](https://twitter.com/fernandeznorona/status/1598818677046083585) | 117 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 18:32:55
+**Fernández Noroña** (**@fernandeznorona**) • 02-12-2022 a las 15:14:53
 *****
-Un adulto mayor, se fue a la mitad del avión a pedir un aplauso a mi persona y le hicieron caso algunos pasajeros. Ese video no existirá en los medios, pero me lo llevo en el corazón
-[Permalink](https://twitter.com/fernandeznorona/status/1598505461778591744) | 427 Me Gusta | 64 Retweets
+Hoy, la video charla será cerca de las siete de la noche, pues aceptamos una entrevista a las 5:45 P.M.
+[Permalink](https://twitter.com/fernandeznorona/status/1598818013238775808) | 55 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-12-2022 a las 18:32:54
+**Fernández Noroña** (**@fernandeznorona**) • 02-12-2022 a las 15:13:13
 *****
-El piloto pidió que se viera un aplauso aún sobrecargo que cumple años hoy antes de despegar. Al aterrizar, solicito un aplauso para alguien de la tripulación que se casa mañana
-[Permalink](https://twitter.com/fernandeznorona/status/1598505459106865153) | 359 Me Gusta | 41 Retweets
+Mira, para que tenga que usar el “título nobiliario” de profesor de relaciones internacionales, como si fuera la gran cosa, habla de sus enormes complejos.
+[Permalink](https://twitter.com/fernandeznorona/status/1598817594772946945) | 42 Me Gusta | 15 Retweets

@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 08:24:03
+**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 15:12:13
 *****
-Llegando a Francisco Z Mena, Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1599077010336518144) | 62 Me Gusta | 4 Retweets
+Mi respeto para tu candidata. Lástima que seas tan poco compañero e insultes a quienes somos parte del mismo movimiento. Abur.
+[Permalink](https://twitter.com/fernandeznorona/status/1599179727834865665) | 56 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 04:35:59
+**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 14:52:57
 *****
-Para variar, la plaza de Leandro Valle hecha estacionamiento ⁦@UCS_GCDMX⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1599019616726138880) | 60 Me Gusta | 16 Retweets
+Villa Ávila Camacho.
+[Permalink](https://twitter.com/fernandeznorona/status/1599174880674873344) | 62 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2022 a las 20:34:10
+**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 13:39:19
 *****
-“El rencor era una lacra de almas mezquinas”, sostiene Némirovsky que decía Chéjov.
-[Permalink](https://twitter.com/fernandeznorona/status/1598898361578708998) | 72 Me Gusta | 17 Retweets
+Soy Tláloc, está cayendo un tormentón en Venustiano Carranza.
+[Permalink](https://twitter.com/fernandeznorona/status/1599156351233830912) | 169 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2022 a las 20:26:06
+**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 11:51:53
 *****
-Ciertamente fue buena charla.
-[Permalink](https://twitter.com/fernandeznorona/status/1598896333594980353) | 268 Me Gusta | 38 Retweets
+Venustiano Carranza.
+[Permalink](https://twitter.com/fernandeznorona/status/1599129312447307776) | 189 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-12-2022 a las 20:25:20
+**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 10:10:25
 *****
-RT @wichanoticias: Estuvo buena la entrevista. @fernandeznorona 
-Video completo aquí ⬇️
-[Permalink](https://twitter.com/fernandeznorona/status/1598896138228469760) | 0 Me Gusta | 46 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1599103777788788736) | 102 Me Gusta | 8 Retweets

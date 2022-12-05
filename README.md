@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 21:25:15
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 10:07:15
 *****
-Me voy a dormir después de una jornada extraordinaria. Ya casi termino esta joya pero lo haré el día de mañana.
-[Permalink](https://twitter.com/fernandeznorona/status/1599635994458099713) | 64 Me Gusta | 8 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1599827758456393729) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 21:23:56
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 10:05:05
 *****
-@EddLite2018 As.
-[Permalink](https://twitter.com/fernandeznorona/status/1599635662621511681) | 33 Me Gusta | 2 Retweets
+@maquilator Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1599827210839678976) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 21:23:39
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 09:42:48
 *****
-@ElMosquito1900 Dizque.
-[Permalink](https://twitter.com/fernandeznorona/status/1599635591465172992) | 10 Me Gusta | 1 Retweets
+Toda mi solidaridad.
+[Permalink](https://twitter.com/fernandeznorona/status/1599821603742924823) | 17 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 21:20:54
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 09:36:10
 *****
-Destinatario equivocado.
-[Permalink](https://twitter.com/fernandeznorona/status/1599634898045657088) | 37 Me Gusta | 3 Retweets
+@NinaMixtlan Harto.
+[Permalink](https://twitter.com/fernandeznorona/status/1599819936490102784) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 21:10:44
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 09:34:32
 *****
-Ni un expositor de la 4T. ¡Qué plurales!
-[Permalink](https://twitter.com/fernandeznorona/status/1599632339457675264) | 103 Me Gusta | 22 Retweets
+Son ustedes una pandilla de farsantes, eso es lo que son. @CiroMurayamaINE no ve proselitismo de la oposición, pero si lo ve en nuestro movimiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1599819525368602625) | 33 Me Gusta | 10 Retweets

@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 09:45:14
+**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 13:08:54
 *****
-¡Qué me hablen de exclusividad!, hicimos media hora de fila para ingresar al salón VIP de @AmericanExpress.
-[Permalink](https://twitter.com/fernandeznorona/status/1599459830468464640) | 33 Me Gusta | 7 Retweets
+Ven hoy. Presentaremos a las cinco de la tarde unos libros espléndidos publicados por el @CE_MXdiputados. Salón 6.
+[Permalink](https://twitter.com/fernandeznorona/status/1599511082250670080) | 57 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 21:42:38
+**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 13:04:06
 *****
-Apenas en casa, mañana iré a la FIL de Guadalajara.
-[Permalink](https://twitter.com/fernandeznorona/status/1599277981960089600) | 295 Me Gusta | 27 Retweets
+“El mundo es hermoso. Tan sólo contiene una maldad: nosotros” Chéjov citado por Némirovsky. ¡Qué visión más negra!
+[Permalink](https://twitter.com/fernandeznorona/status/1599509877038030848) | 67 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 21:14:16
+**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 13:01:39
 *****
-Nuevamente de estacionamiento la plaza de Leandro Valle ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1599270843523145728) | 107 Me Gusta | 15 Retweets
+Pero dicen que no es lago el lago de Texcoco.
+[Permalink](https://twitter.com/fernandeznorona/status/1599509260286758913) | 347 Me Gusta | 64 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 19:26:50
+**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 11:55:16
 *****
-RT @aga10mx: Ese es el cambio!
-[Permalink](https://twitter.com/fernandeznorona/status/1599243806008029185) | 0 Me Gusta | 25 Retweets
+RT @xX_DarkAdria_Xx: Se acuerdan cuando existía el Estado mayor presidencial?
+😌😌
+[Permalink](https://twitter.com/fernandeznorona/status/1599492551823609856) | 0 Me Gusta | 57 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-12-2022 a las 17:42:11
+**Fernández Noroña** (**@fernandeznorona**) • 04-12-2022 a las 11:54:09
 *****
-Vamos saliendo de Villa Ávila Camacho rumbo a la capital del país.
-[Permalink](https://twitter.com/fernandeznorona/status/1599217468492615680) | 174 Me Gusta | 18 Retweets
+RT @Navegaciones: Por si no se habían dado cuenta, la resolución del @INEMexico en contra de @Claudiashein no busca cumplir la ley ni nada…
+[Permalink](https://twitter.com/fernandeznorona/status/1599492274148110336) | 0 Me Gusta | 1,374 Retweets

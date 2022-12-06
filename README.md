@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 10:07:15
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 15:01:28
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1599827758456393729) | 7 Me Gusta | 1 Retweets
+“… si se detuvo, ¡ya no es revolución!”. Yaroslavskaia.
+[Permalink](https://twitter.com/fernandeznorona/status/1599901801431572485) | 41 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 10:05:05
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 13:51:34
 *****
-@maquilator Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1599827210839678976) | 0 Me Gusta | 0 Retweets
+¡Qué manera más torpe de justificar la derechización de la @FILGuadalajara!
+[Permalink](https://twitter.com/fernandeznorona/status/1599884208549556224) | 35 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 09:42:48
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 13:42:51
 *****
-Toda mi solidaridad.
-[Permalink](https://twitter.com/fernandeznorona/status/1599821603742924823) | 17 Me Gusta | 3 Retweets
+Besitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1599882015297638401) | 19 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 09:36:10
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 13:36:40
 *****
-@NinaMixtlan Harto.
-[Permalink](https://twitter.com/fernandeznorona/status/1599819936490102784) | 2 Me Gusta | 0 Retweets
+Cierto.
+[Permalink](https://twitter.com/fernandeznorona/status/1599880460301369346) | 21 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 09:34:32
+**Fernández Noroña** (**@fernandeznorona**) • 05-12-2022 a las 13:35:57
 *****
-Son ustedes una pandilla de farsantes, eso es lo que son. @CiroMurayamaINE no ve proselitismo de la oposición, pero si lo ve en nuestro movimiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1599819525368602625) | 33 Me Gusta | 10 Retweets
+¿Nosotros? Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1599880278486691841) | 24 Me Gusta | 2 Retweets

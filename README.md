@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 16:28:59
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 22:00:08
 *****
-Téngame paciencia, haré la video charla después de la votación de la reforma constitucional en materia electoral.
-[Permalink](https://twitter.com/fernandeznorona/status/1600286211779674112) | 46 Me Gusta | 10 Retweets
+RT @CiroGomezL: La #ReformaElectoral del presidente @LopezObrador_ finalmente fue rechazada en la Cámara de Diputados. Pero tal como el Pre…
+[Permalink](https://twitter.com/fernandeznorona/status/1600369548112252928) | 0 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 13:49:33
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 21:35:59
 *****
-Pregunta: ¿tiene fuero? De ser así, ¿la encarcelarían al término de la vicepresidencia? En realidad, como a @LulaOficial, la inhabilitan para cerrarle el camino rumbo a la presidencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1600246091349626880) | 39 Me Gusta | 11 Retweets
+RT @lopezobrador_: Expreso mi más amplia solidaridad con la vicepresidenta de Argentina, Cristina Fernández. No tengo duda de que es víctim…
+[Permalink](https://twitter.com/fernandeznorona/status/1600363469756190721) | 0 Me Gusta | 4,843 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 13:44:23
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 21:32:28
 *****
-RT @Aaron_PinedaM: Se concretó el #lawfare contra Cristina Fernández de Kirchner. Los poderes reaccionarios seguirán tratando de socavar pr…
-[Permalink](https://twitter.com/fernandeznorona/status/1600244791060492288) | 0 Me Gusta | 18 Retweets
+RT @naocrochet: Hoy me toco hacer a Santo Tomás de Aquino, tejido con hilaza de algodón, me hacen falta 3 muñecos más de este pedido, qué t…
+[Permalink](https://twitter.com/fernandeznorona/status/1600362587379576832) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 13:38:43
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 21:31:59
 *****
-En 30 minutos, más menos, haré mi intervención de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1600243363030044672) | 131 Me Gusta | 21 Retweets
+RT @aura_fdez: Un pasajero se levanta de su asiento, camina hacia @fernandeznorona y dice: Ya le aplaudimos a la tripulación porque uno cum…
+[Permalink](https://twitter.com/fernandeznorona/status/1600362466151571456) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 13:34:54
+**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 21:31:06
 *****
-Ya sólo falta el pequeño detalle  de que me incluyan en la medición.
-[Permalink](https://twitter.com/fernandeznorona/status/1600242402413154304) | 163 Me Gusta | 29 Retweets
+RT @rosendomarind: En Nicolás Romero, EdoMéx la raza con Gerardo Fernández Noroña @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1600362242834190336) | 0 Me Gusta | 27 Retweets

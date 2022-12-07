@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 22:00:08
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 01:24:51
 *****
-RT @CiroGomezL: La #ReformaElectoral del presidente @LopezObrador_ finalmente fue rechazada en la Cámara de Diputados. Pero tal como el Pre…
-[Permalink](https://twitter.com/fernandeznorona/status/1600369548112252928) | 0 Me Gusta | 36 Retweets
+Cumplimos. Hay reforma electoral.
+[Permalink](https://twitter.com/fernandeznorona/status/1600421067587129344) | 429 Me Gusta | 91 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 21:35:59
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 00:38:42
 *****
-RT @lopezobrador_: Expreso mi más amplia solidaridad con la vicepresidenta de Argentina, Cristina Fernández. No tengo duda de que es víctim…
-[Permalink](https://twitter.com/fernandeznorona/status/1600363469756190721) | 0 Me Gusta | 4,843 Retweets
+@_MistWolf_ Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1600409453509033984) | 7 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 21:32:28
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 00:35:10
 *****
-RT @naocrochet: Hoy me toco hacer a Santo Tomás de Aquino, tejido con hilaza de algodón, me hacen falta 3 muñecos más de este pedido, qué t…
-[Permalink](https://twitter.com/fernandeznorona/status/1600362587379576832) | 0 Me Gusta | 8 Retweets
+RT @AleCamph: El diputado @fernandeznorona a la cabeza de todos los sondeos 👏👏👏👏👏👏
+[Permalink](https://twitter.com/fernandeznorona/status/1600408562563305473) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 21:31:59
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 00:13:02
 *****
-RT @aura_fdez: Un pasajero se levanta de su asiento, camina hacia @fernandeznorona y dice: Ya le aplaudimos a la tripulación porque uno cum…
-[Permalink](https://twitter.com/fernandeznorona/status/1600362466151571456) | 0 Me Gusta | 14 Retweets
+Aunque en realidad España y Marruecos son aliados contra la República Árabe Saharaui.
+[Permalink](https://twitter.com/fernandeznorona/status/1600402995216150528) | 39 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-12-2022 a las 21:31:06
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 00:10:52
 *****
-RT @rosendomarind: En Nicolás Romero, EdoMéx la raza con Gerardo Fernández Noroña @fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1600362242834190336) | 0 Me Gusta | 27 Retweets
+Ya vi mi discurso y si estuvo bueno.
+[Permalink](https://twitter.com/fernandeznorona/status/1600402449277374464) | 164 Me Gusta | 19 Retweets

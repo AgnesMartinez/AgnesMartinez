@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 23:42:39
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 10:03:17
 *****
-En la celebración del ⁦@PTnacionalMX⁩. Puro mariachi, yo incluido, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1600757735326466048) | 93 Me Gusta | 10 Retweets
+RT @evoespueblo: Como advertimos, la guerra híbrida de la derecha internacional ha perpetrado dos golpes contra gobiernos del pueblo en las…
+[Permalink](https://twitter.com/fernandeznorona/status/1600913922194014208) | 0 Me Gusta | 1,318 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 19:04:29
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 10:01:04
 *****
-Eres facho, doctor Chapatín. No sólo validas el golpe de estado, además abres la puerta a un magnicidio. Estoy seguro que te dices creyente y no sé cómo cargas con tu conciencia. Si hubieras vivido en la época de Huerta, habrías celebrado el asesinato del presidente Madero.
-[Permalink](https://twitter.com/fernandeznorona/status/1600687730815442945) | 136 Me Gusta | 44 Retweets
+RT @Ricar_peralta: El vuelo 216 de @Aeromexico con todos los pasajeros abordo tiene más de una hora esperando al Capitán! Que se le hizo ta…
+[Permalink](https://twitter.com/fernandeznorona/status/1600913366603927552) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 18:58:26
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 09:58:06
 *****
-Por si alguna duda había. Donde @Almagro_OEA2015 mete la mano, hay golpe de estado.
-[Permalink](https://twitter.com/fernandeznorona/status/1600686210933878784) | 191 Me Gusta | 95 Retweets
+¿Pero por qué el cascabel?
+[Permalink](https://twitter.com/fernandeznorona/status/1600912619501940736) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 18:56:44
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 09:55:25
 *****
-Seguro los automóviles se mueven con aire, farsante. El #tomandanteborolas alias @FelipeCalderon es deleznable.
-[Permalink](https://twitter.com/fernandeznorona/status/1600685781739503621) | 186 Me Gusta | 44 Retweets
+RT @Navegaciones: Revela @lopezobrador_ que @PedroCastilloTe le avisó que pensaba dirigirse a pedir asilo a la embajada de 🇲🇽 en 🇵🇪, pero q…
+[Permalink](https://twitter.com/fernandeznorona/status/1600911943216177152) | 0 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 18:47:33
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 09:55:11
 *****
-¡Golpistas!
-[Permalink](https://twitter.com/fernandeznorona/status/1600683471155785728) | 135 Me Gusta | 43 Retweets
+Una vez más te ubicas como opositor a nuestro gobierno, no es nada nuevo monaguillo @CiroMurayamaINE. Pero ya que quieres hablar de temas que no sabes, ten la decencia de leer “La Cancelación” de @JimenezEspriu y luego abres la boca.
+[Permalink](https://twitter.com/fernandeznorona/status/1600911886014615553) | 25 Me Gusta | 12 Retweets

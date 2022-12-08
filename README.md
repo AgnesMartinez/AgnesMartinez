@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 09:05:59
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 15:26:31
 *****
-Una patrulla tiene cerrado el tráfico a carriles centrales de Reforma en la glorieta de Violeta. Un caos el tráfico ⁦@UCS_GCDMX⁩. Todo el tránsito es desviado a la lateral o hacia la glorieta.
-[Permalink](https://twitter.com/fernandeznorona/status/1600537116504576000) | 43 Me Gusta | 13 Retweets
+Y a Camilo Mouriño, español por los cuatro costados que hasta lo hizo secretario de gobernación y era su delfín para la presidencia. El #TomandanteBorolas alias @FelipeCalderon es un desvergonzado.
+[Permalink](https://twitter.com/fernandeznorona/status/1600632881075789824) | 87 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 01:24:51
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 15:24:17
 *****
-Cumplimos. Hay reforma electoral.
-[Permalink](https://twitter.com/fernandeznorona/status/1600421067587129344) | 3,591 Me Gusta | 568 Retweets
+Abrazote para esa hermosa familia.
+[Permalink](https://twitter.com/fernandeznorona/status/1600632318733213697) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 00:38:42
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 15:23:11
 *****
-@_MistWolf_ Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1600409453509033984) | 15 Me Gusta | 2 Retweets
+El diputado Brígido Moreno estuvo ausente porque acaba de morir su esposa.
+[Permalink](https://twitter.com/fernandeznorona/status/1600632039778045952) | 55 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 00:35:10
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 15:20:09
 *****
-RT @AleCamph: El diputado @fernandeznorona a la cabeza de todos los sondeos 👏👏👏👏👏👏
-[Permalink](https://twitter.com/fernandeznorona/status/1600408562563305473) | 0 Me Gusta | 24 Retweets
+RT @jgnaredo: La derecha es golpista por naturaleza. El caso de Perú lo evidencia una vez más.
+
+
+Cualquier defensor verdadero de la democrac…
+[Permalink](https://twitter.com/fernandeznorona/status/1600631276134100992) | 0 Me Gusta | 418 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 00:13:02
+**Fernández Noroña** (**@fernandeznorona**) • 07-12-2022 a las 15:14:52
 *****
-Aunque en realidad España y Marruecos son aliados contra la República Árabe Saharaui.
-[Permalink](https://twitter.com/fernandeznorona/status/1600402995216150528) | 79 Me Gusta | 20 Retweets
+Dina, la @JeanineAnez peruana.
+[Permalink](https://twitter.com/fernandeznorona/status/1600629949085483011) | 91 Me Gusta | 20 Retweets

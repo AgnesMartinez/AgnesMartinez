@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 21:08:50
+**Fernández Noroña** (**@fernandeznorona**) • 09-12-2022 a las 10:05:49
 *****
-A dormir, mañana deberé salir siete de la mañana rumbo a Delicias.
-[Permalink](https://twitter.com/fernandeznorona/status/1601081413448585222) | 120 Me Gusta | 9 Retweets
+RT @zenenzeferino: @epigmenioibarra @adan_augusto @Claudiashein @m_ebrard @RicardoMonrealA ¡Ay Don @epigmenioibarra !
+¿Qué gana con ese dar…
+[Permalink](https://twitter.com/fernandeznorona/status/1601276947949985793) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 21:07:20
+**Fernández Noroña** (**@fernandeznorona**) • 09-12-2022 a las 10:02:47
 *****
-RT @CCastilloPerez1: ¿Sabías que Justin Trudeau disolvió al parlamento para reelegirse? ¿Qué Zelenski disolvió el parlamento por no tener m…
-[Permalink](https://twitter.com/fernandeznorona/status/1601081037639258114) | 0 Me Gusta | 1,172 Retweets
+@AlmaSau11778418 @mondy_alexa Ha rendido.
+[Permalink](https://twitter.com/fernandeznorona/status/1601276184792211457) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 20:27:08
+**Fernández Noroña** (**@fernandeznorona**) • 09-12-2022 a las 10:01:08
 *****
-Son muy hipócritas, aplaudes el golpe de estado en Perú, pero reclamas la aplicación de la ley en tu patria. ¡Ay @Mzavalagc!
-[Permalink](https://twitter.com/fernandeznorona/status/1601070922139852801) | 161 Me Gusta | 55 Retweets
+O el te ves repuestita, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1601275771422507010) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 18:58:16
+**Fernández Noroña** (**@fernandeznorona**) • 09-12-2022 a las 08:47:47
 *****
-Para ser muchos, no pasan todos los que están en contra del 30%; mientras que él parece que superará al 70% de apoyo gaznápiro @irmoralesl.
-[Permalink](https://twitter.com/fernandeznorona/status/1601048557993140224) | 96 Me Gusta | 24 Retweets
+Presidente, presidente…jejeje
+[Permalink](https://twitter.com/fernandeznorona/status/1601257312127049732) | 251 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 18:52:42
+**Fernández Noroña** (**@fernandeznorona**) • 09-12-2022 a las 08:16:59
 *****
-Ya estamos en Chihuahua, estaré en Delicias y en Juárez.
-[Permalink](https://twitter.com/fernandeznorona/status/1601047155195580417) | 177 Me Gusta | 22 Retweets
+“Francia, ¡ay! había dejado de ser el centro del intelecto, ya no era la ilustración. Tampoco era la sede del ciberespacio. Ya no atraía a los grandes intelectos del mundo ni a todo el resto de aquel ‘ schtuss’ cultural. Los franceses habían sido”. Bellow.
+[Permalink](https://twitter.com/fernandeznorona/status/1601249558562246656) | 25 Me Gusta | 5 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 10:03:17
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 16:40:31
 *****
-RT @evoespueblo: Como advertimos, la guerra híbrida de la derecha internacional ha perpetrado dos golpes contra gobiernos del pueblo en las…
-[Permalink](https://twitter.com/fernandeznorona/status/1600913922194014208) | 0 Me Gusta | 1,318 Retweets
+Por poco y nos quedamos. Así como luego reclamo, hoy le agradezco muchísimo al personal de @Aeromexico qué fue súper gentil y nos permitió abordar “rayando el caballo”.
+[Permalink](https://twitter.com/fernandeznorona/status/1601013889985978368) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 10:01:04
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 14:58:52
 *****
-RT @Ricar_peralta: El vuelo 216 de @Aeromexico con todos los pasajeros abordo tiene más de una hora esperando al Capitán! Que se le hizo ta…
-[Permalink](https://twitter.com/fernandeznorona/status/1600913366603927552) | 0 Me Gusta | 10 Retweets
+Nuevamente mientes. El @senadomexicano corregirá cualquier yerro que hayamos cometido y la reforma se mantendrá firme. @chichillon, ya es hora que des la cara para conocer el verdadero rostro de la intriga.
+[Permalink](https://twitter.com/fernandeznorona/status/1600988310419435521) | 30 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 09:58:06
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 14:56:52
 *****
-¿Pero por qué el cascabel?
-[Permalink](https://twitter.com/fernandeznorona/status/1600912619501940736) | 8 Me Gusta | 1 Retweets
+No lo sabía.
+[Permalink](https://twitter.com/fernandeznorona/status/1600987806104711171) | 27 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 09:55:25
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 14:55:59
 *****
-RT @Navegaciones: Revela @lopezobrador_ que @PedroCastilloTe le avisó que pensaba dirigirse a pedir asilo a la embajada de 🇲🇽 en 🇵🇪, pero q…
-[Permalink](https://twitter.com/fernandeznorona/status/1600911943216177152) | 0 Me Gusta | 21 Retweets
+RT @Micmoya: Hay un círculo del infierno a donde va la gente que toca el claxon en el mismo instante en el que el semáforo cambia de color.
+[Permalink](https://twitter.com/fernandeznorona/status/1600987582300442625) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 09:55:11
+**Fernández Noroña** (**@fernandeznorona**) • 08-12-2022 a las 14:52:47
 *****
-Una vez más te ubicas como opositor a nuestro gobierno, no es nada nuevo monaguillo @CiroMurayamaINE. Pero ya que quieres hablar de temas que no sabes, ten la decencia de leer “La Cancelación” de @JimenezEspriu y luego abres la boca.
-[Permalink](https://twitter.com/fernandeznorona/status/1600911886014615553) | 25 Me Gusta | 12 Retweets
+Parto del supuesto que actúas de buena fe. ¿Me podrías demostrar con los resultados de la elección de 2021 que si todos los votos hubieran sido para @PartidoMorenaMx tendríamos más diputados?
+[Permalink](https://twitter.com/fernandeznorona/status/1600986779687190528) | 39 Me Gusta | 15 Retweets

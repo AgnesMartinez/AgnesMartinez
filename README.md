@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 16:16:15
+**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 21:14:52
 *****
-En Ciudad Juárez. Acompañado del alcalde @CruzPerzCuellar.
-[Permalink](https://twitter.com/fernandeznorona/status/1601732560790265856) | 40 Me Gusta | 10 Retweets
+“Vive con tu siglo, pero no te conviertas en su criatura”. Schiller citado por Bellow -por Ravelstein, el personaje de su novela-. Si soy.
+[Permalink](https://twitter.com/fernandeznorona/status/1601807707954368512) | 40 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 15:02:56
+**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 20:58:39
 *****
-Falta Claudia y Monreal.
-[Permalink](https://twitter.com/fernandeznorona/status/1601714109070086144) | 23 Me Gusta | 8 Retweets
+Vive Jesús y está con el compañero presidente, igual que Javier, Pedro y Enrique y, Jesusa, Juana y Petra.
+[Permalink](https://twitter.com/fernandeznorona/status/1601803628419117056) | 43 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 14:16:20
+**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 20:57:36
 *****
-Gracias por compartirnos la visión racista y clasista de la derecha en un mensaje de Twitter. Felicidades y seguro eres tan hipócrita, que te dices creyente.
-[Permalink](https://twitter.com/fernandeznorona/status/1601702380898111488) | 80 Me Gusta | 26 Retweets
+Ahí viste a Noroña presidente. ¡Eso chingao!
+[Permalink](https://twitter.com/fernandeznorona/status/1601803361325502464) | 91 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 14:14:54
+**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 20:56:20
 *****
-RT @LibreMurcielaga: Vi esta simpática caricatura aquí en Twitter.
-[Permalink](https://twitter.com/fernandeznorona/status/1601702019105886208) | 0 Me Gusta | 10 Retweets
+RT @Profe_Perlita: SI EN PERÚ SON 33 MILLONES DE HABITANTES Y ASÍ VAN LAS MARCHAS RUMBO A LIMA....Piénsenle FACHOS #TRAIDORES_A_LA_PATRIA…
+[Permalink](https://twitter.com/fernandeznorona/status/1601803044781441026) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 14:14:38
+**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 20:56:08
 *****
-RT @pvillegas_tlSUR: Perú. Sábado 10 de Diciembre 2022. Mineros marchan a Lima desde Arequipa.
-[Permalink](https://twitter.com/fernandeznorona/status/1601701953506988032) | 0 Me Gusta | 2,387 Retweets
+El verdadero adversario de @AccionNacional es @AccionNacional. @MarkoCortes #ubicate.
+[Permalink](https://twitter.com/fernandeznorona/status/1601802992939929601) | 38 Me Gusta | 8 Retweets

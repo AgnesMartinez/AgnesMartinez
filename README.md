@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 20:41:39
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 09:57:06
 *****
-A dormir, mañana regresaré al D.F.
-[Permalink](https://twitter.com/fernandeznorona/status/1602161738224394240) | 165 Me Gusta | 10 Retweets
+Acabamos de aterrizar en la capital del país.
+[Permalink](https://twitter.com/fernandeznorona/status/1602361916889800705) | 26 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 20:08:04
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 08:13:43
 *****
-RT @David_qva: ¡Ahora Perú! la televisión peruana dice que todo está tranquilo en Lima; mientras tanto, en las calles hay una Revolución...…
-[Permalink](https://twitter.com/fernandeznorona/status/1602153284180942854) | 0 Me Gusta | 3,768 Retweets
+RT @LuciaAlvites: La gente empieza a llegar, no nos movemos de las calles hasta que se vaya ese Congreso golpista y pongan fin a la prisión…
+[Permalink](https://twitter.com/fernandeznorona/status/1602335900922703873) | 0 Me Gusta | 1,869 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 19:36:11
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 08:08:21
 *****
-RT @mario_campa: Se intensifican los enfrentamientos en Perú.
-
-
-Hay muertos en las calles, golpes en el Congreso y otra moción de censura, a…
-[Permalink](https://twitter.com/fernandeznorona/status/1602145260943163393) | 0 Me Gusta | 745 Retweets
+RT @itabustamante1: Se viene el Sur rumbo a Lima!!!
+[Permalink](https://twitter.com/fernandeznorona/status/1602334548980801537) | 0 Me Gusta | 1,995 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 19:25:38
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 08:05:08
 *****
-¡Qué maravilla!
-[Permalink](https://twitter.com/fernandeznorona/status/1602142606833905665) | 129 Me Gusta | 16 Retweets
+RT @ZairaArias92: El país está en llamas, ya hay muertos y heridos. No desaten la furia del pueblo. 
+Los verdaderos responsables de todo es…
+[Permalink](https://twitter.com/fernandeznorona/status/1602333739689934849) | 0 Me Gusta | 1,010 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 19:24:57
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 08:03:08
 *****
-Ya no les compartí más fotos de la carretera porque no había señal.
-[Permalink](https://twitter.com/fernandeznorona/status/1602142436565737472) | 101 Me Gusta | 10 Retweets
+¿Uno? ¡Hay un chingo!
+[Permalink](https://twitter.com/fernandeznorona/status/1602333235903713281) | 31 Me Gusta | 10 Retweets

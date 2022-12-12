@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 06:29:04
+**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 15:13:25
 *****
-RT @AnibalGarzon: La Constitución peruana de 1993 del golpista Alberto Fujimori hacen ingobernable hoy Perú. 6 presidentes en 6 años. La ún…
-[Permalink](https://twitter.com/fernandeznorona/status/1601947179211423744) | 0 Me Gusta | 1,543 Retweets
+Vamos saliendo de Lázaro Cárdenas rumbo a Chihuahua. Todavía no sé si transmitiré a las seis en el camino, o a las siete de la noche en Chihuahua capital
+[Permalink](https://twitter.com/fernandeznorona/status/1602079136108920832) | 101 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 21:14:52
+**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 13:50:08
 *****
-“Vive con tu siglo, pero no te conviertas en su criatura”. Schiller citado por Bellow -por Ravelstein, el personaje de su novela-. Si soy.
-[Permalink](https://twitter.com/fernandeznorona/status/1601807707954368512) | 72 Me Gusta | 15 Retweets
+Lázaro Cárdenas, Cuauhtémoc. Ya sé que van a chingar, pero así está la asistencia y hasta acá vine
+[Permalink](https://twitter.com/fernandeznorona/status/1602058175318003712) | 301 Me Gusta | 47 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 20:58:39
+**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 13:44:44
 *****
-Vive Jesús y está con el compañero presidente, igual que Javier, Pedro y Enrique y, Jesusa, Juana y Petra.
-[Permalink](https://twitter.com/fernandeznorona/status/1601803628419117056) | 73 Me Gusta | 17 Retweets
+RT @scabbiamx: Los medios peruanos sólo entrevistan a clasemedieros apoyando el golpe contra su presidente y hacen creer que todos los peru…
+[Permalink](https://twitter.com/fernandeznorona/status/1602056816610770944) | 0 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 20:57:36
+**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 13:43:50
 *****
-Ahí viste a Noroña presidente. ¡Eso chingao!
-[Permalink](https://twitter.com/fernandeznorona/status/1601803361325502464) | 291 Me Gusta | 25 Retweets
+RT @GuilleBermejoR: Nuestros abogados Ronald Atencio Sotomayor y Raul Noblecilla Olaechea velando por los derechos de nuestro Presidente Pe…
+[Permalink](https://twitter.com/fernandeznorona/status/1602056591989436417) | 0 Me Gusta | 1,106 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-12-2022 a las 20:56:20
+**Fernández Noroña** (**@fernandeznorona**) • 11-12-2022 a las 13:43:41
 *****
-RT @Profe_Perlita: SI EN PERÚ SON 33 MILLONES DE HABITANTES Y ASÍ VAN LAS MARCHAS RUMBO A LIMA....Piénsenle FACHOS #TRAIDORES_A_LA_PATRIA…
-[Permalink](https://twitter.com/fernandeznorona/status/1601803044781441026) | 0 Me Gusta | 27 Retweets
+RT @HoyPalestina: Un misil de 100.000 dólares, lanzado por un avión de 20.000.000 de dólares, que viaja a un costo de 6.000 dólares por hor…
+[Permalink](https://twitter.com/fernandeznorona/status/1602056551241437184) | 0 Me Gusta | 5,009 Retweets

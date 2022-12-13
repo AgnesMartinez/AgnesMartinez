@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 09:57:06
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 13:56:26
 *****
-Acabamos de aterrizar en la capital del país.
-[Permalink](https://twitter.com/fernandeznorona/status/1602361916889800705) | 26 Me Gusta | 6 Retweets
+Pues no.
+[Permalink](https://twitter.com/fernandeznorona/status/1602422149293154304) | 50 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 08:13:43
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 13:50:07
 *****
-RT @LuciaAlvites: La gente empieza a llegar, no nos movemos de las calles hasta que se vaya ese Congreso golpista y pongan fin a la prisión…
-[Permalink](https://twitter.com/fernandeznorona/status/1602335900922703873) | 0 Me Gusta | 1,869 Retweets
+RT @anthonyzenkus: This is the United States before we invaded our neighboring country Mexico and took half their land now please tell me a…
+[Permalink](https://twitter.com/fernandeznorona/status/1602420558402097161) | 0 Me Gusta | 2,145 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 08:08:21
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 13:49:42
 *****
-RT @itabustamante1: Se viene el Sur rumbo a Lima!!!
-[Permalink](https://twitter.com/fernandeznorona/status/1602334548980801537) | 0 Me Gusta | 1,995 Retweets
+RT @genarolozano: Sin retrasos, sin tolvaneras, sin tianguis de mezclilla y con starbucks leche de avena en el AIFA…
+[Permalink](https://twitter.com/fernandeznorona/status/1602420455964610579) | 0 Me Gusta | 161 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 08:05:08
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 12:31:29
 *****
-RT @ZairaArias92: El país está en llamas, ya hay muertos y heridos. No desaten la furia del pueblo. 
-Los verdaderos responsables de todo es…
-[Permalink](https://twitter.com/fernandeznorona/status/1602333739689934849) | 0 Me Gusta | 1,010 Retweets
+RT @SheffieldGto: Los consumidores que teniendo boletos comprados a @Ticketmaster_Me no pudieron acceder al concierto de Bad Bunny deben re…
+[Permalink](https://twitter.com/fernandeznorona/status/1602400769273171976) | 0 Me Gusta | 1,079 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 08:03:08
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 12:30:47
 *****
-¿Uno? ¡Hay un chingo!
-[Permalink](https://twitter.com/fernandeznorona/status/1602333235903713281) | 31 Me Gusta | 10 Retweets
+RT @PedroCastilloTe: Querido pueblo peruano, grandioso y paciente:
+[Permalink](https://twitter.com/fernandeznorona/status/1602400593317969920) | 0 Me Gusta | 5,699 Retweets

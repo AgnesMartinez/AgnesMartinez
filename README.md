@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 13:56:26
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 19:29:56
 *****
-Pues no.
-[Permalink](https://twitter.com/fernandeznorona/status/1602422149293154304) | 50 Me Gusta | 9 Retweets
+Muchas felicidades y mucho éxito. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1602506077001728001) | 51 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 13:50:07
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 19:26:55
 *****
-RT @anthonyzenkus: This is the United States before we invaded our neighboring country Mexico and took half their land now please tell me a…
-[Permalink](https://twitter.com/fernandeznorona/status/1602420558402097161) | 0 Me Gusta | 2,145 Retweets
+No es cállate y apoya. Todas las encuestas que se venían haciendo daban como favorito a @aguadiana. Pero es muy sencillo, compártanos las encuestas favorables a otro aspirante.
+[Permalink](https://twitter.com/fernandeznorona/status/1602505315961999360) | 36 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 13:49:42
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 19:24:44
 *****
-RT @genarolozano: Sin retrasos, sin tolvaneras, sin tianguis de mezclilla y con starbucks leche de avena en el AIFA…
-[Permalink](https://twitter.com/fernandeznorona/status/1602420455964610579) | 0 Me Gusta | 161 Retweets
+Las encuestas son un muestreo estadístico. De ese tamaño de la muestra nacional, para un país de 130 millones.
+[Permalink](https://twitter.com/fernandeznorona/status/1602504768794116096) | 33 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 12:31:29
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 19:15:48
 *****
-RT @SheffieldGto: Los consumidores que teniendo boletos comprados a @Ticketmaster_Me no pudieron acceder al concierto de Bad Bunny deben re…
-[Permalink](https://twitter.com/fernandeznorona/status/1602400769273171976) | 0 Me Gusta | 1,079 Retweets
+RT @DiegodelBosqueV: Hoy es un día de gran importancia para Coahuila. Tenemos todo para ganarle al PRI
+
+
+La gente rechaza el pésimo gobierno…
+[Permalink](https://twitter.com/fernandeznorona/status/1602502518361264129) | 0 Me Gusta | 55 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 12:30:47
+**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 19:13:41
 *****
-RT @PedroCastilloTe: Querido pueblo peruano, grandioso y paciente:
-[Permalink](https://twitter.com/fernandeznorona/status/1602400593317969920) | 0 Me Gusta | 5,699 Retweets
+Sip.
+[Permalink](https://twitter.com/fernandeznorona/status/1602501988230496256) | 39 Me Gusta | 7 Retweets

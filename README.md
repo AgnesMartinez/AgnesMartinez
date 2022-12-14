@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2022 a las 13:34:40
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2022 a las 20:13:13
 *****
-Lamento profundamente el fallecimiento de mi amigo y compañero de lucha @MBarbosaMX. Mi solidaridad para Rosario su compañera de vida, para sus hijos, y familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1602779056994283523) | 1,106 Me Gusta | 238 Retweets
+Para variar en la plaza de Leandro Valle hecha estacionamiento @UCS_GCDMX
+[Permalink](https://twitter.com/fernandeznorona/status/1602879355734360065) | 66 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2022 a las 12:20:30
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2022 a las 19:27:28
 *****
-No es responsabilidad de @Claudiashein. Son demasiadas quejas ya con los filtros de seguridad del @AICM_mx.
-[Permalink](https://twitter.com/fernandeznorona/status/1602760394023768064) | 95 Me Gusta | 17 Retweets
+Que el señor X Junior @ClaudioXGG es “activista social”, ¡do babes!
+[Permalink](https://twitter.com/fernandeznorona/status/1602867844794167296) | 727 Me Gusta | 160 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2022 a las 11:33:05
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2022 a las 19:11:36
 *****
-Me entero de que mi compañero y amigo, el gobernador de Puebla @MBarbosaMX, está siendo atendido por problemas de salud. Le deseo de todo corazón pronta recuperación.
-[Permalink](https://twitter.com/fernandeznorona/status/1602748461597630465) | 521 Me Gusta | 61 Retweets
+Está buenísimo el video de buena parte de mi recorrido durante la mega marcha del 27 de noviembre. Sólo le falta mi ingreso a la plancha del Zócalo por el pasillo de los invitados especiales.
+[Permalink](https://twitter.com/fernandeznorona/status/1602863851535753216) | 175 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-12-2022 a las 06:04:48
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2022 a las 18:46:28
 *****
-@Tlauhiz @CALOLUNA @aguadiana @RicardoMed Vaya.
-[Permalink](https://twitter.com/fernandeznorona/status/1602665845834108928) | 6 Me Gusta | 0 Retweets
+Ahí te hablan @SergioSarmiento @sergiosarniento.
+[Permalink](https://twitter.com/fernandeznorona/status/1602857524063244288) | 124 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-12-2022 a las 19:29:56
+**Fernández Noroña** (**@fernandeznorona**) • 13-12-2022 a las 18:45:04
 *****
-Muchas felicidades y mucho éxito. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1602506077001728001) | 104 Me Gusta | 18 Retweets
+Bastante miserables de muestras golpeando a un compañero que acaba de fallecer. @SergioSarniento.
+[Permalink](https://twitter.com/fernandeznorona/status/1602857171586146304) | 258 Me Gusta | 52 Retweets

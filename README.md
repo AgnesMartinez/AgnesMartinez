@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 16:07:46
+**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 21:49:56
 *****
-Son chingaderas. Por este evento en Leandro Valle, tienen cerrado Perú desde Lázaro Cárdenas y encima tienen la plaza de Leandro Valle como estacionamiento. ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1603179975309332480) | 41 Me Gusta | 19 Retweets
+No hay una sola violación al marco constitucional en la reforma que se acaba de aprobar.
+[Permalink](https://twitter.com/fernandeznorona/status/1603266083523174403) | 51 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 10:51:36
+**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 21:43:58
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1603100410562109440) | 62 Me Gusta | 17 Retweets
+Pues justo no es momento de albazos y hay que tomarse el tiempo necesario para decidir quien supla al gobernador @MBarbosaMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1603264583606497280) | 29 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 10:50:48
+**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 21:39:08
 *****
-RT @PonchoGutz: Quédate con quien crea que AMLO quiere desaparecer al INE, si se tragó esas mentiras se tragará las tuyas.
-[Permalink](https://twitter.com/fernandeznorona/status/1603100206840438785) | 0 Me Gusta | 1,195 Retweets
+Pues parece que Sergio Salomón es buitre de los buenos y aún no se le da sepultura a mi amigo el gobernador @MBarbosaMX y ya está punto de dar albazo para quedarse con la gobernatura de Puebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1603263365530255360) | 109 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 10:50:41
+**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 21:20:18
 *****
-¡Con queso!
-[Permalink](https://twitter.com/fernandeznorona/status/1603100178193448960) | 90 Me Gusta | 10 Retweets
+Ya se votó en lo general la reforma electoral a leyes secundarias. Habrá reforma.
+[Permalink](https://twitter.com/fernandeznorona/status/1603258626935648256) | 472 Me Gusta | 117 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 10:49:39
+**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 21:18:06
 *****
-Descansar y tomar muchos líquidos. No te preocupes por el tiempo que te lleve recuperarte.
-[Permalink](https://twitter.com/fernandeznorona/status/1603099917500780548) | 76 Me Gusta | 10 Retweets
+Xacto, que tengan un mínimo de respeto a la memoria de nuestro amigo y compañero @MBarbosaMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1603258071781810176) | 62 Me Gusta | 20 Retweets

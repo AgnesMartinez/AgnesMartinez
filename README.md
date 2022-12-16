@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 08:38:25
+**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 15:52:19
 *****
-Se consumó el albazo en Puebla. El buitre @SergioSalomonC.
-[Permalink](https://twitter.com/fernandeznorona/status/1603429281165504512) | 89 Me Gusta | 30 Retweets
+Y sigues dándole a tu intriga. Cuando gustes hablamos sobre el tema en tu espacio, para ubicar la mala fe de tus planteamientos.
+[Permalink](https://twitter.com/fernandeznorona/status/1603538476984434688) | 93 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 07:45:20
+**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 15:49:40
 *****
-Sigue de estacionamientola plaza de Leandro Valle ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1603415920537321472) | 60 Me Gusta | 19 Retweets
+¿Podrías explicar la transferencia, que yo sostengo no existe? Si la ha habido del @PTnacionalMX a candidaturas a gobiernos estatales. Michoacán, Puebla, Campeche, sólo por citar algunos ejemplos.
+[Permalink](https://twitter.com/fernandeznorona/status/1603537807447728130) | 34 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 22:18:35
+**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 15:45:28
 *****
-Apenas en casa después de un día de locos. Pero reforma electoral hay.
-[Permalink](https://twitter.com/fernandeznorona/status/1603273293380714496) | 1,206 Me Gusta | 193 Retweets
+Muy básicos tus dizque análisis. Nosotros hemos estado con el compañero presidente de toda la vida, no cuando nos va bien económicamente. Por su parte, el @PTnacionalMX es el único partido que apoyado al compañero presidente desde el 2000.
+[Permalink](https://twitter.com/fernandeznorona/status/1603536751967866880) | 66 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 21:49:56
+**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 13:18:33
 *****
-No hay una sola violación al marco constitucional en la reforma que se acaba de aprobar.
-[Permalink](https://twitter.com/fernandeznorona/status/1603266083523174403) | 205 Me Gusta | 57 Retweets
+RT @save__alejandro: @fernandeznorona @MBarbosaMX Viene del PRI, luego estuvo en MC y era del grupo de Moreno Valle. El tal @SergioSalomonC…
+[Permalink](https://twitter.com/fernandeznorona/status/1603499776942624768) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-12-2022 a las 21:43:58
+**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 12:23:20
 *****
-Pues justo no es momento de albazos y hay que tomarse el tiempo necesario para decidir quien supla al gobernador @MBarbosaMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1603264583606497280) | 90 Me Gusta | 16 Retweets
+@Viri_Rios Dé y si.
+[Permalink](https://twitter.com/fernandeznorona/status/1603485884619202562) | 48 Me Gusta | 2 Retweets

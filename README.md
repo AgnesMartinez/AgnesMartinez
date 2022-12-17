@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 14:34:56
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 21:39:42
 *****
-Ahí te hablan #buitre @SergioSalomonC.
-[Permalink](https://twitter.com/fernandeznorona/status/1603881388683714560) | 36 Me Gusta | 10 Retweets
+Vine a cenar al “Rincón de Panchito” en Mexicali. Panchito, su dueño, se portó generosísimo. Nos cocinó abulón cima, nos dio unas latas de abulón para llevar. Su comida, espléndida.
+[Permalink](https://twitter.com/fernandeznorona/status/1603988285751283712) | 49 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 14:31:02
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 20:20:03
 *****
-RT @PinkMojitow: De mi se acuerdan que en 1 año máximo la ahora presidenta (golpista marioneta de yasabenquienes) de Perú @DinaErcilia term…
-[Permalink](https://twitter.com/fernandeznorona/status/1603880408591917056) | 0 Me Gusta | 19 Retweets
+13,305 en Facebook y, 11,213 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1603968239876206592) | 58 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 14:30:24
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 18:24:30
 *****
-RT @DrLorenzoMeyer: Pues resulta que el parlamento que en Perú destituyó al presidente Castillo tiene, según encuesta del mes pasado, una d…
-[Permalink](https://twitter.com/fernandeznorona/status/1603880249661394944) | 0 Me Gusta | 2,175 Retweets
+Así que espero hacer la video charla a las ocho de la noche tiempo local, 10 de la noche horario del centro.
+[Permalink](https://twitter.com/fernandeznorona/status/1603939161026826242) | 84 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 14:26:48
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 18:23:22
 *****
-Agenda de los próximos días.
-[Permalink](https://twitter.com/fernandeznorona/status/1603879341204480000) | 39 Me Gusta | 16 Retweets
+Aquí con el equipo de apoyo.
+[Permalink](https://twitter.com/fernandeznorona/status/1603938877840019459) | 129 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 14:26:29
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 18:23:00
 *****
-Agenda de los próximos días.
-[Permalink](https://twitter.com/fernandeznorona/status/1603879262770958336) | 41 Me Gusta | 11 Retweets
+Los compañeros que debían pasar por nosotros no llegaron. Pero afortunadamente el equipo de apoyo nos va trasladando.
+[Permalink](https://twitter.com/fernandeznorona/status/1603938785741635584) | 88 Me Gusta | 10 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 22:32:40
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 14:34:56
 *****
-NUNCA ha habido, ignorante e intrigante.
-[Permalink](https://twitter.com/fernandeznorona/status/1603639228469895168) | 82 Me Gusta | 15 Retweets
+Ahí te hablan #buitre @SergioSalomonC.
+[Permalink](https://twitter.com/fernandeznorona/status/1603881388683714560) | 36 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 22:29:38
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 14:31:02
 *****
-Toda mi solidaridad. Un abrazo grande, celebrando que hayas librado el cobarde atentado.
-[Permalink](https://twitter.com/fernandeznorona/status/1603638465521860609) | 204 Me Gusta | 33 Retweets
+RT @PinkMojitow: De mi se acuerdan que en 1 año máximo la ahora presidenta (golpista marioneta de yasabenquienes) de Perú @DinaErcilia term…
+[Permalink](https://twitter.com/fernandeznorona/status/1603880408591917056) | 0 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 22:27:51
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 14:30:24
 *****
-No intervine.
-[Permalink](https://twitter.com/fernandeznorona/status/1603638015384907776) | 59 Me Gusta | 9 Retweets
+RT @DrLorenzoMeyer: Pues resulta que el parlamento que en Perú destituyó al presidente Castillo tiene, según encuesta del mes pasado, una d…
+[Permalink](https://twitter.com/fernandeznorona/status/1603880249661394944) | 0 Me Gusta | 2,175 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 22:26:31
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 14:26:48
 *****
-@AleCamph @Marblanca3 @SinEmbargoMX @alvaro_delgado @paezvarela @ElChapuceroDeN1 @mau_rodriguez77 @julioastillero @juanbaaq @DrLorenzoMeyer Fregonazo.
-[Permalink](https://twitter.com/fernandeznorona/status/1603637680360652801) | 9 Me Gusta | 0 Retweets
+Agenda de los próximos días.
+[Permalink](https://twitter.com/fernandeznorona/status/1603879341204480000) | 39 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-12-2022 a las 22:26:09
+**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 14:26:29
 *****
-@Ceciliaaaoooo @RaFloMa Echando.
-[Permalink](https://twitter.com/fernandeznorona/status/1603637585217146881) | 7 Me Gusta | 0 Retweets
+Agenda de los próximos días.
+[Permalink](https://twitter.com/fernandeznorona/status/1603879262770958336) | 41 Me Gusta | 11 Retweets

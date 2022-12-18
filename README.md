@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 09:35:32
+**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 13:36:34
 *****
-En Mexicali.
-[Permalink](https://twitter.com/fernandeznorona/status/1604168429253976064) | 59 Me Gusta | 8 Retweets
+Muchos, sin presumir.
+[Permalink](https://twitter.com/fernandeznorona/status/1604229087945318400) | 42 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 22:22:54
+**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 13:36:12
 *****
-Uh. Gracias, abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1603999154862460928) | 46 Me Gusta | 7 Retweets
+Agradezco a Guadalupe del Villar que pintó al Chango y al León.
+[Permalink](https://twitter.com/fernandeznorona/status/1604228996509491200) | 110 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 21:39:42
+**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 12:29:18
 *****
-Vine a cenar al “Rincón de Panchito” en Mexicali. Panchito, su dueño, se portó generosísimo. Nos cocinó abulón cima, nos dio unas latas de abulón para llevar. Su comida, espléndida.
-[Permalink](https://twitter.com/fernandeznorona/status/1603988285751283712) | 161 Me Gusta | 19 Retweets
+La gente se pasa de generosa. Un compañero me apoyó con 45 dólares y otro, con 200. Compañeros migrantes que fueron a verme a Mexicali. Son muy desprendidos. Muy agradecido.
+[Permalink](https://twitter.com/fernandeznorona/status/1604212159327649792) | 552 Me Gusta | 70 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 20:20:03
+**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 10:53:02
 *****
-13,305 en Facebook y, 11,213 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1603968239876206592) | 93 Me Gusta | 14 Retweets
+Es ilegal.
+[Permalink](https://twitter.com/fernandeznorona/status/1604187934814371840) | 70 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-12-2022 a las 18:24:30
+**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 10:52:14
 *****
-Así que espero hacer la video charla a las ocho de la noche tiempo local, 10 de la noche horario del centro.
-[Permalink](https://twitter.com/fernandeznorona/status/1603939161026826242) | 119 Me Gusta | 19 Retweets
+Cien pesos en Mexicali, que todo es en dólares.
+[Permalink](https://twitter.com/fernandeznorona/status/1604187734020481024) | 40 Me Gusta | 5 Retweets

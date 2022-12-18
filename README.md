@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 13:36:34
+**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 21:57:53
 *****
-Muchos, sin presumir.
-[Permalink](https://twitter.com/fernandeznorona/status/1604229087945318400) | 42 Me Gusta | 7 Retweets
+RT @LuciaAlvites: No nos dejan salir del local de @NuevoPeruMov, estamos prácticamente secuestrados. Denuncien lo que está pasando. Difunda…
+[Permalink](https://twitter.com/fernandeznorona/status/1604355247152955393) | 0 Me Gusta | 5,250 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 13:36:12
+**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 21:56:13
 *****
-Agradezco a Guadalupe del Villar que pintó al Chango y al León.
-[Permalink](https://twitter.com/fernandeznorona/status/1604228996509491200) | 110 Me Gusta | 18 Retweets
+Dentro de toda la pesadilla, un tipazo el gerente de Real Inn By Camino Real de Tijuana. Nos salvó.
+[Permalink](https://twitter.com/fernandeznorona/status/1604354827517140993) | 23 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 12:29:18
+**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 21:51:29
 *****
-La gente se pasa de generosa. Un compañero me apoyó con 45 dólares y otro, con 200. Compañeros migrantes que fueron a verme a Mexicali. Son muy desprendidos. Muy agradecido.
-[Permalink](https://twitter.com/fernandeznorona/status/1604212159327649792) | 552 Me Gusta | 70 Retweets
+Eres un farsante @SergioSalomonC #buitre.
+[Permalink](https://twitter.com/fernandeznorona/status/1604353639887171584) | 12 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 10:53:02
+**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 21:48:20
 *****
-Es ilegal.
-[Permalink](https://twitter.com/fernandeznorona/status/1604187934814371840) | 70 Me Gusta | 15 Retweets
+RT @evoespueblo: Hacemos un llamado a la comunidad internacional, especialmente a los organismos de ONU y la CIDH, para que pongan un alto…
+[Permalink](https://twitter.com/fernandeznorona/status/1604352845989367808) | 0 Me Gusta | 4,019 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 10:52:14
+**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 21:47:58
 *****
-Cien pesos en Mexicali, que todo es en dólares.
-[Permalink](https://twitter.com/fernandeznorona/status/1604187734020481024) | 40 Me Gusta | 5 Retweets
+RT @FlorenciaLagosN: 21 muertos por la represión en Perú. Ya se le puede llamar Dictadura, o todavía no?
+[Permalink](https://twitter.com/fernandeznorona/status/1604352751948791808) | 0 Me Gusta | 2,010 Retweets

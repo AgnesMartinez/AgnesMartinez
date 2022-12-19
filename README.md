@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 09:43:07
+**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 16:35:38
 *****
-Rosarito.
-[Permalink](https://twitter.com/fernandeznorona/status/1604532727638003713) | 37 Me Gusta | 5 Retweets
+Bello atardecer.
+[Permalink](https://twitter.com/fernandeznorona/status/1604636541707583488) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 21:57:53
+**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 16:34:52
 *****
-RT @LuciaAlvites: No nos dejan salir del local de @NuevoPeruMov, estamos prácticamente secuestrados. Denuncien lo que está pasando. Difunda…
-[Permalink](https://twitter.com/fernandeznorona/status/1604355247152955393) | 0 Me Gusta | 6,658 Retweets
+Atardecer con más cables.
+[Permalink](https://twitter.com/fernandeznorona/status/1604636348908032000) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 21:56:13
+**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 16:34:22
 *****
-Dentro de toda la pesadilla, un tipazo el gerente de Real Inn By Camino Real de Tijuana. Nos salvó.
-[Permalink](https://twitter.com/fernandeznorona/status/1604354827517140993) | 183 Me Gusta | 14 Retweets
+Atardecer con cables, en San Quintín.
+[Permalink](https://twitter.com/fernandeznorona/status/1604636221128441858) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 21:51:29
+**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 15:50:21
 *****
-Eres un farsante @SergioSalomonC #buitre.
-[Permalink](https://twitter.com/fernandeznorona/status/1604353639887171584) | 90 Me Gusta | 18 Retweets
+Mejor que Maradona, ni soñando.
+[Permalink](https://twitter.com/fernandeznorona/status/1604625143388577795) | 41 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-12-2022 a las 21:48:20
+**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 15:50:01
 *****
-RT @evoespueblo: Hacemos un llamado a la comunidad internacional, especialmente a los organismos de ONU y la CIDH, para que pongan un alto…
-[Permalink](https://twitter.com/fernandeznorona/status/1604352845989367808) | 0 Me Gusta | 6,237 Retweets
+RT @LuciaAlvites: Los compañeros retenidos por más de 10 horas fueron liberados. Hemos estado todo el día, y vamos a seguir estando y resis…
+[Permalink](https://twitter.com/fernandeznorona/status/1604625061922611203) | 0 Me Gusta | 2,293 Retweets

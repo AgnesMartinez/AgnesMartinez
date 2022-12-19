@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 16:35:38
+**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 19:11:51
 *****
-Bello atardecer.
-[Permalink](https://twitter.com/fernandeznorona/status/1604636541707583488) | 2 Me Gusta | 0 Retweets
+RT @Roberto20358631: Un viejo amigo lleva 4 años enojado, criticando por todo a AMLO. 4 años amargado y frustrado. Pesimista y negativo ha…
+[Permalink](https://twitter.com/fernandeznorona/status/1604675851257122816) | 0 Me Gusta | 555 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 16:34:52
+**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 19:10:41
 *****
-Atardecer con más cables.
-[Permalink](https://twitter.com/fernandeznorona/status/1604636348908032000) | 3 Me Gusta | 0 Retweets
+@Arman_doCA @LJyDMX Cinismo.
+[Permalink](https://twitter.com/fernandeznorona/status/1604675560751316992) | 5 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 16:34:22
+**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 19:09:59
 *****
-Atardecer con cables, en San Quintín.
-[Permalink](https://twitter.com/fernandeznorona/status/1604636221128441858) | 8 Me Gusta | 1 Retweets
+Vamos saliendo de San Quintín rumbo a Ensenada.
+[Permalink](https://twitter.com/fernandeznorona/status/1604675382665322498) | 75 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 15:50:21
+**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 19:01:05
 *****
-Mejor que Maradona, ni soñando.
-[Permalink](https://twitter.com/fernandeznorona/status/1604625143388577795) | 41 Me Gusta | 7 Retweets
+De 11886 en Facebook, y, 10,383 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1604673145683574784) | 55 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 15:50:01
+**Fernández Noroña** (**@fernandeznorona**) • 18-12-2022 a las 17:46:53
 *****
-RT @LuciaAlvites: Los compañeros retenidos por más de 10 horas fueron liberados. Hemos estado todo el día, y vamos a seguir estando y resis…
-[Permalink](https://twitter.com/fernandeznorona/status/1604625061922611203) | 0 Me Gusta | 2,293 Retweets
+¿Qué dijo?
+[Permalink](https://twitter.com/fernandeznorona/status/1604654469584547840) | 378 Me Gusta | 47 Retweets

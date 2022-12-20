@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-12-2022 a las 16:29:36
+**Fernández Noroña** (**@fernandeznorona**) • 19-12-2022 a las 21:54:40
 *****
-Les recuerdo que la video charla de hoy será hacia las 10 de la noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1604997408965812224) | 10 Me Gusta | 2 Retweets
+7967 en Facebook y, 8277 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1605079213303681024) | 19 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-12-2022 a las 16:28:08
+**Fernández Noroña** (**@fernandeznorona**) • 19-12-2022 a las 20:01:13
 *****
-RT @UnObjetoSexual: Más de 80 personas formadas, esperando que pase una ruta que nos lleve al centro, casi una hora de espera, y no ha apsa…
-[Permalink](https://twitter.com/fernandeznorona/status/1604997040999583745) | 0 Me Gusta | 30 Retweets
+En un oasis bajacaliforniano.
+[Permalink](https://twitter.com/fernandeznorona/status/1605050665725661184) | 154 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-12-2022 a las 16:27:28
+**Fernández Noroña** (**@fernandeznorona**) • 19-12-2022 a las 19:38:01
 *****
-RT @_MistWolf_: ¡Oí nomás ese cumbión, la lechuza en corto! 🦉🎶
+Pues no sabía.
+[Permalink](https://twitter.com/fernandeznorona/status/1605044824683356160) | 30 Me Gusta | 2 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 19-12-2022 a las 19:36:35
+*****
+No sabía que eran los hermanitos Rigual. El que entendió, entendió.
+[Permalink](https://twitter.com/fernandeznorona/status/1605044464027738112) | 171 Me Gusta | 9 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 19-12-2022 a las 19:35:56
+*****
+RT @jgnaredo: Hoy el gobierno de los Países Bajos ofreció disculpas por el papel que jugó el Estado neerlandés en la esclavitud.
 
 
-\#Animales #RespetoALaVida
-[Permalink](https://twitter.com/fernandeznorona/status/1604996873856512001) | 0 Me Gusta | 11 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 19-12-2022 a las 16:21:59
-*****
-RT @AlMirRey0272: esta foto, ese letrero y esa hermana latinoamericana merecen ser virales.
-[Permalink](https://twitter.com/fernandeznorona/status/1604995493917925376) | 0 Me Gusta | 16 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 19-12-2022 a las 16:21:30
-*****
-Listos para regresar al D.F. desde Tijuana.
-[Permalink](https://twitter.com/fernandeznorona/status/1604995372476235776) | 43 Me Gusta | 3 Retweets
+El gobier…
+[Permalink](https://twitter.com/fernandeznorona/status/1605044301691424768) | 0 Me Gusta | 342 Retweets

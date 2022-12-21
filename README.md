@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-12-2022 a las 15:32:20
+**Fernández Noroña** (**@fernandeznorona**) • 20-12-2022 a las 20:40:39
 *****
-Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1605345387375923200) | 28 Me Gusta | 6 Retweets
+RT @m_ebrard: Me informa Pablo Monroy Embajador en Lima que el Gobierno de Perú le ha fijado 72 hrs para salir del país. Encuentro esa deci…
+[Permalink](https://twitter.com/fernandeznorona/status/1605422976987303937) | 0 Me Gusta | 2,868 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-12-2022 a las 13:40:29
+**Fernández Noroña** (**@fernandeznorona**) • 20-12-2022 a las 20:01:59
 *****
-Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1605317239112097793) | 54 Me Gusta | 13 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1605413245786939392) | 165 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-12-2022 a las 13:39:07
+**Fernández Noroña** (**@fernandeznorona**) • 20-12-2022 a las 19:35:54
 *****
-Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1605316892800999424) | 72 Me Gusta | 17 Retweets
+Me dijo el compañero: hay pintas de X persona -dijo su nombre-. Entonces, decidí pintar mi camión de servicio de transporte público en Mazatlán. Ahí el video. Muy, pero muy agradecido.
+[Permalink](https://twitter.com/fernandeznorona/status/1605406682741456898) | 140 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-12-2022 a las 13:01:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-12-2022 a las 19:33:05
 *****
-De haber sabido hubiese visto que se lo entregaran hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1605307380077826048) | 63 Me Gusta | 11 Retweets
+En Mazatlán, muy agradecido. Pintas de
+[Permalink](https://twitter.com/fernandeznorona/status/1605405970762539008) | 126 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-12-2022 a las 09:41:08
+**Fernández Noroña** (**@fernandeznorona**) • 20-12-2022 a las 17:37:41
 *****
-No.
-[Permalink](https://twitter.com/fernandeznorona/status/1605257004385181714) | 54 Me Gusta | 6 Retweets
+Golpistas, apoyas a los golpistas peruanos porque te ves en el espejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1605376932597886976) | 387 Me Gusta | 98 Retweets

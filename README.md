@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 14:23:36
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 21:01:16
 *****
-“-He decidido remover a Allende- dice Nixon a Kissinger aquella mañana”. Se refiere a una reunión en la oficina Oval el 5 de octubre de 1971.
-[Permalink](https://twitter.com/fernandeznorona/status/1605690475838468097) | 61 Me Gusta | 19 Retweets
+Mientes. Por otro lado, fuiste vocero de un imbécil. Si tuvieras un poco de congruencia, hace mucho que habrías renunciado a la actividad política @RubenAguilar. Por cierto, ahora te la das de periodista. #Farsantes.
+[Permalink](https://twitter.com/fernandeznorona/status/1605790553307631616) | 74 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 14:20:03
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 20:57:56
 *****
-“Todo vale en Chile. Patéenlos en el culo. ¿OK?” Richard Nixon, presidente de Estados Unidos.
-[Permalink](https://twitter.com/fernandeznorona/status/1605689582720208896) | 54 Me Gusta | 11 Retweets
+RT @FreddyOliviery: Desmintieron de nuevo a @CarlosLoret 🤦🏻‍♂️
+[Permalink](https://twitter.com/fernandeznorona/status/1605789712555327489) | 0 Me Gusta | 568 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 13:29:11
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 20:37:41
 *****
-Oye señorito X @ClaudioXGG no seas hipócrita, asume que encabeza la posición golpista en contra de nuestro gobierno. Que deseas ser el Añez, el Carmona, el Guaido, el Boluarte mexicano.
-[Permalink](https://twitter.com/fernandeznorona/status/1605676783637913602) | 62 Me Gusta | 16 Retweets
+RT @ingrucha: Es injerencia cuando México no avala el golpe de Estado en el Perú y le da asilo a la familia de Castillo, pero no es injeren…
+[Permalink](https://twitter.com/fernandeznorona/status/1605784616069103617) | 0 Me Gusta | 174 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 13:25:39
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 20:36:18
 *****
-RT @evoespueblo: Saludamos el acto humanitario del hermano presidente @lopezobrador_ al brindar asilo y salvar la integridad y seguridad de…
-[Permalink](https://twitter.com/fernandeznorona/status/1605675892214226964) | 0 Me Gusta | 736 Retweets
+RT @PedroCastilloTe: Compatriotas: privado arbitrariamente de mis derechos y, ante la visita de la CIDH en el Perú, hago público este comun…
+[Permalink](https://twitter.com/fernandeznorona/status/1605784271330820097) | 0 Me Gusta | 1,253 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 13:25:13
+**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 20:35:14
 *****
-Parece que al gobierno de facto de Perú le molesta que le digan que es un gobierno de facto. ¡Golpistas!
-[Permalink](https://twitter.com/fernandeznorona/status/1605675781975183360) | 58 Me Gusta | 18 Retweets
+RT @Dani_El75: Amigos y compañeros de Twitter, en esta ocasión les pido de favor que apoyemos a levantar la cuenta de nuestra compañera y a…
+[Permalink](https://twitter.com/fernandeznorona/status/1605784002396389376) | 0 Me Gusta | 166 Retweets

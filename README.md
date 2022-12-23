@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2022 a las 09:14:50
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2022 a las 16:33:35
 *****
-RT @duqueupicture: En los sexenios de Felipe Calderón y Enrique Peña Nieto fueron asesinados más de 190 periodistas y no existía la mañaner…
-[Permalink](https://twitter.com/fernandeznorona/status/1605975162528051200) | 0 Me Gusta | 364 Retweets
+@irmoralesl ¡No me digas #MorralesdeLechuga!
+[Permalink](https://twitter.com/fernandeznorona/status/1606085577148813313) | 1 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-12-2022 a las 09:13:56
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2022 a las 16:17:50
 *****
-RT @leonelgodoy: Nuevamente la derecha ataca  a la “ mañanera”. Odian que el presidente tenga un micrófono que le sirva para defender al mo…
-[Permalink](https://twitter.com/fernandeznorona/status/1605974934349418504) | 0 Me Gusta | 216 Retweets
+Parto sin dolor. Ayoooos
+[Permalink](https://twitter.com/fernandeznorona/status/1606081610117312512) | 27 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 21:01:16
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2022 a las 16:04:14
 *****
-Mientes. Por otro lado, fuiste vocero de un imbécil. Si tuvieras un poco de congruencia, hace mucho que habrías renunciado a la actividad política @RubenAguilar. Por cierto, ahora te la das de periodista. #Farsantes.
-[Permalink](https://twitter.com/fernandeznorona/status/1605790553307631616) | 159 Me Gusta | 38 Retweets
+Señorito X @ClaudioXGG, sus intrigas sólo convencen a su cada vez más minoritaria base política.
+[Permalink](https://twitter.com/fernandeznorona/status/1606078191222677504) | 33 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 20:57:56
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2022 a las 16:02:07
 *****
-RT @FreddyOliviery: Desmintieron de nuevo a @CarlosLoret 🤦🏻‍♂️
-[Permalink](https://twitter.com/fernandeznorona/status/1605789712555327489) | 0 Me Gusta | 1,354 Retweets
+Habló el maestro de la ética política, el hombre probó e intachable. El que honra a su padre con una carrera política distinguidísima, si, adivinaron, @RobertoMadrazo_ habló.
+[Permalink](https://twitter.com/fernandeznorona/status/1606077658676072448) | 47 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-12-2022 a las 20:37:41
+**Fernández Noroña** (**@fernandeznorona**) • 22-12-2022 a las 16:00:12
 *****
-RT @ingrucha: Es injerencia cuando México no avala el golpe de Estado en el Perú y le da asilo a la familia de Castillo, pero no es injeren…
-[Permalink](https://twitter.com/fernandeznorona/status/1605784616069103617) | 0 Me Gusta | 263 Retweets
+Farsantes. ¿El artículo lo escribiste tú o te lo escribió el subnormal de @jlozanoa?
+[Permalink](https://twitter.com/fernandeznorona/status/1606077174338883584) | 29 Me Gusta | 11 Retweets

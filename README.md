@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-12-2022 a las 07:35:31
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 02:01:58
 *****
-Aquistoy
-[Permalink](https://twitter.com/fernandeznorona/status/1606312554036428800) | 1,663 Me Gusta | 84 Retweets
+Nunca es tarde, muchas felicitaciones.
+[Permalink](https://twitter.com/fernandeznorona/status/1606591000524181504) | 27 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-12-2022 a las 07:01:11
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 01:58:18
 *****
-RT @jgnaredo: 340 mil pesos recibieron los consejeros del @INEMexico en estos días, sólo de aguinaldo. 
-
-
-En este mes de diciembre se embols…
-[Permalink](https://twitter.com/fernandeznorona/status/1606303914118115328) | 0 Me Gusta | 3,038 Retweets
+RT @PonchoGutz: "¿Por qué los chairos no entienden que existen personas que militan en el PAN, votan por el PAN, defienden al PAN, trabajan…
+[Permalink](https://twitter.com/fernandeznorona/status/1606590079459155968) | 0 Me Gusta | 611 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-12-2022 a las 06:33:43
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 01:56:48
 *****
-Eres un cretino @sergiosarniento, NO tiene nada que ver con el idioma inglés. EEUU se asume como América y es incorrecto.
-[Permalink](https://twitter.com/fernandeznorona/status/1606297000005099520) | 425 Me Gusta | 98 Retweets
+RT @SalazarLuisFer: Gracias amigo y compañero de lucha @aguadiana por considerarme para ser el Coordinador General de Campaña de @PartidoMo…
+[Permalink](https://twitter.com/fernandeznorona/status/1606589703016353794) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-12-2022 a las 05:05:29
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 01:56:08
 *****
-Pues ya me di un baño con agua helada y se me quitó el jet lag.
-[Permalink](https://twitter.com/fernandeznorona/status/1606274799394623489) | 341 Me Gusta | 31 Retweets
+RT @Arman_doCA: Atención por favor
+Ayuda @alfredodelmazo @Ecatepec @HCB_Ecatepec @MujeresEcatepec @Alerta_Ecatepec @PCB_Ecatepec @VialiddEc…
+[Permalink](https://twitter.com/fernandeznorona/status/1606589532861759488) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-12-2022 a las 03:48:33
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 01:55:56
 *****
-@MartaMariaSnch1 @kpitan92 @GloryOropeza @LJyDMX Hecho.
-[Permalink](https://twitter.com/fernandeznorona/status/1606255437237538816) | 4 Me Gusta | 1 Retweets
+RT @NachoMierV: Sin novedad. El Tribunal Electoral pide modificar la convocatoria para elegir a consejeros electorales. No duden que quiere…
+[Permalink](https://twitter.com/fernandeznorona/status/1606589483666767872) | 0 Me Gusta | 684 Retweets

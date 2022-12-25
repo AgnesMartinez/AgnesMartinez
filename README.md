@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 02:01:58
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 13:43:32
 *****
-Nunca es tarde, muchas felicitaciones.
-[Permalink](https://twitter.com/fernandeznorona/status/1606591000524181504) | 74 Me Gusta | 12 Retweets
+Preludio de “Un hombre”, si no lo has leído.
+[Permalink](https://twitter.com/fernandeznorona/status/1606767558882910208) | 26 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 01:58:18
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 13:03:08
 *****
-RT @PonchoGutz: "¿Por qué los chairos no entienden que existen personas que militan en el PAN, votan por el PAN, defienden al PAN, trabajan…
-[Permalink](https://twitter.com/fernandeznorona/status/1606590079459155968) | 0 Me Gusta | 763 Retweets
+Cena del 24 de diciembre.
+[Permalink](https://twitter.com/fernandeznorona/status/1606757388257722375) | 187 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 01:56:48
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 12:40:03
 *****
-RT @SalazarLuisFer: Gracias amigo y compañero de lucha @aguadiana por considerarme para ser el Coordinador General de Campaña de @PartidoMo…
-[Permalink](https://twitter.com/fernandeznorona/status/1606589703016353794) | 0 Me Gusta | 14 Retweets
+RT @Vicente73977721: Muy de acuerdo.
+[Permalink](https://twitter.com/fernandeznorona/status/1606751581533339650) | 0 Me Gusta | 2,004 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 01:56:08
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 12:39:45
 *****
-RT @Arman_doCA: Atención por favor
-Ayuda @alfredodelmazo @Ecatepec @HCB_Ecatepec @MujeresEcatepec @Alerta_Ecatepec @PCB_Ecatepec @VialiddEc…
-[Permalink](https://twitter.com/fernandeznorona/status/1606589532861759488) | 0 Me Gusta | 31 Retweets
+Para la casa, los japoneses tienen un mecanismo para calentarla.
+[Permalink](https://twitter.com/fernandeznorona/status/1606751505175945216) | 30 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 01:55:56
+**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 12:39:10
 *****
-RT @NachoMierV: Sin novedad. El Tribunal Electoral pide modificar la convocatoria para elegir a consejeros electorales. No duden que quiere…
-[Permalink](https://twitter.com/fernandeznorona/status/1606589483666767872) | 0 Me Gusta | 1,015 Retweets
+RT @VictoriaAl100: Hola, apenas llegando jejejejeje excelente día Amig@s 🎄
+[Permalink](https://twitter.com/fernandeznorona/status/1606751359444963329) | 0 Me Gusta | 25 Retweets

@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2022 a las 04:00:08
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2022 a las 14:16:47
 *****
-RT @Edd_Campe: ¡Feliz Navidad a todos! Que pasen una noche hermosa, con sus seres queridos, eso es lo importante, los regalos son realmente…
-[Permalink](https://twitter.com/fernandeznorona/status/1606983125481000961) | 0 Me Gusta | 55 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1607138313969754117) | 40 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-12-2022 a las 03:44:54
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2022 a las 12:43:26
 *****
-RT @bethcastilloo: Qué bonito coincidir con mi querido @fernandeznorona en Moulin Rouge. Siempre es un gustazo saludarlo.
-[Permalink](https://twitter.com/fernandeznorona/status/1606979294391160832) | 0 Me Gusta | 27 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1607114820402167808) | 38 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 17:18:45
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2022 a las 12:42:30
 *****
-RT @SoyNinoCanun:
-[Permalink](https://twitter.com/fernandeznorona/status/1606821716965171205) | 0 Me Gusta | 899 Retweets
+RT @jgnaredo: Ayer el rey se España dio un mensaje a los españoles y al mundo sobre la importancia de la  “democracia” y mostró su preocupa…
+[Permalink](https://twitter.com/fernandeznorona/status/1607114585684979712) | 0 Me Gusta | 1,213 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 17:13:16
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2022 a las 12:40:02
 *****
-¡Geniales los oaxaqueños!
-[Permalink](https://twitter.com/fernandeznorona/status/1606820338930786304) | 143 Me Gusta | 22 Retweets
+RT @David_qva: ¡Francia!, fuertes enfrentamientos luego de un atentado contra ciudadanos Kurdos en el que murieron tres personas; cuando es…
+[Permalink](https://twitter.com/fernandeznorona/status/1607113965284335617) | 0 Me Gusta | 3,889 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-12-2022 a las 17:11:19
+**Fernández Noroña** (**@fernandeznorona**) • 25-12-2022 a las 12:35:40
 *****
-Javier Solís.
-[Permalink](https://twitter.com/fernandeznorona/status/1606819847605739520) | 80 Me Gusta | 8 Retweets
+RT @GreciaSebastiaZ: En esta cena navideña me hicieron hacer un pacto para no hablar de #política. 
+
+
+De todas formas llevará una bufanda de…
+[Permalink](https://twitter.com/fernandeznorona/status/1607112864732532736) | 0 Me Gusta | 45 Retweets

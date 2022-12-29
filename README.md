@@ -1,30 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 13:00:42
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 04:11:10
 *****
-RT @PedroCastilloTe: Por lo tanto, pido el cese al odio y se me deje en libertad por ser mi justo derecho.
-
-
-Pedro Castillo Terrones.
-Prisió…
-[Permalink](https://twitter.com/fernandeznorona/status/1608206330807853063) | 0 Me Gusta | 472 Retweets
+Leyendo.
+[Permalink](https://twitter.com/fernandeznorona/status/1608435456063963136) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 12:53:35
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 04:09:14
 *****
-Son maldosos, que es diferente.
-[Permalink](https://twitter.com/fernandeznorona/status/1608204538581762052) | 68 Me Gusta | 11 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1608434968010653703) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 12:39:06
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 04:07:49
 *****
-4056 en Facebook y, 7809 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1608200892590833672) | 92 Me Gusta | 12 Retweets
+Es un techo.
+[Permalink](https://twitter.com/fernandeznorona/status/1608434614137126916) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 10:47:11
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 04:04:46
 *****
-Ahí @Tu_IMSS
-[Permalink](https://twitter.com/fernandeznorona/status/1608172729743581186) | 31 Me Gusta | 10 Retweets
+Los jardines.
+[Permalink](https://twitter.com/fernandeznorona/status/1608433846353072129) | 10 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 10:10:38
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 04:02:01
 *****
-Los acusó de complicidad, no se adornen.
-[Permalink](https://twitter.com/fernandeznorona/status/1608163529453862913) | 213 Me Gusta | 56 Retweets
+Qué elegancia la de Francia.
+[Permalink](https://twitter.com/fernandeznorona/status/1608433154469011457) | 19 Me Gusta | 1 Retweets

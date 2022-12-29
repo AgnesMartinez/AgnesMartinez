@@ -1,27 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 10:03:26
+**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 13:00:42
 *****
-RT @LJyDMX: Ahora que anda la derecha tan preocupada de que nuestro Diputado se encuentre en París producto de su trabajo y esfuerzo, les r…
-[Permalink](https://twitter.com/fernandeznorona/status/1608161717904711682) | 0 Me Gusta | 11 Retweets
+RT @PedroCastilloTe: Por lo tanto, pido el cese al odio y se me deje en libertad por ser mi justo derecho.
+
+
+Pedro Castillo Terrones.
+Prisió…
+[Permalink](https://twitter.com/fernandeznorona/status/1608206330807853063) | 0 Me Gusta | 330 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 10:00:07
+**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 12:53:35
 *****
-Es un libro espléndido.
-[Permalink](https://twitter.com/fernandeznorona/status/1608160884701929472) | 7 Me Gusta | 3 Retweets
+Son maldosos, que es diferente.
+[Permalink](https://twitter.com/fernandeznorona/status/1608204538581762052) | 52 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 09:57:05
+**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 12:39:06
 *****
-Lo pagó @MiguelTorrucoG, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1608160120948797440) | 12 Me Gusta | 2 Retweets
+4056 en Facebook y, 7809 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1608200892590833672) | 64 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 07:02:14
+**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 10:47:11
 *****
-RT @ndurancoronado: #FilosofandoConChairos
-Zaz!💥
-[Permalink](https://twitter.com/fernandeznorona/status/1608116118450839554) | 0 Me Gusta | 1,329 Retweets
+Ahí @Tu_IMSS
+[Permalink](https://twitter.com/fernandeznorona/status/1608172729743581186) | 29 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 07:01:30
+**Fernández Noroña** (**@fernandeznorona**) • 28-12-2022 a las 10:10:38
 *****
-@ndurancoronado Zas.
-[Permalink](https://twitter.com/fernandeznorona/status/1608115934299914244) | 39 Me Gusta | 4 Retweets
+Los acusó de complicidad, no se adornen.
+[Permalink](https://twitter.com/fernandeznorona/status/1608163529453862913) | 160 Me Gusta | 46 Retweets

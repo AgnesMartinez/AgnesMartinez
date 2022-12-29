@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 04:11:10
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 09:45:32
 *****
-Leyendo.
-[Permalink](https://twitter.com/fernandeznorona/status/1608435456063963136) | 3 Me Gusta | 0 Retweets
+De nuevo la luna.
+[Permalink](https://twitter.com/fernandeznorona/status/1608519601293348865) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 04:09:14
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 09:35:06
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1608434968010653703) | 4 Me Gusta | 0 Retweets
+La luna.
+[Permalink](https://twitter.com/fernandeznorona/status/1608516974799163394) | 22 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 04:07:49
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 09:27:01
 *****
-Es un techo.
-[Permalink](https://twitter.com/fernandeznorona/status/1608434614137126916) | 9 Me Gusta | 0 Retweets
+@MartnBecker Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1608514941857968128) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 04:04:46
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 09:23:43
 *****
-Los jardines.
-[Permalink](https://twitter.com/fernandeznorona/status/1608433846353072129) | 10 Me Gusta | 1 Retweets
+RT @patyarmendarfan: Llevamos 3 días sin agua en Querétaro y el "presidenciable" panista @makugo solo sube fotos y videos navideños.
+
+
+¿Me a…
+[Permalink](https://twitter.com/fernandeznorona/status/1608514110718713858) | 0 Me Gusta | 2,093 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 04:02:01
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 09:11:26
 *****
-Qué elegancia la de Francia.
-[Permalink](https://twitter.com/fernandeznorona/status/1608433154469011457) | 19 Me Gusta | 1 Retweets
+@Fabis97961510 @LJyDMX Conscientes.
+[Permalink](https://twitter.com/fernandeznorona/status/1608511020326334465) | 3 Me Gusta | 0 Retweets

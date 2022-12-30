@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 09:45:32
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 15:14:14
 *****
-De nuevo la luna.
-[Permalink](https://twitter.com/fernandeznorona/status/1608519601293348865) | 20 Me Gusta | 2 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1608602320065163266) | 107 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 09:35:06
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 15:12:35
 *****
-La luna.
-[Permalink](https://twitter.com/fernandeznorona/status/1608516974799163394) | 22 Me Gusta | 2 Retweets
+Me despido lamentando la muerte de Pelé, el más grande futbolista profesional que haya existido sobre la faz de la tierra.
+[Permalink](https://twitter.com/fernandeznorona/status/1608601907899301888) | 139 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 09:27:01
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 14:47:31
 *****
-@MartnBecker Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1608514941857968128) | 0 Me Gusta | 0 Retweets
+RT @HalconOnce: Con el uso exceso de la fuerza, granaderos de @SS_Edomex liberan carriles centrales de la #MexicoQueretaro con dirección al…
+[Permalink](https://twitter.com/fernandeznorona/status/1608595597199814658) | 0 Me Gusta | 155 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 09:23:43
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 14:42:14
 *****
-RT @patyarmendarfan: Llevamos 3 días sin agua en Querétaro y el "presidenciable" panista @makugo solo sube fotos y videos navideños.
-
-
-¿Me a…
-[Permalink](https://twitter.com/fernandeznorona/status/1608514110718713858) | 0 Me Gusta | 2,093 Retweets
+RT @fdbedout: Muchos dicen que no vieron a Pelé, no se preocupen, cuando vemos a los mejores futbolistas de la historia estamos viendo a Pe…
+[Permalink](https://twitter.com/fernandeznorona/status/1608594268066660352) | 0 Me Gusta | 3,517 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 09:11:26
+**Fernández Noroña** (**@fernandeznorona**) • 29-12-2022 a las 13:45:57
 *****
-@Fabis97961510 @LJyDMX Conscientes.
-[Permalink](https://twitter.com/fernandeznorona/status/1608511020326334465) | 3 Me Gusta | 0 Retweets
+RT @epigmenioibarra: Se acaba 2022. Se acaba el 4o año del gobierno de AMLO. Se acaban también las esperanzas de una oposición que, para es…
+[Permalink](https://twitter.com/fernandeznorona/status/1608580105164713984) | 0 Me Gusta | 1,133 Retweets

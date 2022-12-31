@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 14:02:22
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 03:37:16
 *****
-RT @GabrielaRubioEs: Oigan, pero, esto no es digno para que se desgarren las vestiduras ¿verdad?
-[Permalink](https://twitter.com/fernandeznorona/status/1608946621857030145) | 0 Me Gusta | 527 Retweets
+RT @AnibalGarzon: Bolsonaro ha abandonado Brasil en un avión de la Fuerza Aérea rumbo a EE.UU, justo 2 días antes de finalizar su presidenc…
+[Permalink](https://twitter.com/fernandeznorona/status/1609151701600141314) | 0 Me Gusta | 4,382 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 13:58:37
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 03:36:27
 *****
-RT @eltemaguillev: No sé si Biden vaya a terminar aterrizando en el AIFA o en el AICM, pero saben dónde no va a aterrizar jamás ningún mand…
-[Permalink](https://twitter.com/fernandeznorona/status/1608945680265146368) | 0 Me Gusta | 1,480 Retweets
+Curioso que la derecha pretenda olvidar que José Ratzinger fue depuesto y ahora le digan papa emérito. Esto no había pasado en siglos.
+[Permalink](https://twitter.com/fernandeznorona/status/1609151495974391808) | 19 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 13:56:14
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 03:35:25
 *****
-C’est de la crotte.
-[Permalink](https://twitter.com/fernandeznorona/status/1608945081331122176) | 30 Me Gusta | 1 Retweets
+El papa depuesto. Leoncito. @LeonKrauze.
+[Permalink](https://twitter.com/fernandeznorona/status/1609151232848928772) | 10 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 12:47:21
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 03:28:04
 *****
-Se llamaba Jorge Claudio López el hombre que atropellaron. Ciertamente, vendía tamales.
-[Permalink](https://twitter.com/fernandeznorona/status/1608927743475068928) | 202 Me Gusta | 88 Retweets
+El papa depuesto.
+[Permalink](https://twitter.com/fernandeznorona/status/1609149383353982982) | 10 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 12:19:18
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 03:23:10
 *****
-Ahí te hablan Georgie Boy @jorgeramosnews.
-[Permalink](https://twitter.com/fernandeznorona/status/1608920687993061376) | 750 Me Gusta | 304 Retweets
+RT @bbcmundo: La policía de Bolivia detiene al gobernador Luis Camacho, líder de la oposición, por presunto golpe de Estado en 2019 https:/…
+[Permalink](https://twitter.com/fernandeznorona/status/1609148153047187456) | 0 Me Gusta | 40 Retweets

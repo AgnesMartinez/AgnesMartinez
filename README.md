@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 08:02:16
+**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 14:02:22
 *****
-Xacto. Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1608856002526609414) | 36 Me Gusta | 8 Retweets
+RT @GabrielaRubioEs: Oigan, pero, esto no es digno para que se desgarren las vestiduras ¿verdad?
+[Permalink](https://twitter.com/fernandeznorona/status/1608946621857030145) | 0 Me Gusta | 440 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 06:22:44
+**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 13:58:37
 *****
-Noroña dando su discurso en su toma de protesta. Bueno no, es Mirabeau.
-[Permalink](https://twitter.com/fernandeznorona/status/1608830951647215617) | 106 Me Gusta | 11 Retweets
+RT @eltemaguillev: No sé si Biden vaya a terminar aterrizando en el AIFA o en el AICM, pero saben dónde no va a aterrizar jamás ningún mand…
+[Permalink](https://twitter.com/fernandeznorona/status/1608945680265146368) | 0 Me Gusta | 1,431 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 06:20:30
+**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 13:56:14
 *****
-Delacroix.
-[Permalink](https://twitter.com/fernandeznorona/status/1608830390105509890) | 72 Me Gusta | 8 Retweets
+C’est de la crotte.
+[Permalink](https://twitter.com/fernandeznorona/status/1608945081331122176) | 14 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 06:20:14
+**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 12:47:21
 *****
-Delacroix.
-[Permalink](https://twitter.com/fernandeznorona/status/1608830322803613698) | 88 Me Gusta | 9 Retweets
+Se llamaba Jorge Claudio López el hombre que atropellaron. Ciertamente, vendía tamales.
+[Permalink](https://twitter.com/fernandeznorona/status/1608927743475068928) | 92 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 05:28:28
+**Fernández Noroña** (**@fernandeznorona**) • 30-12-2022 a las 12:19:18
 *****
-Leyendo.
-[Permalink](https://twitter.com/fernandeznorona/status/1608817297841438720) | 516 Me Gusta | 45 Retweets
+Ahí te hablan Georgie Boy @jorgeramosnews.
+[Permalink](https://twitter.com/fernandeznorona/status/1608920687993061376) | 260 Me Gusta | 99 Retweets

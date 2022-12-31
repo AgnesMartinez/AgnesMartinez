@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 03:37:16
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 10:02:40
 *****
-RT @AnibalGarzon: Bolsonaro ha abandonado Brasil en un avión de la Fuerza Aérea rumbo a EE.UU, justo 2 días antes de finalizar su presidenc…
-[Permalink](https://twitter.com/fernandeznorona/status/1609151701600141314) | 0 Me Gusta | 4,382 Retweets
+Veo que el término formal que usaron en la salida de José Ratzinger fue que renunciaba al papado. Es un eufemismo y es cierto, que le dieron una figura de papa emérito. Corrijo la formalidad hipótesis de que fue depuesto. El primero en renunciar desde el siglo XV.
+[Permalink](https://twitter.com/fernandeznorona/status/1609248687577767937) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 03:36:27
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 09:56:28
 *****
-Curioso que la derecha pretenda olvidar que José Ratzinger fue depuesto y ahora le digan papa emérito. Esto no había pasado en siglos.
-[Permalink](https://twitter.com/fernandeznorona/status/1609151495974391808) | 19 Me Gusta | 2 Retweets
+¿Por qué renunció el papa Benedicto XVI en 2013?  Avísenle al Dr. Chapatín ⁦@JesusMartinMx⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1609247127246340097) | 16 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 03:35:25
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 09:52:51
 *****
-El papa depuesto. Leoncito. @LeonKrauze.
-[Permalink](https://twitter.com/fernandeznorona/status/1609151232848928772) | 10 Me Gusta | 0 Retweets
+Fue depuesto. ¿Me explicas por cuál razón no siguió ejerciendo?
+[Permalink](https://twitter.com/fernandeznorona/status/1609246218303180802) | 12 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 03:28:04
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 07:24:16
 *****
-El papa depuesto.
-[Permalink](https://twitter.com/fernandeznorona/status/1609149383353982982) | 10 Me Gusta | 1 Retweets
+La Bastilla.
+[Permalink](https://twitter.com/fernandeznorona/status/1609208826330218497) | 56 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 03:23:10
+**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 05:57:55
 *****
-RT @bbcmundo: La policía de Bolivia detiene al gobernador Luis Camacho, líder de la oposición, por presunto golpe de Estado en 2019 https:/…
-[Permalink](https://twitter.com/fernandeznorona/status/1609148153047187456) | 0 Me Gusta | 40 Retweets
+¡Qué poco empáticos y centaveros en @PdelTepozteco!
+[Permalink](https://twitter.com/fernandeznorona/status/1609187097474105344) | 28 Me Gusta | 11 Retweets

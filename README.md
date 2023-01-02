@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 15:33:36
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 09:09:28
 *****
-RT @abrahamendieta: Hace 8 horas hubo un motín en Ciudad Juárez, en una cárcel estatal, con varios muertos. 
-
-
-Nuevamente, GN y SEDENA tuvie…
-[Permalink](https://twitter.com/fernandeznorona/status/1609694357359042560) | 0 Me Gusta | 1,738 Retweets
+Llegamos a Barcelona. Comentaré lo que me toca el nervio en esta nueva etapa de viajero.
+[Permalink](https://twitter.com/fernandeznorona/status/1609960077384994819) | 54 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 15:32:01
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 07:07:59
 *****
-No te preguntas nada. Intrigas. Habla de las virtudes de la persona a la que apoyas y promueve la unidad en vez de intrigar.
-[Permalink](https://twitter.com/fernandeznorona/status/1609693960162934784) | 82 Me Gusta | 20 Retweets
+La investigación está en curso doctor Chapatín @JesusMartinMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1609929503194681344) | 68 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 15:29:28
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 06:05:00
 *****
-RT @LEGonzalezSoto: No debemos decir: "es Claudia, es Marcelo, es Gerardo, es Adán...". Debemos decir: "es la 4T", y la silueta nos debe co…
-[Permalink](https://twitter.com/fernandeznorona/status/1609693318862016512) | 0 Me Gusta | 159 Retweets
+Seré curioso: ¿qué es “entregista” (sic)?
+[Permalink](https://twitter.com/fernandeznorona/status/1609913652936675335) | 48 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 15:27:53
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 06:03:54
 *****
-Te preguntas porque no comprendes nada. De entrada no odiamos, pero si combatimos la desigualdad, la injusticia social, el hambre, la desesperanza, el empobrecimiento de nuestros pueblos. Tú te haz de creer oligarca y debes ser un modesto asalariado.
-[Permalink](https://twitter.com/fernandeznorona/status/1609692919404838912) | 172 Me Gusta | 31 Retweets
+@soyirenelevy @YasminEsquivel_ @SCJN Descalificaciones.
+[Permalink](https://twitter.com/fernandeznorona/status/1609913376351653890) | 32 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 14:57:15
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 05:46:15
 *****
-Corrijo, la reunión de la JUCOPO será mañana a las cinco de la tarde.
-[Permalink](https://twitter.com/fernandeznorona/status/1609685209485541378) | 145 Me Gusta | 16 Retweets
+@julchavez1 ¡Uy!
+[Permalink](https://twitter.com/fernandeznorona/status/1609908935800291330) | 22 Me Gusta | 0 Retweets

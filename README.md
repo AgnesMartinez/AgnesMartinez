@@ -1,27 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 07:55:24
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 15:33:36
 *****
-Picasso.
-[Permalink](https://twitter.com/fernandeznorona/status/1609579047130103809) | 90 Me Gusta | 10 Retweets
+RT @abrahamendieta: Hace 8 horas hubo un motín en Ciudad Juárez, en una cárcel estatal, con varios muertos. 
+
+
+Nuevamente, GN y SEDENA tuvie…
+[Permalink](https://twitter.com/fernandeznorona/status/1609694357359042560) | 0 Me Gusta | 535 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 04:06:57
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 15:32:01
 *****
-@alekstwitts @ojeda100 @article19org @EnriqueKrauze @EPN Llaga.
-[Permalink](https://twitter.com/fernandeznorona/status/1609521559546241025) | 46 Me Gusta | 2 Retweets
+No te preguntas nada. Intrigas. Habla de las virtudes de la persona a la que apoyas y promueve la unidad en vez de intrigar.
+[Permalink](https://twitter.com/fernandeznorona/status/1609693960162934784) | 31 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 02:28:40
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 15:29:28
 *****
-Venezuela nunca fue la quinta economía del mundo, no seas farsante. Por otra parte, olvidas el pequeño detalle del bloqueo y el saqueo que hicieron usando al hoy defenestrado @jguaido.
-[Permalink](https://twitter.com/fernandeznorona/status/1609496823495905280) | 184 Me Gusta | 42 Retweets
+RT @LEGonzalezSoto: No debemos decir: "es Claudia, es Marcelo, es Gerardo, es Adán...". Debemos decir: "es la 4T", y la silueta nos debe co…
+[Permalink](https://twitter.com/fernandeznorona/status/1609693318862016512) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 15:50:28
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 15:27:53
 *****
-Tú opinión es intrascendente. Un tipo sin consistencia que escribe un libelo sobre Ricardo Flores Magón; que ni siquiera sabe que a los hermanos Aquiles Serdán los mataron el 19 de noviembre.
-[Permalink](https://twitter.com/fernandeznorona/status/1609336216452833281) | 151 Me Gusta | 36 Retweets
+Te preguntas porque no comprendes nada. De entrada no odiamos, pero si combatimos la desigualdad, la injusticia social, el hambre, la desesperanza, el empobrecimiento de nuestros pueblos. Tú te haz de creer oligarca y debes ser un modesto asalariado.
+[Permalink](https://twitter.com/fernandeznorona/status/1609692919404838912) | 47 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-12-2022 a las 15:46:37
+**Fernández Noroña** (**@fernandeznorona**) • 01-01-2023 a las 14:57:15
 *****
-RT @papa_luchonn: Primer acto: @MeyerFalcon @SEDATU_mx construye un andador turístico en Bacalar.
-Segundo acto: el municipio de Bacalar lo…
-[Permalink](https://twitter.com/fernandeznorona/status/1609335246960619520) | 0 Me Gusta | 246 Retweets
+Corrijo, la reunión de la JUCOPO será mañana a las cinco de la tarde.
+[Permalink](https://twitter.com/fernandeznorona/status/1609685209485541378) | 57 Me Gusta | 9 Retweets

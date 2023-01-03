@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 09:09:28
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 13:05:14
 *****
-Llegamos a Barcelona. Comentaré lo que me toca el nervio en esta nueva etapa de viajero.
-[Permalink](https://twitter.com/fernandeznorona/status/1609960077384994819) | 54 Me Gusta | 4 Retweets
+Abrazote camarada y amigo.
+[Permalink](https://twitter.com/fernandeznorona/status/1610019407383695360) | 38 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 07:07:59
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 13:03:57
 *****
-La investigación está en curso doctor Chapatín @JesusMartinMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1609929503194681344) | 68 Me Gusta | 12 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1610019085747625993) | 22 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 06:05:00
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 13:02:56
 *****
-Seré curioso: ¿qué es “entregista” (sic)?
-[Permalink](https://twitter.com/fernandeznorona/status/1609913652936675335) | 48 Me Gusta | 6 Retweets
+Ya lo llevo.
+[Permalink](https://twitter.com/fernandeznorona/status/1610018830297833473) | 24 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 06:03:54
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 13:02:15
 *****
-@soyirenelevy @YasminEsquivel_ @SCJN Descalificaciones.
-[Permalink](https://twitter.com/fernandeznorona/status/1609913376351653890) | 32 Me Gusta | 2 Retweets
+Estoy feliz, yo con libros soy muy feliz. Bueno, y con chocolates, que aquí hay muy buenos.
+[Permalink](https://twitter.com/fernandeznorona/status/1610018660327849985) | 130 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 05:46:15
+**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 12:30:15
 *****
-@julchavez1 ¡Uy!
-[Permalink](https://twitter.com/fernandeznorona/status/1609908935800291330) | 22 Me Gusta | 0 Retweets
+“De 1976 a 1982, Argentina expió una dictadura militar que resecó una generación. A su término, en el registro civil faltarían unas 40,000 personas, casi todas, sin una tumba”. Erri de Luca. Eso es dictadura, partida de cretinos.
+[Permalink](https://twitter.com/fernandeznorona/status/1610010605376643073) | 72 Me Gusta | 22 Retweets

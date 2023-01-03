@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 13:05:14
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2023 a las 03:39:14
 *****
-Abrazote camarada y amigo.
-[Permalink](https://twitter.com/fernandeznorona/status/1610019407383695360) | 56 Me Gusta | 6 Retweets
+…y la ponen a prueba lentamente”.
+[Permalink](https://twitter.com/fernandeznorona/status/1610239357868453890) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 13:03:57
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2023 a las 03:39:12
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1610019085747625993) | 33 Me Gusta | 5 Retweets
+“Y 20 años después es todo un director. Por suerte, pero hay suertes que cogen del brazo al primero con el que se topan, suertes putas que te dejan plantado enseguida y se van con el siguiente, y hay fortunas sabia en cambio, que escrutan a una persona y la ponen a prueba lenta…
+[Permalink](https://twitter.com/fernandeznorona/status/1610239349865734144) | 11 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 13:02:56
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2023 a las 03:34:00
 *****
-Ya lo llevo.
-[Permalink](https://twitter.com/fernandeznorona/status/1610018830297833473) | 38 Me Gusta | 2 Retweets
+Basura. Lo restante, sobra.
+[Permalink](https://twitter.com/fernandeznorona/status/1610238039808413696) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 13:02:15
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2023 a las 03:31:02
 *****
-Estoy feliz, yo con libros soy muy feliz. Bueno, y con chocolates, que aquí hay muy buenos.
-[Permalink](https://twitter.com/fernandeznorona/status/1610018660327849985) | 256 Me Gusta | 22 Retweets
+Felicidades, yo cumpliré 63. Yo sabrás si pasa el tiempo.
+[Permalink](https://twitter.com/fernandeznorona/status/1610237294589480961) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-01-2023 a las 12:30:15
+**Fernández Noroña** (**@fernandeznorona**) • 03-01-2023 a las 03:08:09
 *****
-“De 1976 a 1982, Argentina expió una dictadura militar que resecó una generación. A su término, en el registro civil faltarían unas 40,000 personas, casi todas, sin una tumba”. Erri de Luca. Eso es dictadura, partida de cretinos.
-[Permalink](https://twitter.com/fernandeznorona/status/1610010605376643073) | 109 Me Gusta | 29 Retweets
+“Para llenar una habitación basta con una cafetera en el fuego”. Erra de Luca.
+[Permalink](https://twitter.com/fernandeznorona/status/1610231535180849158) | 9 Me Gusta | 2 Retweets

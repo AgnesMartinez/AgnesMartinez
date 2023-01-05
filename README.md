@@ -1,30 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2023 a las 03:31:52
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2023 a las 09:01:12
 *****
-Me encontré una joya.
-[Permalink](https://twitter.com/fernandeznorona/status/1610962279717081088) | 16 Me Gusta | 1 Retweets
+“Sí me interesa la política es porque no le temo a la muerte ni a la cárcel”. Ho Chi Minh citado por Joseph Andras.
+[Permalink](https://twitter.com/fernandeznorona/status/1611045159302463504) | 26 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 15:47:15
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2023 a las 08:58:48
 *****
-RT @polimniaromana: Se quejan porque “los ambulantes” no pagan impuestos pero traen #PlacasDeMorelos 🌺
-[Permalink](https://twitter.com/fernandeznorona/status/1610784956787179521) | 0 Me Gusta | 15 Retweets
+‘Un rebelde es un rebelde’. Un poeta ¿Qué poeta?
+[Permalink](https://twitter.com/fernandeznorona/status/1611044557340147718) | 14 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 15:43:52
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2023 a las 08:57:27
 *****
-RT @Agenda2030_: Autobuses eléctricos con generador diesel para salvar el planeta.
-[Permalink](https://twitter.com/fernandeznorona/status/1610784108128489472) | 0 Me Gusta | 2,003 Retweets
+“¿No todos somos revolucionarios, socialistas y comunistas por igual? ¿No es más importante la unidad que la controversia?” Citado por Joseph Andrad. No se lo enseñen a @chicchillon.
+[Permalink](https://twitter.com/fernandeznorona/status/1611044215743516672) | 25 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 15:42:17
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2023 a las 08:48:58
 *****
-RT @unadiana: Qué tristeza esta nota:
-
-
-1.- @Grupo_Xcaret paga 0.2% de sus ganancias por la explotación y manejo de una zona arqueológica 
-2…
-[Permalink](https://twitter.com/fernandeznorona/status/1610783707572436993) | 0 Me Gusta | 1,032 Retweets
+Les vamos a ganar de calle, chayote feroz @rivapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1611042079802523656) | 72 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 15:40:59
+**Fernández Noroña** (**@fernandeznorona**) • 05-01-2023 a las 08:44:10
 *****
-Todavía no era una dictadura y ya masacraba al pueblo español Francisco Franco. Esta placa está en la plaza San Felipe Neri, en Barcelona. Casi medio centenar de muertos, la mayoría niños.
-[Permalink](https://twitter.com/fernandeznorona/status/1610783382211796992) | 94 Me Gusta | 23 Retweets
+Me parece que el comentario fue desafortunado. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1611040872975433735) | 20 Me Gusta | 0 Retweets

@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 08:30:49
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 15:47:15
 *****
-Ayer, la luna.
-[Permalink](https://twitter.com/fernandeznorona/status/1610675126751617024) | 45 Me Gusta | 7 Retweets
+RT @polimniaromana: Se quejan porque “los ambulantes” no pagan impuestos pero traen #PlacasDeMorelos 🌺
+[Permalink](https://twitter.com/fernandeznorona/status/1610784956787179521) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 08:30:29
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 15:43:52
 *****
-Aquí había un lugar de postres espléndido, desapareció.
-[Permalink](https://twitter.com/fernandeznorona/status/1610675040114155521) | 22 Me Gusta | 4 Retweets
+RT @Agenda2030_: Autobuses eléctricos con generador diesel para salvar el planeta.
+[Permalink](https://twitter.com/fernandeznorona/status/1610784108128489472) | 0 Me Gusta | 1,426 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 08:29:43
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 15:42:17
 *****
-En un bar, en Barcelona.
-[Permalink](https://twitter.com/fernandeznorona/status/1610674850229620737) | 23 Me Gusta | 3 Retweets
+RT @unadiana: Qué tristeza esta nota:
+
+
+1.- @Grupo_Xcaret paga 0.2% de sus ganancias por la explotación y manejo de una zona arqueológica 
+2…
+[Permalink](https://twitter.com/fernandeznorona/status/1610783707572436993) | 0 Me Gusta | 938 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 08:29:16
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 15:40:59
 *****
-Lo terminé. Muy bonito libro.
-[Permalink](https://twitter.com/fernandeznorona/status/1610674736165523456) | 41 Me Gusta | 6 Retweets
+Todavía no era una dictadura y ya masacraba al pueblo español Francisco Franco. Esta placa está en la plaza San Felipe Neri, en Barcelona. Casi medio centenar de muertos, la mayoría niños.
+[Permalink](https://twitter.com/fernandeznorona/status/1610783382211796992) | 36 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 02:38:09
+**Fernández Noroña** (**@fernandeznorona**) • 04-01-2023 a las 15:37:35
 *****
-Ay Dr. Chapatín @JesusMartinMx, con que cosas tan ridículas se sienten triunfantes.
-[Permalink](https://twitter.com/fernandeznorona/status/1610586373270175748) | 117 Me Gusta | 17 Retweets
+Es de Reyes. Ciertamente se come en casa, la noche del 5 y en las oficinas, se desayuna el 6.
+[Permalink](https://twitter.com/fernandeznorona/status/1610782525332365312) | 20 Me Gusta | 5 Retweets

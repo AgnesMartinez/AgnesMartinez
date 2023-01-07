@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-01-2023 a las 01:01:47
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2023 a las 13:55:16
 *****
-“Vale más ser culo de mal asiento que una cena familiar”. Joseph Andras.
-[Permalink](https://twitter.com/fernandeznorona/status/1611286897996828672) | 53 Me Gusta | 4 Retweets
+10,121 en Facebook y, 11,094 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1611481552235515928) | 46 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2023 a las 14:53:09
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2023 a las 11:12:38
 *****
-El Dr. Chapatín cree que le tira línea a @POTUS y a @JustinTrudeau. Ya enloqueció @JesusMartinMx. ¡Pobre!
-[Permalink](https://twitter.com/fernandeznorona/status/1611133732684972034) | 97 Me Gusta | 25 Retweets
+Noviembre de 2018. Y luego dicen que no soy congruente.
+[Permalink](https://twitter.com/fernandeznorona/status/1611440623315464192) | 107 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2023 a las 14:24:45
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2023 a las 10:44:55
 *****
-RT @Cejismundo: aparte de ser hijo de colosio y yerno de garcia luna ¿que otras "grandes cualidades" tiene el hijo de colosio para ser cand…
-[Permalink](https://twitter.com/fernandeznorona/status/1611126584152395777) | 0 Me Gusta | 201 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1611433649970499584) | 26 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2023 a las 14:24:27
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2023 a las 10:25:15
 *****
-RT @callodehacha: El dólar por debajo de los 20 pesos.
-Ovidio Guzmán capturado.
-Popularidad de 70 puntos, el segundo presidente más querido…
-[Permalink](https://twitter.com/fernandeznorona/status/1611126508151521281) | 0 Me Gusta | 3,631 Retweets
+Dr. Chapatín, eres patético. ¿Te pagan por tan deleznable papel o ese es el tamaño de tu calidad humana?
+[Permalink](https://twitter.com/fernandeznorona/status/1611428699903037441) | 362 Me Gusta | 59 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-01-2023 a las 14:23:48
+**Fernández Noroña** (**@fernandeznorona**) • 06-01-2023 a las 10:21:41
 *****
-Ilústranos cómo debió ser. En una de esas y te conviertes en el candidato presidencial de la derecha Loretito. @CarlosLoret #elimplacable.
-[Permalink](https://twitter.com/fernandeznorona/status/1611126343365808128) | 1,099 Me Gusta | 229 Retweets
+@alexandra_axk Nazca.
+[Permalink](https://twitter.com/fernandeznorona/status/1611427799956393998) | 16 Me Gusta | 1 Retweets

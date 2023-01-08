@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2023 a las 14:58:38
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 03:10:59
 *****
-¿Quién dice que no se hará nada, gaznápiro?
-[Permalink](https://twitter.com/fernandeznorona/status/1611859884479225856) | 305 Me Gusta | 69 Retweets
+RT @BetoMeVa: Yo apoyo al canciller @m_ebrard y me encantaría que fuera el candidato a la presidencia; sin embargo, eso no me da derecho a…
+[Permalink](https://twitter.com/fernandeznorona/status/1612044187335000064) | 0 Me Gusta | 87 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2023 a las 11:23:10
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 03:07:42
 *****
-Llamo a la unidad del movimiento y a guardar un respetuoso silencio frente al dolor de las víctimas del accidente del metro. No se apoya a nadie siendo insensibles con la tragedia.
-[Permalink](https://twitter.com/fernandeznorona/status/1611805662287200257) | 2,850 Me Gusta | 578 Retweets
+Pinochet, Franco, Videla, Mussolini, Hitler. O al buena ondita de @JustinTrudeau o a Ángela Merkel. Ah, claro, a @BukeleNayip. Este último, hasta algunos mareados del movimiento lo admiran.
+[Permalink](https://twitter.com/fernandeznorona/status/1612043362990784512) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2023 a las 11:18:50
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 03:04:23
 *****
-Lamento profundamente el accidente en la línea 3 del metro. Mi solidaridad con familiares y amigos de las víctimas, especialmente de la persona fallecida.
-[Permalink](https://twitter.com/fernandeznorona/status/1611804570753048576) | 679 Me Gusta | 125 Retweets
+¡En Morelia informando a los morelenses! ¿Andaban de vacaciones los morelenses por Michoacán?
+[Permalink](https://twitter.com/fernandeznorona/status/1612042529473703936) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2023 a las 01:36:47
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 03:03:03
 *****
-Desde mentalmente, urge revolucionarla.
-[Permalink](https://twitter.com/fernandeznorona/status/1611658093653364737) | 58 Me Gusta | 9 Retweets
+@PumaChairo Zafar.
+[Permalink](https://twitter.com/fernandeznorona/status/1612042193669177344) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-01-2023 a las 01:26:39
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 03:01:41
 *****
-¡Arde gaznápiro! Nunca has gastado una letra en los 8000 trabajadores despedidos y los miles de jubilados que se quedaron de la noche a la mañana sin nada. ¡Miserable!
-[Permalink](https://twitter.com/fernandeznorona/status/1611655544485412866) | 1,568 Me Gusta | 435 Retweets
+@abdelhakimro @Olga7Ler @hdemauleon Aprehensión.
+[Permalink](https://twitter.com/fernandeznorona/status/1612041846150111233) | 2 Me Gusta | 0 Retweets

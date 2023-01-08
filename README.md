@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 03:10:59
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 09:53:13
 *****
-RT @BetoMeVa: Yo apoyo al canciller @m_ebrard y me encantaría que fuera el candidato a la presidencia; sin embargo, eso no me da derecho a…
-[Permalink](https://twitter.com/fernandeznorona/status/1612044187335000064) | 0 Me Gusta | 87 Retweets
+¿En qué ciudad está?
+[Permalink](https://twitter.com/fernandeznorona/status/1612145415431901184) | 15 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 03:07:42
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 09:28:08
 *****
-Pinochet, Franco, Videla, Mussolini, Hitler. O al buena ondita de @JustinTrudeau o a Ángela Merkel. Ah, claro, a @BukeleNayip. Este último, hasta algunos mareados del movimiento lo admiran.
-[Permalink](https://twitter.com/fernandeznorona/status/1612043362990784512) | 15 Me Gusta | 1 Retweets
+¿Alguien podría informarme quién es este pendejo?
+[Permalink](https://twitter.com/fernandeznorona/status/1612139103226679298) | 52 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 03:04:23
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 09:22:40
 *****
-¡En Morelia informando a los morelenses! ¿Andaban de vacaciones los morelenses por Michoacán?
-[Permalink](https://twitter.com/fernandeznorona/status/1612042529473703936) | 8 Me Gusta | 0 Retweets
+Ahí vivo, a un lado.
+[Permalink](https://twitter.com/fernandeznorona/status/1612137724550471681) | 21 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 03:03:03
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 06:56:59
 *****
-@PumaChairo Zafar.
-[Permalink](https://twitter.com/fernandeznorona/status/1612042193669177344) | 6 Me Gusta | 0 Retweets
+@balles72 @sabinaberman Calumniar.
+[Permalink](https://twitter.com/fernandeznorona/status/1612101061371695107) | 23 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 03:01:41
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 05:57:08
 *****
-@abdelhakimro @Olga7Ler @hdemauleon Aprehensión.
-[Permalink](https://twitter.com/fernandeznorona/status/1612041846150111233) | 2 Me Gusta | 0 Retweets
+A ti te gustaba que se robaran el dinero del pueblo Dr. Chapatín @JesusMartinMx, hoy el dinero del pueblo, regresa al pueblo.
+[Permalink](https://twitter.com/fernandeznorona/status/1612086001651929088) | 152 Me Gusta | 41 Retweets

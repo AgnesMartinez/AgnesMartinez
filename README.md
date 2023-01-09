@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 02:39:00
+**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 09:48:14
 *****
-RT @DamianAIcazar: La llegada de uno de los hombres más poderosos del mundo al AIFA, deja en evidencia todas las mentiras que dicen sobre e…
-[Permalink](https://twitter.com/fernandeznorona/status/1612398527765794817) | 0 Me Gusta | 2,430 Retweets
+RT @alexandra_axk: ♥️♥️♥️♥️♥️♥️♥️♥️♥️♥️♥️♥️♥️
+[Permalink](https://twitter.com/fernandeznorona/status/1612506547565002753) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 01:43:43
+**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 09:44:07
 *****
-“Si tienes paciencia hoy, mañana todo irá mejor”. Kallifatides sostiene que lo dijo Teócrito 250 años a. C.
-[Permalink](https://twitter.com/fernandeznorona/status/1612384616052031488) | 26 Me Gusta | 6 Retweets
+Sin comentarios.
+[Permalink](https://twitter.com/fernandeznorona/status/1612505511156453394) | 24 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 14:01:59
+**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 09:38:01
 *****
-También acabo de terminar el primer tomo de “La guerra y la paz”, espléndido.
-[Permalink](https://twitter.com/fernandeznorona/status/1612208018459860993) | 145 Me Gusta | 13 Retweets
+Cantinflas alias @lorenzocordovav.
+[Permalink](https://twitter.com/fernandeznorona/status/1612503974837424148) | 27 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 14:00:50
+**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 09:30:42
 *****
-Lo terminé, es muy bueno. Ampliamente recomendable.
-[Permalink](https://twitter.com/fernandeznorona/status/1612207727446458369) | 60 Me Gusta | 12 Retweets
+RT @lopezobrador_: Reprobable y antidemocrático el intento golpista de los conservadores de Brasil azuzados por la cúpula del poder oligárq…
+[Permalink](https://twitter.com/fernandeznorona/status/1612502133537996800) | 0 Me Gusta | 9,757 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 13:13:45
+**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 07:19:38
 *****
-RT @SantiagoCafiero: Frente a las acciones golpistas de la derecha en Brasil, manifestamos nuestra solidaridad con @LulaOficial y alzamos l…
-[Permalink](https://twitter.com/fernandeznorona/status/1612195877698916353) | 0 Me Gusta | 1,905 Retweets
+RT @LouisSvarg: Reporta Loret que el hidroavión del presidente Biden acaba de acuatizar en el aeropuerto de Texcoco.
+
+
+Afirma que será trasl…
+[Permalink](https://twitter.com/fernandeznorona/status/1612469151812952065) | 0 Me Gusta | 168 Retweets

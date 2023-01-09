@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 09:53:13
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 14:01:59
 *****
-¿En qué ciudad está?
-[Permalink](https://twitter.com/fernandeznorona/status/1612145415431901184) | 15 Me Gusta | 1 Retweets
+También acabo de terminar el primer tomo de “La guerra y la paz”, espléndido.
+[Permalink](https://twitter.com/fernandeznorona/status/1612208018459860993) | 68 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 09:28:08
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 14:00:50
 *****
-¿Alguien podría informarme quién es este pendejo?
-[Permalink](https://twitter.com/fernandeznorona/status/1612139103226679298) | 52 Me Gusta | 5 Retweets
+Lo terminé, es muy bueno. Ampliamente recomendable.
+[Permalink](https://twitter.com/fernandeznorona/status/1612207727446458369) | 37 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 09:22:40
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 13:13:45
 *****
-Ahí vivo, a un lado.
-[Permalink](https://twitter.com/fernandeznorona/status/1612137724550471681) | 21 Me Gusta | 5 Retweets
+RT @SantiagoCafiero: Frente a las acciones golpistas de la derecha en Brasil, manifestamos nuestra solidaridad con @LulaOficial y alzamos l…
+[Permalink](https://twitter.com/fernandeznorona/status/1612195877698916353) | 0 Me Gusta | 1,388 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 06:56:59
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 13:13:01
 *****
-@balles72 @sabinaberman Calumniar.
-[Permalink](https://twitter.com/fernandeznorona/status/1612101061371695107) | 23 Me Gusta | 0 Retweets
+RT @evoespueblo: Hacemos un llamado a que la comunidad internacional, los organismos multilaterales y gobiernos democráticos formen un solo…
+[Permalink](https://twitter.com/fernandeznorona/status/1612195692943900672) | 0 Me Gusta | 3,043 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 05:57:08
+**Fernández Noroña** (**@fernandeznorona**) • 08-01-2023 a las 13:12:05
 *****
-A ti te gustaba que se robaran el dinero del pueblo Dr. Chapatín @JesusMartinMx, hoy el dinero del pueblo, regresa al pueblo.
-[Permalink](https://twitter.com/fernandeznorona/status/1612086001651929088) | 152 Me Gusta | 41 Retweets
+RT @alfreserramanci: 🇭🇳 Golpe a Zelaya 2009
+🇪🇨 Intento Golpe a Correa 2010 (Proscrito 2020)
+🇵🇾 Golpe a Lugo 2012
+🇧🇷 Destituyen Dilma 2017 E…
+[Permalink](https://twitter.com/fernandeznorona/status/1612195461795823620) | 0 Me Gusta | 3,399 Retweets

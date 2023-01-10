@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 16:33:41
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 01:45:33
 *****
-1782 en Facebook y, 5336 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1612608583547629568) | 76 Me Gusta | 9 Retweets
+Agenda para esta semana.
+[Permalink](https://twitter.com/fernandeznorona/status/1612747463755972610) | 16 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 13:17:16
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 01:36:24
 *****
-Noche parisina.
-[Permalink](https://twitter.com/fernandeznorona/status/1612559152139718664) | 208 Me Gusta | 19 Retweets
+\#oiesteguey
+[Permalink](https://twitter.com/fernandeznorona/status/1612745159804084227) | 24 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 09:48:14
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 01:36:06
 *****
-RT @alexandra_axk: ♥️♥️♥️♥️♥️♥️♥️♥️♥️♥️♥️♥️♥️
-[Permalink](https://twitter.com/fernandeznorona/status/1612506547565002753) | 0 Me Gusta | 16 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1612745084495085569) | 36 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 09:44:07
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 01:34:37
 *****
-Sin comentarios.
-[Permalink](https://twitter.com/fernandeznorona/status/1612505511156453394) | 140 Me Gusta | 7 Retweets
+¡Qué horror! Del lago de Texcoco hubiera sido en trajinera y hasta unas carnitas le hubieran dado en el trayecto, Dolía Estévez @DoliaEstevez.
+[Permalink](https://twitter.com/fernandeznorona/status/1612744710803623938) | 54 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-01-2023 a las 09:38:01
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 01:27:09
 *****
-Cantinflas alias @lorenzocordovav.
-[Permalink](https://twitter.com/fernandeznorona/status/1612503974837424148) | 108 Me Gusta | 18 Retweets
+RT @LJyDMX: 🚩 Próxima gira de trabajo del Diputado @fernandeznorona en #Chiapas 🚩
+
+
+Asiste a nuestra Asamblea Informativa y participa en la…
+[Permalink](https://twitter.com/fernandeznorona/status/1612742831973748738) | 0 Me Gusta | 15 Retweets

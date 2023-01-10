@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 01:45:33
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 08:35:05
 *****
-Agenda para esta semana.
-[Permalink](https://twitter.com/fernandeznorona/status/1612747463755972610) | 16 Me Gusta | 5 Retweets
+RT @agustingc2012: Comunicado conjunto del primer ministro de 🇨🇦 @JustinTrudeau y los presidentes @POTUS 🇺🇸 y @lopezobrador_ 🇲🇽 en el que c…
+[Permalink](https://twitter.com/fernandeznorona/status/1612850526810505217) | 0 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 01:36:24
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 08:32:38
 *****
-\#oiesteguey
-[Permalink](https://twitter.com/fernandeznorona/status/1612745159804084227) | 24 Me Gusta | 6 Retweets
+Repudio al intento de atentado. Toda nuestra solidaridad vicepresidente @FranciaMarquezM. Abrazote solidario.
+[Permalink](https://twitter.com/fernandeznorona/status/1612849908087676928) | 33 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 01:36:06
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 08:29:55
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1612745084495085569) | 36 Me Gusta | 6 Retweets
+RT @abrahamendieta: Más allá del pleito entre el Gobierno de Jalisco y la Universidad, es una indecencia que encarcelen a 3 muchachos por p…
+[Permalink](https://twitter.com/fernandeznorona/status/1612849224739078144) | 0 Me Gusta | 1,455 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 01:34:37
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 08:26:54
 *****
-¡Qué horror! Del lago de Texcoco hubiera sido en trajinera y hasta unas carnitas le hubieran dado en el trayecto, Dolía Estévez @DoliaEstevez.
-[Permalink](https://twitter.com/fernandeznorona/status/1612744710803623938) | 54 Me Gusta | 13 Retweets
+RT @jtownsenddc: 17 peruanos muertos hoy, ninguna renuncia y la presidenta @DinaErcilia no aparece. ¿Así va a pedir la confianza el gabinet…
+[Permalink](https://twitter.com/fernandeznorona/status/1612848469068189705) | 0 Me Gusta | 2,230 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 01:27:09
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 07:45:03
 *****
-RT @LJyDMX: 🚩 Próxima gira de trabajo del Diputado @fernandeznorona en #Chiapas 🚩
-
-
-Asiste a nuestra Asamblea Informativa y participa en la…
-[Permalink](https://twitter.com/fernandeznorona/status/1612742831973748738) | 0 Me Gusta | 15 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1612837935363100675) | 61 Me Gusta | 11 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 08:35:05
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 13:46:01
 *****
-RT @agustingc2012: Comunicado conjunto del primer ministro de 🇨🇦 @JustinTrudeau y los presidentes @POTUS 🇺🇸 y @lopezobrador_ 🇲🇽 en el que c…
-[Permalink](https://twitter.com/fernandeznorona/status/1612850526810505217) | 0 Me Gusta | 22 Retweets
+No.
+[Permalink](https://twitter.com/fernandeznorona/status/1612928776412794880) | 22 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 08:32:38
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 13:25:05
 *****
-Repudio al intento de atentado. Toda nuestra solidaridad vicepresidente @FranciaMarquezM. Abrazote solidario.
-[Permalink](https://twitter.com/fernandeznorona/status/1612849908087676928) | 33 Me Gusta | 14 Retweets
+Les comparto del final de mi viaje.
+[Permalink](https://twitter.com/fernandeznorona/status/1612923508329271303) | 98 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 08:29:55
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 13:24:21
 *****
-RT @abrahamendieta: Más allá del pleito entre el Gobierno de Jalisco y la Universidad, es una indecencia que encarcelen a 3 muchachos por p…
-[Permalink](https://twitter.com/fernandeznorona/status/1612849224739078144) | 0 Me Gusta | 1,455 Retweets
+Valió la pena el esfuerzo de hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1612923324824260608) | 44 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 08:26:54
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 13:23:40
 *****
-RT @jtownsenddc: 17 peruanos muertos hoy, ninguna renuncia y la presidenta @DinaErcilia no aparece. ¿Así va a pedir la confianza el gabinet…
-[Permalink](https://twitter.com/fernandeznorona/status/1612848469068189705) | 0 Me Gusta | 2,230 Retweets
+Museo de la edad media. El unicornio.
+[Permalink](https://twitter.com/fernandeznorona/status/1612923150139785216) | 44 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 07:45:03
+**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 13:22:52
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1612837935363100675) | 61 Me Gusta | 11 Retweets
+Todavía visitamos un museo hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1612922951279562764) | 51 Me Gusta | 5 Retweets

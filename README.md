@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 13:46:01
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 04:08:47
 *****
-No.
-[Permalink](https://twitter.com/fernandeznorona/status/1612928776412794880) | 30 Me Gusta | 5 Retweets
+Comentaba que lo terminé. Bastante bueno. Recomendables en duda.
+[Permalink](https://twitter.com/fernandeznorona/status/1613145898887815168) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 13:25:05
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 04:08:07
 *****
-Les comparto del final de mi viaje.
-[Permalink](https://twitter.com/fernandeznorona/status/1612923508329271303) | 154 Me Gusta | 15 Retweets
+“La prisión moderna es imperfectible, puesto que es perfecta. Lo único que cabe es destruirla”. Víctor Serge.
+[Permalink](https://twitter.com/fernandeznorona/status/1613145730717257731) | 10 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 13:24:21
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 01:48:20
 *****
-Valió la pena el esfuerzo de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1612923324824260608) | 62 Me Gusta | 4 Retweets
+RT @SupsipS: Mire @fernandeznorona lo que pasó en El Péndulo, qué groseros!
+[Permalink](https://twitter.com/fernandeznorona/status/1613110554268164099) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 13:23:40
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 01:45:33
 *****
-Museo de la edad media. El unicornio.
-[Permalink](https://twitter.com/fernandeznorona/status/1612923150139785216) | 58 Me Gusta | 7 Retweets
+Terminé “Amor y morriña” de Kallifatides. Bueno. Ahora leo éste, terrible.
+[Permalink](https://twitter.com/fernandeznorona/status/1613109852330508290) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-01-2023 a las 13:22:52
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 01:43:48
 *****
-Todavía visitamos un museo hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1612922951279562764) | 69 Me Gusta | 7 Retweets
+Pues regresé y seré legión.
+[Permalink](https://twitter.com/fernandeznorona/status/1613109412809347072) | 42 Me Gusta | 4 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 14:04:26
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 18:02:38
 *****
-Besitos, chayote llorón.
-[Permalink](https://twitter.com/fernandeznorona/status/1613295798246047750) | 73 Me Gusta | 8 Retweets
+RT @epigmenioibarra: A la plaga del fentanilo no se le pondrá fin en Culiacán sino en Wall Street -que tanto necesita y que tanto se benefi…
+[Permalink](https://twitter.com/fernandeznorona/status/1613355743507542017) | 0 Me Gusta | 644 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 13:55:47
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 17:54:34
 *****
-Ahora dilo sin llorar Dr. Chapatín @JesusMartinMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1613293622702624788) | 77 Me Gusta | 19 Retweets
+Yo creo que es culpa de ANLO.
+[Permalink](https://twitter.com/fernandeznorona/status/1613353713359519747) | 222 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 13:53:35
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 17:52:50
 *****
-Es increíble el nivel de cretinismo que alcanzan. ¡Inconcebible! Qué hubiesen exigido el 1 % de lo que hoy vociferan, en los gobiernos anteriores, otro país tendríamos desde hace décadas.
-[Permalink](https://twitter.com/fernandeznorona/status/1613293066470948864) | 83 Me Gusta | 17 Retweets
+¿Me vas a acusar de violencia política anti-chayote? Anda y ve, te veo nervioso, anda y ve…
+[Permalink](https://twitter.com/fernandeznorona/status/1613353275436470272) | 144 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 13:26:09
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 17:40:49
 *****
-Oye #chayoteferoz @rivapa, en serio, ¿No te da vergüenza el nivel de envilecimiento al que estás llegando? Yo te recuerdo como un periodista con criterio propio ¿tan grande es tu necesidad de dinero?
-[Permalink](https://twitter.com/fernandeznorona/status/1613286164009717760) | 126 Me Gusta | 29 Retweets
+Hoy en el Costco. ¡Ya somos Venezuela! Ah, no era cualquier tienda, era la de Polanco, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1613350252102447104) | 224 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 10:35:34
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 17:37:00
 *****
-Toda operación por Internet es brutalmente invasiva.
-[Permalink](https://twitter.com/fernandeznorona/status/1613243236277157888) | 36 Me Gusta | 4 Retweets
+No insinúo nada, deduzco lo obvio, tu envilecimiento disfrazado de trabajo periodístico. Farsante, puedes decir lo que gustes, pero te incomodan las críticas. Abur y procede como gustes. Por lo pronto vete a las rebajas de @Bershka.
+[Permalink](https://twitter.com/fernandeznorona/status/1613349292311445504) | 68 Me Gusta | 16 Retweets

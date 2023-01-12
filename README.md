@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 08:31:28
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 14:04:26
 *****
-Jejeje y se te fue Cumbre.
-[Permalink](https://twitter.com/fernandeznorona/status/1613212003790688262) | 32 Me Gusta | 4 Retweets
+Besitos, chayote llorón.
+[Permalink](https://twitter.com/fernandeznorona/status/1613295798246047750) | 73 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 07:52:31
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 13:55:47
 *****
-Eso ya sucedió al inicio del proceso de industrialización cuando miles de artesanos fueron enviados a la calle, en la miseria. Se les perseguía como vagabundos. Se les marcaba con hierro candente la cara.
-[Permalink](https://twitter.com/fernandeznorona/status/1613202200246816769) | 27 Me Gusta | 14 Retweets
+Ahora dilo sin llorar Dr. Chapatín @JesusMartinMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1613293622702624788) | 77 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 07:50:12
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 13:53:35
 *****
-RT @pablom_m: El estado de Tennessee (EE.UU.) ha aprobado una ley que prohíbe a las personas sin hogar dormir en la calle bajo pena de hast…
-[Permalink](https://twitter.com/fernandeznorona/status/1613201620581367809) | 0 Me Gusta | 2,624 Retweets
+Es increíble el nivel de cretinismo que alcanzan. ¡Inconcebible! Qué hubiesen exigido el 1 % de lo que hoy vociferan, en los gobiernos anteriores, otro país tendríamos desde hace décadas.
+[Permalink](https://twitter.com/fernandeznorona/status/1613293066470948864) | 83 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 06:15:58
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 13:26:09
 *****
-Uh, pues ya se los chupó la bruja, políticamente hablando señorito X @ClaudioXGG. Lo único que puedes lograr es que la embajada de Estados Unidos te imponga como candidato opositor, de todos tus buenos deseos para 2023. ¡Pobre! Eres tan pobre, que solo dinero tienes.
-[Permalink](https://twitter.com/fernandeznorona/status/1613177903616753664) | 131 Me Gusta | 23 Retweets
+Oye #chayoteferoz @rivapa, en serio, ¿No te da vergüenza el nivel de envilecimiento al que estás llegando? Yo te recuerdo como un periodista con criterio propio ¿tan grande es tu necesidad de dinero?
+[Permalink](https://twitter.com/fernandeznorona/status/1613286164009717760) | 126 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 06:12:39
+**Fernández Noroña** (**@fernandeznorona**) • 11-01-2023 a las 10:35:34
 *****
-Es culpa de @lopezobrador_ por usar el @aifaaero con @POTUS, Dr. Chapatín @JesusMartinMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1613177067985575939) | 60 Me Gusta | 11 Retweets
+Toda operación por Internet es brutalmente invasiva.
+[Permalink](https://twitter.com/fernandeznorona/status/1613243236277157888) | 36 Me Gusta | 4 Retweets

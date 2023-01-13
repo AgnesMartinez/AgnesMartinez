@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2023 a las 16:20:56
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2023 a las 21:52:06
 *****
-Y hay que precisar que es en el reclusorio de alta seguridad.
-[Permalink](https://twitter.com/fernandeznorona/status/1613692538510008320) | 25 Me Gusta | 8 Retweets
+Ya vi que no debe ser en la noche las charlas. 4961 en Facebook y, 4333 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1613775876432461826) | 17 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2023 a las 16:20:40
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2023 a las 18:19:57
 *****
-RT @poisonJadeVine: El único lugar del EDOMEX donde hay una mayoría priista es Almoloya de Juárez. 
-🤣🤣🤣🤣🤣🤣
-[Permalink](https://twitter.com/fernandeznorona/status/1613692470231191552) | 0 Me Gusta | 9 Retweets
+No comparto que se rompa la unidad de la Coalición en Coahuila. Equivale a entregarle al @PRI_Nacional la posibilidad muy alta de mantener esa gobernatura.
+[Permalink](https://twitter.com/fernandeznorona/status/1613722487979638784) | 218 Me Gusta | 55 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2023 a las 16:20:01
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2023 a las 17:25:59
 *****
-Y no has aprendido nada. Eres simple repetidor de lugares comunes.
-[Permalink](https://twitter.com/fernandeznorona/status/1613692305273245697) | 10 Me Gusta | 2 Retweets
+No se les ocurrió llamarte. Tú lo hubieras privatizado y asunto solucionado, @SergioSarniento.
+[Permalink](https://twitter.com/fernandeznorona/status/1613708908614254598) | 117 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2023 a las 16:19:27
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2023 a las 17:25:08
 *****
-No minimizo nada. Solo hay que ser ecuánimes.
-[Permalink](https://twitter.com/fernandeznorona/status/1613692164017463297) | 9 Me Gusta | 4 Retweets
+Ya aterrizamos en Villahermosa.
+[Permalink](https://twitter.com/fernandeznorona/status/1613708693870374919) | 135 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-01-2023 a las 16:18:37
+**Fernández Noroña** (**@fernandeznorona**) • 12-01-2023 a las 17:20:53
 *****
-Oye @ChicChillon, no ayudas a @Claudiashein MINTIENDO. Nunca menciona sabotaje. Hay una investigación abierta. Y sin duda esa debe ser una línea de investigación, pero no la única.
-[Permalink](https://twitter.com/fernandeznorona/status/1613691953626882050) | 22 Me Gusta | 3 Retweets
+Acabamos de aterrizar. Voy muy avanzado en el libro y no me traje otro
+[Permalink](https://twitter.com/fernandeznorona/status/1613707624763064325) | 48 Me Gusta | 11 Retweets

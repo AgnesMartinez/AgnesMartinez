@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 15:39:18
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 19:47:59
 *****
-Cierto.
-[Permalink](https://twitter.com/fernandeznorona/status/1614406834349113345) | 30 Me Gusta | 6 Retweets
+Xacto
+[Permalink](https://twitter.com/fernandeznorona/status/1614469418930561025) | 18 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 14:24:55
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 19:19:41
 *****
-Ahí me voy a subir a meditar.
-[Permalink](https://twitter.com/fernandeznorona/status/1614388116684505090) | 111 Me Gusta | 8 Retweets
+Nunca he dicho que la encuesta sea el mejor método. Ni siquiera lo considero un método democrático.
+[Permalink](https://twitter.com/fernandeznorona/status/1614462297174335490) | 48 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 11:10:12
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 19:15:37
 *****
-No sé por qué razón en el gobierno de Querétaro les niegan emitir la alerta Amber.
-[Permalink](https://twitter.com/fernandeznorona/status/1614339115373268996) | 75 Me Gusta | 59 Retweets
+RT @NortenaCatrina: Saben si Jorge Ramos y se quejó con Biden por el maltrato a los migrantes en San Francisco...🤔
+[Permalink](https://twitter.com/fernandeznorona/status/1614461272556294147) | 0 Me Gusta | 1,771 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 10:20:54
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 19:04:48
 *****
-Así o más clara la campaña de sabotaje que se está orquestando contra @Claudiashein y a nuestro gobierno en la capital del país. Condenamos las provocaciones, violencia y la destrucción de instalaciones que son del pueblo.
-[Permalink](https://twitter.com/fernandeznorona/status/1614326707200180226) | 417 Me Gusta | 152 Retweets
+RT @Dvd_qva: Perú, 50 muertos en 38 días, más que Jeanine Añez en un año de represión y dictadura en Bolivia... ¡Yo denunció a Dina Boluart…
+[Permalink](https://twitter.com/fernandeznorona/status/1614458549366571008) | 0 Me Gusta | 3,186 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 10:18:10
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 18:52:31
 *****
-A pesar de que el alcalde priísta reprimió en los comerciantes en Bachajón, extraordinaria respuesta.
-[Permalink](https://twitter.com/fernandeznorona/status/1614326020231892992) | 198 Me Gusta | 55 Retweets
+RT @LuciaAlvites: En el centro de esa Lima racista y clasista, en Larcomar, estamos cantando Flor de retama, un himno de lucha de nuestros…
+[Permalink](https://twitter.com/fernandeznorona/status/1614455460068720641) | 0 Me Gusta | 1,372 Retweets

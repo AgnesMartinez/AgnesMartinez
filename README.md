@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 09:53:46
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 15:39:18
 *****
-Súper encuentro en Bachajón, Chilón.
-[Permalink](https://twitter.com/fernandeznorona/status/1614319879997517824) | 27 Me Gusta | 10 Retweets
+Cierto.
+[Permalink](https://twitter.com/fernandeznorona/status/1614406834349113345) | 30 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 08:30:30
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 14:24:55
 *****
-Bachajón.
-[Permalink](https://twitter.com/fernandeznorona/status/1614298926525325313) | 59 Me Gusta | 12 Retweets
+Ahí me voy a subir a meditar.
+[Permalink](https://twitter.com/fernandeznorona/status/1614388116684505090) | 111 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 07:32:15
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 11:10:12
 *****
-Voy camino a Bachajón. Los compañeros trabajaron mucho esa reunión. El resto de la gira está suspendida.
-[Permalink](https://twitter.com/fernandeznorona/status/1614284263909720068) | 94 Me Gusta | 17 Retweets
+No sé por qué razón en el gobierno de Querétaro les niegan emitir la alerta Amber.
+[Permalink](https://twitter.com/fernandeznorona/status/1614339115373268996) | 75 Me Gusta | 59 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-01-2023 a las 19:21:26
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 10:20:54
 *****
-RT @EvaMont30455776: 😂😂😂
-¿Se fijaron bien? Así debe ser como dice la Chinita
-[Permalink](https://twitter.com/fernandeznorona/status/1614100351275212800) | 0 Me Gusta | 17 Retweets
+Así o más clara la campaña de sabotaje que se está orquestando contra @Claudiashein y a nuestro gobierno en la capital del país. Condenamos las provocaciones, violencia y la destrucción de instalaciones que son del pueblo.
+[Permalink](https://twitter.com/fernandeznorona/status/1614326707200180226) | 417 Me Gusta | 152 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-01-2023 a las 19:19:38
+**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 10:18:10
 *****
-Viene.
-[Permalink](https://twitter.com/fernandeznorona/status/1614099898076463106) | 66 Me Gusta | 5 Retweets
+A pesar de que el alcalde priísta reprimió en los comerciantes en Bachajón, extraordinaria respuesta.
+[Permalink](https://twitter.com/fernandeznorona/status/1614326020231892992) | 198 Me Gusta | 55 Retweets

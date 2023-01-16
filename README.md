@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 09:08:40
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 15:27:15
 *****
-¡Lo que a ti te conviene, o mundo, también me conviene a mí!’. Víctor Serge.
-[Permalink](https://twitter.com/fernandeznorona/status/1614670919493992453) | 6 Me Gusta | 0 Retweets
+Por eso. Justificas la ruptura, la falta de unidad, que en el mejor de los casos, pone en riesgo la victoria del movimiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1614766192916324355) | 25 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 09:08:30
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 15:25:05
 *****
-“… pero cualquier fin es bueno para quien lo aceptan pie, cada cual debe cumplir con su destino. Marco Aurelio maestría en la aquiescencia: ‘ varios granos de incienso se encuentran sobre el mismo altar: unos caminantes, otros después: la diferencia es nula…
-[Permalink](https://twitter.com/fernandeznorona/status/1614670873436512261) | 17 Me Gusta | 1 Retweets
+RT @PitucadeBarrio2: 2 limeños muertos y sacaron a Merino, casi 50 provincianos muertos y no pasa tan simplemente NADA. Es totalmente enten…
+[Permalink](https://twitter.com/fernandeznorona/status/1614765644204937217) | 0 Me Gusta | 521 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 08:54:09
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 15:24:49
 *****
-El agua fría para bañarse en San Cristóbal, no le pide nada a la de París. Ambas están heladísimas.
-[Permalink](https://twitter.com/fernandeznorona/status/1614667263373709312) | 107 Me Gusta | 4 Retweets
+Ni que fuéramos ustedes.
+[Permalink](https://twitter.com/fernandeznorona/status/1614765578232684546) | 122 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 19:47:59
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 15:23:22
 *****
-Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1614469418930561025) | 29 Me Gusta | 2 Retweets
+Me entero que es tu cumpleaños compañero y amigo @hamlet_almaguer, muchas felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1614765215119187973) | 49 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-01-2023 a las 19:19:41
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 15:20:55
 *****
-Nunca he dicho que la encuesta sea el mejor método. Ni siquiera lo considero un método democrático.
-[Permalink](https://twitter.com/fernandeznorona/status/1614462297174335490) | 70 Me Gusta | 7 Retweets
+Me imagino que estarías de acuerdo que cualquier aspirante rompiera, por estar en desacuerdo en la encuesta rumbo a la presidencia; que se fuera de candidato de un partido del movimiento. No estoy hablando de Monreal, estoy hablando de cualquier otro de los compañeros.
+[Permalink](https://twitter.com/fernandeznorona/status/1614764595515645957) | 24 Me Gusta | 9 Retweets

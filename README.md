@@ -1,35 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 19:59:31
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2023 a las 09:43:11
 *****
-RT @Luna_Tagg: ¿Qué pasa en el Metro de la capital?
-Se ha alegado falta de mantenimiento, y sin embargo, el gobierno de la capital del país…
-[Permalink](https://twitter.com/fernandeznorona/status/1614834709258817536) | 0 Me Gusta | 19 Retweets
+RT @aran_tirado: Escuchar el latido del corazón de un feto para una mujer embarazada es escuchar un sonido que es parte de su cuerpo, no de…
+[Permalink](https://twitter.com/fernandeznorona/status/1615041990567002138) | 0 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 19:57:27
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2023 a las 09:42:19
 *****
-RT @PTnacionalMX: ¡Ya llego la campaña nacional de afiliación a #Chiapas! 
-
-
-@PTChiapas 
-@fernandeznorona 
-
-
-\#CampañaNacionalDeAfíliacion 
-\#A…
-[Permalink](https://twitter.com/fernandeznorona/status/1614834188301090816) | 0 Me Gusta | 8 Retweets
+Eres miserable. A pesar de mí determinación de apoyar a @aguadiana sigues intrigando en mi contra. Vuelvo a emplazarte a que des la cara. Ser deleznable.
+[Permalink](https://twitter.com/fernandeznorona/status/1615041772505137158) | 14 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 19:57:18
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2023 a las 09:38:27
 *****
-Mucho éxito y disfruta NY. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1614834150909022209) | 52 Me Gusta | 10 Retweets
+A @ChicChillon no se le quitará nunca lo intrigante.
+[Permalink](https://twitter.com/fernandeznorona/status/1615040800429166592) | 11 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 19:54:05
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2023 a las 09:35:53
 *****
-\#quemeyo.
-[Permalink](https://twitter.com/fernandeznorona/status/1614833342280765441) | 108 Me Gusta | 13 Retweets
+Da la cara para saber quién intriga bajo el pretexto de apoyar a mi compañera y amiga @Claudiashein.
+[Permalink](https://twitter.com/fernandeznorona/status/1615040154388791318) | 21 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 18:50:03
+**Fernández Noroña** (**@fernandeznorona**) • 16-01-2023 a las 09:35:52
 *****
-Les ganaremos todo, la capital por supuesto. ¿También por ello me demandarás #ChayoChillon?
-[Permalink](https://twitter.com/fernandeznorona/status/1614817226820837382) | 168 Me Gusta | 38 Retweets
+A mi me tienen sin cuidado tus intrigas. Justo he tomado distancia de la decisión del @PTnacionalMX en Coahuila por no respetar la candidatura del movimiento. Vete a intrigar a tu casa y da la cara para que sepamos quien intriga bajo el pretexto de apoyar a mi compañera y amiga…
+[Permalink](https://twitter.com/fernandeznorona/status/1615040151285280768) | 32 Me Gusta | 8 Retweets

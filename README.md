@@ -1,26 +1,35 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 15:27:15
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 19:59:31
 *****
-Por eso. Justificas la ruptura, la falta de unidad, que en el mejor de los casos, pone en riesgo la victoria del movimiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1614766192916324355) | 25 Me Gusta | 6 Retweets
+RT @Luna_Tagg: ¿Qué pasa en el Metro de la capital?
+Se ha alegado falta de mantenimiento, y sin embargo, el gobierno de la capital del país…
+[Permalink](https://twitter.com/fernandeznorona/status/1614834709258817536) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 15:25:05
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 19:57:27
 *****
-RT @PitucadeBarrio2: 2 limeños muertos y sacaron a Merino, casi 50 provincianos muertos y no pasa tan simplemente NADA. Es totalmente enten…
-[Permalink](https://twitter.com/fernandeznorona/status/1614765644204937217) | 0 Me Gusta | 521 Retweets
+RT @PTnacionalMX: ¡Ya llego la campaña nacional de afiliación a #Chiapas! 
+
+
+@PTChiapas 
+@fernandeznorona 
+
+
+\#CampañaNacionalDeAfíliacion 
+\#A…
+[Permalink](https://twitter.com/fernandeznorona/status/1614834188301090816) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 15:24:49
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 19:57:18
 *****
-Ni que fuéramos ustedes.
-[Permalink](https://twitter.com/fernandeznorona/status/1614765578232684546) | 122 Me Gusta | 23 Retweets
+Mucho éxito y disfruta NY. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1614834150909022209) | 41 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 15:23:22
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 19:54:05
 *****
-Me entero que es tu cumpleaños compañero y amigo @hamlet_almaguer, muchas felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1614765215119187973) | 49 Me Gusta | 6 Retweets
+\#quemeyo.
+[Permalink](https://twitter.com/fernandeznorona/status/1614833342280765441) | 74 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 15:20:55
+**Fernández Noroña** (**@fernandeznorona**) • 15-01-2023 a las 18:50:03
 *****
-Me imagino que estarías de acuerdo que cualquier aspirante rompiera, por estar en desacuerdo en la encuesta rumbo a la presidencia; que se fuera de candidato de un partido del movimiento. No estoy hablando de Monreal, estoy hablando de cualquier otro de los compañeros.
-[Permalink](https://twitter.com/fernandeznorona/status/1614764595515645957) | 24 Me Gusta | 9 Retweets
+Les ganaremos todo, la capital por supuesto. ¿También por ello me demandarás #ChayoChillon?
+[Permalink](https://twitter.com/fernandeznorona/status/1614817226820837382) | 136 Me Gusta | 35 Retweets

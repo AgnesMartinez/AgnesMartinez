@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 13:09:04
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 21:51:13
 *****
-RT @Renegado_L: ¿Alguien que haga la buena obra de conseguirnos fotos del ACOSADOR @cortina2030 y/o de su familia? Si entre ellos hay menor…
-[Permalink](https://twitter.com/fernandeznorona/status/1615456193606193153) | 0 Me Gusta | 14 Retweets
+Me entero por un mensaje de @abasave de la muerte de Javier Livas. Compañero de lucha, demócrata convencido y hombre comprometido con el pueblo de México. Toda mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1615587593055526912) | 25 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 13:07:07
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 21:49:10
 *****
-El homófobo, unos cuates. @rivapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1615455700167327744) | 27 Me Gusta | 1 Retweets
+Más vale tarde que nunca, muchas felicidades en su cumpleaños a mi compañera fiscal @ErnestinaGodoy_.
+[Permalink](https://twitter.com/fernandeznorona/status/1615587078108250112) | 23 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 13:05:56
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 21:44:56
 *****
-La peor: lo justificarás @ESEMEJIA. O muéstranos como valientemente lo acusaste de vínculos con el narco durante la usurpación del #TomandanteBorolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1615455401356701696) | 21 Me Gusta | 5 Retweets
+130 millones. En realidad, todos estamos muertos, ya somos Comala.
+[Permalink](https://twitter.com/fernandeznorona/status/1615586014759903233) | 17 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 13:03:46
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 21:27:32
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1615454859767205889) | 74 Me Gusta | 12 Retweets
+RT @rochaperiodista: Un, dos, tres por Felipe Calderón que está detrás de García Luna.
+[Permalink](https://twitter.com/fernandeznorona/status/1615581633503170561) | 0 Me Gusta | 406 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 13:03:26
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 21:27:21
 *****
-Miren este chilletas, puede insultar impunemente. Pero no le respondas porque Amenaza con demandarte legalmente. Emasculado.
-[Permalink](https://twitter.com/fernandeznorona/status/1615454773771390977) | 36 Me Gusta | 10 Retweets
+Y sí.
+[Permalink](https://twitter.com/fernandeznorona/status/1615581588133404673) | 48 Me Gusta | 7 Retweets

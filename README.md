@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 06:32:55
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 13:09:04
 *****
-RT @LezVargas: Gracias a las matemáticas hoy sé dividir las caguamas entre los que cooperan y los que se hacen pendejos.
-[Permalink](https://twitter.com/fernandeznorona/status/1615356499412369409) | 0 Me Gusta | 66 Retweets
+RT @Renegado_L: ¿Alguien que haga la buena obra de conseguirnos fotos del ACOSADOR @cortina2030 y/o de su familia? Si entre ellos hay menor…
+[Permalink](https://twitter.com/fernandeznorona/status/1615456193606193153) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 06:26:28
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 13:07:07
 *****
-Pero si tú apoyaste la privatización de Ferrocarriles Nacionales de México. No seas hipócrita @SergioSarniento.
-[Permalink](https://twitter.com/fernandeznorona/status/1615354876002992133) | 318 Me Gusta | 76 Retweets
+El homófobo, unos cuates. @rivapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1615455700167327744) | 27 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 06:22:20
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 13:05:56
 *****
-Ha dicho.
-[Permalink](https://twitter.com/fernandeznorona/status/1615353835563921408) | 24 Me Gusta | 2 Retweets
+La peor: lo justificarás @ESEMEJIA. O muéstranos como valientemente lo acusaste de vínculos con el narco durante la usurpación del #TomandanteBorolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1615455401356701696) | 21 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2023 a las 18:54:19
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 13:03:46
 *****
-@jonasenelabismo @maloguzmanvero @RicardoMonrealA @m_ebrard @adan_augusto @Claudiashein @mariodelgado @lopezobrador Dizque
-[Permalink](https://twitter.com/fernandeznorona/status/1615180688550146048) | 10 Me Gusta | 3 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1615454859767205889) | 74 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-01-2023 a las 18:53:46
+**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 13:03:26
 *****
-Naa, exigen que se documente cuando hay espacio en la aeronave. No tiene nada que ver con peso y balance.
-[Permalink](https://twitter.com/fernandeznorona/status/1615180551132180492) | 76 Me Gusta | 10 Retweets
+Miren este chilletas, puede insultar impunemente. Pero no le respondas porque Amenaza con demandarte legalmente. Emasculado.
+[Permalink](https://twitter.com/fernandeznorona/status/1615454773771390977) | 36 Me Gusta | 10 Retweets

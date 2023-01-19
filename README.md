@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2023 a las 09:33:27
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2023 a las 13:52:17
 *****
-RT @Dvd_qva: Impactante... desde Puno parten hacia Lima, son despedidos por multitudes, no saben si volverán, pero sí que van a luchar por…
-[Permalink](https://twitter.com/fernandeznorona/status/1615764319215419428) | 0 Me Gusta | 2,054 Retweets
+RT @Sanx415: Así el nivel de redacción del @ElUniversal donde “chocan” dos aeronaves y en el párrafo aclaran que estuvieron a punto de coli…
+[Permalink](https://twitter.com/fernandeznorona/status/1615829456219967488) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2023 a las 09:32:58
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2023 a las 13:49:50
 *****
-@JuanitaIzaguir5 Todo erario es público.
-[Permalink](https://twitter.com/fernandeznorona/status/1615764195215015986) | 2 Me Gusta | 0 Retweets
+RT @Sanx415: Agradezco la invitación a tardes musicales y conciertos “en  petit comité” promovido por @PepetonD y el Dr. Ignacio Valdés.  S…
+[Permalink](https://twitter.com/fernandeznorona/status/1615828837295693838) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-01-2023 a las 06:05:06
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2023 a las 13:48:22
 *****
-RT @owornat: Silencio de muerte es lo q más recuerdo del sexenio calderonista. Silencio de impunidad y de complicidades. Me sentí como una…
-[Permalink](https://twitter.com/fernandeznorona/status/1615711885810176002) | 0 Me Gusta | 1,193 Retweets
+Lo de cobarde se lo dije al presidente de la Comisión.
+[Permalink](https://twitter.com/fernandeznorona/status/1615828471527395328) | 434 Me Gusta | 116 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 21:51:13
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2023 a las 13:36:45
 *****
-Me entero por un mensaje de @abasave de la muerte de Javier Livas. Compañero de lucha, demócrata convencido y hombre comprometido con el pueblo de México. Toda mi solidaridad para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1615587593055526912) | 120 Me Gusta | 21 Retweets
+RT @JorgeDa39828040: Me encuentro abordo de una VAN, Mercedes Benz rumbo al Monumento a la Revolución, por solo $120 pesos, desde el precio…
+[Permalink](https://twitter.com/fernandeznorona/status/1615825547262820354) | 0 Me Gusta | 399 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-01-2023 a las 21:49:10
+**Fernández Noroña** (**@fernandeznorona**) • 18-01-2023 a las 13:35:37
 *****
-Más vale tarde que nunca, muchas felicidades en su cumpleaños a mi compañera fiscal @ErnestinaGodoy_.
-[Permalink](https://twitter.com/fernandeznorona/status/1615587078108250112) | 82 Me Gusta | 7 Retweets
+RT @laureani: Es la causa más justa:
+
+
+Un pueblo defendiendo su democracia, su soberanía e independencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1615825262947536896) | 0 Me Gusta | 18 Retweets

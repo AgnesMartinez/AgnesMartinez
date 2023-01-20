@@ -1,33 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 13:42:22
+**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 19:42:55
 *****
-RT @manhattan_2: El destrozo que Rebel News hace a Albert Bourla, CEO de Pfizer, en Davos es épico.
-No lo verás en la tele.
-[Permalink](https://twitter.com/fernandeznorona/status/1616189349485514752) | 0 Me Gusta | 5,262 Retweets
+@ClementJacqs @JuanitaIzaguir5 @hdemauleon @SCJN Transas.
+[Permalink](https://twitter.com/fernandeznorona/status/1616280081277779969) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 13:39:35
+**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 19:42:27
 *****
-RT @tania__rd: En Francia la clase trabajadora está tomando las calles después de que Emmanuel Macron está buscando subir la edad de jubila…
-[Permalink](https://twitter.com/fernandeznorona/status/1616188647828783105) | 0 Me Gusta | 807 Retweets
+RT @biologacarmen: Es que Noroña no es de MORENA, es que Noroña no es del PT, es que Noroña habla feo, es que Noroña es agresivo, es que No…
+[Permalink](https://twitter.com/fernandeznorona/status/1616279965380771843) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 13:39:28
+**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 19:41:44
 *****
-RT @AbelCruzDoming3: Quien conmigo..? @lopezobrador_ Sigueme y te sigo.!!
-[Permalink](https://twitter.com/fernandeznorona/status/1616188618938138625) | 0 Me Gusta | 439 Retweets
+Naa, es culebra.
+[Permalink](https://twitter.com/fernandeznorona/status/1616279787278069760) | 51 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 12:14:44
+**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 19:41:19
 *****
-RT @abrahamendieta: Hace dos días, la Dra. @BeatrizGMuller presumió en redes la hermosa librería Sándor Márai. 
-
-
-Como venganza política, ho…
-[Permalink](https://twitter.com/fernandeznorona/status/1616167294060879872) | 0 Me Gusta | 2,105 Retweets
+Eres un farsante. Te gusta intrigar en contra de nuestro movimiento, pero no que te respondan #ChayoteChillon.
+[Permalink](https://twitter.com/fernandeznorona/status/1616279678863708163) | 59 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 09:25:47
+**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 18:55:17
 *****
-RT @LJyDMX: Vosotros queréis socorrer a los pobres, Yo quiero abolir la miseria.
-
-
-Victor Hugo
-[Permalink](https://twitter.com/fernandeznorona/status/1616124775184711682) | 0 Me Gusta | 18 Retweets
+RT @MrBu_shido: Si AMLO hizo todo lo que vemos en el país, aún con pandemia, guerra sucia, sin mayoría calificada, Gertz Manero, la SCJN y…
+[Permalink](https://twitter.com/fernandeznorona/status/1616268093772431360) | 0 Me Gusta | 51 Retweets

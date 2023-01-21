@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 07:11:13
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 15:53:00
 *****
-El dolor va haciéndose soportable. La vida se impone y tu ser querido vive dentro de ti, en tu corazón. No es cierto que se pueda vivir como si nada. Uno no sabe lo que va cargando cada quien. Abrazote solidario.
-[Permalink](https://twitter.com/fernandeznorona/status/1616453298474876930) | 69 Me Gusta | 13 Retweets
+Naa, anónimo culebrilla, lo que pido es que la dejen caminar sola, tiene la capacidad y los méritos para hacerlo. Que deje de ir en los hombros de un gigante. Aunque aún en los hombros de un gigante, le ganaré. Besitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1616584610217066498) | 20 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 19:42:55
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 15:43:08
 *****
-@ClementJacqs @JuanitaIzaguir5 @hdemauleon @SCJN Transas.
-[Permalink](https://twitter.com/fernandeznorona/status/1616280081277779969) | 0 Me Gusta | 0 Retweets
+Es que @MaruCampos_G prefiere los antros a las librerías. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1616582126144741377) | 26 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 19:42:27
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 15:42:10
 *****
-RT @biologacarmen: Es que Noroña no es de MORENA, es que Noroña no es del PT, es que Noroña habla feo, es que Noroña es agresivo, es que No…
-[Permalink](https://twitter.com/fernandeznorona/status/1616279965380771843) | 0 Me Gusta | 28 Retweets
+Señorito X @ClaudioXGG, ¿por qué mejor no nos platicas de cuánto es el presupuesto que te entrega la embajada de Estados Unidos para tu tarea golpista?
+[Permalink](https://twitter.com/fernandeznorona/status/1616581885295226880) | 68 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 19:41:44
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 15:36:53
 *****
-Naa, es culebra.
-[Permalink](https://twitter.com/fernandeznorona/status/1616279787278069760) | 68 Me Gusta | 6 Retweets
+Es en todas partes.
+[Permalink](https://twitter.com/fernandeznorona/status/1616580554845204480) | 13 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-01-2023 a las 19:41:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 15:33:19
 *****
-Eres un farsante. Te gusta intrigar en contra de nuestro movimiento, pero no que te respondan #ChayoteChillon.
-[Permalink](https://twitter.com/fernandeznorona/status/1616279678863708163) | 102 Me Gusta | 22 Retweets
+Debemos prohibir el uso del Unicel.
+[Permalink](https://twitter.com/fernandeznorona/status/1616579658547593216) | 16 Me Gusta | 4 Retweets

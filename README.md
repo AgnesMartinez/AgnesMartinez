@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 15:53:00
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 20:23:20
 *****
-Naa, anónimo culebrilla, lo que pido es que la dejen caminar sola, tiene la capacidad y los méritos para hacerlo. Que deje de ir en los hombros de un gigante. Aunque aún en los hombros de un gigante, le ganaré. Besitos.
-[Permalink](https://twitter.com/fernandeznorona/status/1616584610217066498) | 20 Me Gusta | 5 Retweets
+RT @Tia_Alma: ¿Qué hago con la lujuria, obedecerla o analizarla? ChicaCautelosa -Querida mía, si puedes, analízala antes, si no, después.
+[Permalink](https://twitter.com/fernandeznorona/status/1616652642662645760) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 15:43:08
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 20:08:35
 *****
-Es que @MaruCampos_G prefiere los antros a las librerías. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1616582126144741377) | 26 Me Gusta | 5 Retweets
+RT @AnibalGarzon: Tanques militares peruanos entrando en Lima contra el Paro Nacional. Esto ya no es un Estado de Emergencia sinó un Estado…
+[Permalink](https://twitter.com/fernandeznorona/status/1616648928358957056) | 0 Me Gusta | 7,763 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 15:42:10
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 20:07:26
 *****
-Señorito X @ClaudioXGG, ¿por qué mejor no nos platicas de cuánto es el presupuesto que te entrega la embajada de Estados Unidos para tu tarea golpista?
-[Permalink](https://twitter.com/fernandeznorona/status/1616581885295226880) | 68 Me Gusta | 24 Retweets
+RT @rbarriosfuentes: Ya son 25 HORAS de la desaparición de Ángela Olguín Bustamante, de 16 años, en el paradero de Indios Verdes.
+
+
+Los papá…
+[Permalink](https://twitter.com/fernandeznorona/status/1616648639837011970) | 0 Me Gusta | 1,599 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 15:36:53
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 20:05:32
 *****
-Es en todas partes.
-[Permalink](https://twitter.com/fernandeznorona/status/1616580554845204480) | 13 Me Gusta | 4 Retweets
+Oye @Suglez1 ¿Seguirás diciendo que está mal hecha?
+[Permalink](https://twitter.com/fernandeznorona/status/1616648161086541824) | 58 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 15:33:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 20:01:59
 *****
-Debemos prohibir el uso del Unicel.
-[Permalink](https://twitter.com/fernandeznorona/status/1616579658547593216) | 16 Me Gusta | 4 Retweets
+En los careos, gana de calle nuestro movimiento. Pero seguirás diciendo que está mal hecha la encuesta. Alcanzamos porcentajes arriba del 50. Prácticamente sin importar quien sea el candidato.
+[Permalink](https://twitter.com/fernandeznorona/status/1616647270333820928) | 33 Me Gusta | 7 Retweets

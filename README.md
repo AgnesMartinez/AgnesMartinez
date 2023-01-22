@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 08:27:22
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 15:51:02
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1616834849066700802) | 38 Me Gusta | 2 Retweets
+@jj80337509 Presidente.
+[Permalink](https://twitter.com/fernandeznorona/status/1616946502848647170) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 06:44:03
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 15:47:00
 *****
-RT @polimniaromana: Buenos días ☀️
-[Permalink](https://twitter.com/fernandeznorona/status/1616808851772170242) | 0 Me Gusta | 1 Retweets
+RT @adrisaa05: Así las cosas. 👇
+[Permalink](https://twitter.com/fernandeznorona/status/1616945488435236864) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 20:23:20
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 15:43:19
 *****
-RT @Tia_Alma: ¿Qué hago con la lujuria, obedecerla o analizarla? ChicaCautelosa -Querida mía, si puedes, analízala antes, si no, después.
-[Permalink](https://twitter.com/fernandeznorona/status/1616652642662645760) | 0 Me Gusta | 7 Retweets
+RT @salomonj: Aunque soy respetuoso de las decisiones del Poder Judicial, no estoy de acuerdo con la resolución del juez en el caso de Juan…
+[Permalink](https://twitter.com/fernandeznorona/status/1616944561666002944) | 0 Me Gusta | 111 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 20:08:35
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 15:39:41
 *****
-RT @AnibalGarzon: Tanques militares peruanos entrando en Lima contra el Paro Nacional. Esto ya no es un Estado de Emergencia sinó un Estado…
-[Permalink](https://twitter.com/fernandeznorona/status/1616648928358957056) | 0 Me Gusta | 8,298 Retweets
+RT @rubengluengas: Bestial ataque con tanqueta irrumpiendo en la universidad más antigua de América, para detener arbitrariamente (impidien…
+[Permalink](https://twitter.com/fernandeznorona/status/1616943649199386624) | 0 Me Gusta | 101 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-01-2023 a las 20:07:26
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 15:33:05
 *****
-RT @rbarriosfuentes: Ya son 25 HORAS de la desaparición de Ángela Olguín Bustamante, de 16 años, en el paradero de Indios Verdes.
-
-
-Los papá…
-[Permalink](https://twitter.com/fernandeznorona/status/1616648639837011970) | 0 Me Gusta | 4,817 Retweets
+RT @Julieta_Kristal: Exigimos justicia para @_ElenaRios. En México un ataque con ácido atenta contra la vida y la dignidad de una mujer. Ex…
+[Permalink](https://twitter.com/fernandeznorona/status/1616941987126718464) | 0 Me Gusta | 20 Retweets

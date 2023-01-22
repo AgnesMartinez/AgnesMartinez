@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 22:09:17
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 08:37:26
 *****
-@Antonio95422806 Harto, transas.
-[Permalink](https://twitter.com/fernandeznorona/status/1617041693567782913) | 1 Me Gusta | 0 Retweets
+“Nada es más peligroso que un hombre que trata de entender”. Maryse Condé.
+[Permalink](https://twitter.com/fernandeznorona/status/1617199772364070918) | 44 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 22:07:35
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 08:28:04
 *****
-Estás diciendo barbaridades. También fallan y que lo quieras muerto para creerle es muy miserable.
-[Permalink](https://twitter.com/fernandeznorona/status/1617041267451645953) | 34 Me Gusta | 2 Retweets
+RT @Dvd_qva: 62 muertos en 45 días, con el gobierno de Boluarte, a Perú le están matando... ¿seguirás en silencio?¿a los cuantos muertos te…
+[Permalink](https://twitter.com/fernandeznorona/status/1617197414661894146) | 0 Me Gusta | 1,809 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 22:06:44
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 08:27:50
 *****
-@ojeda100 @CiroGomezL @lopezobrador_ A ver…
-[Permalink](https://twitter.com/fernandeznorona/status/1617041053491822595) | 1 Me Gusta | 1 Retweets
+Por fin vio una Georgie Boy, @jorgeramosnews. Aunque no ve nada de la masacre en Perú.
+[Permalink](https://twitter.com/fernandeznorona/status/1617197358097534987) | 100 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 21:51:10
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 08:23:30
 *****
-@Macarena006 Rebasa.
-[Permalink](https://twitter.com/fernandeznorona/status/1617037133314940928) | 54 Me Gusta | 2 Retweets
+¿En dónde fue eso? Extraordinaria mujer.
+[Permalink](https://twitter.com/fernandeznorona/status/1617196264000729089) | 134 Me Gusta | 40 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 21:50:19
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 08:22:49
 *****
-@IreneGu23130032 Resguardar. ¡Qué decente! Ahora habrá que tener cuidado de que verdaderamente sean los dueños quienes te digan que lo son.
-[Permalink](https://twitter.com/fernandeznorona/status/1617036918084227074) | 29 Me Gusta | 0 Retweets
+RT @fvonrossum: Si esto sucedió en México 🇲🇽 ojalá las autoridades agarren a esos mugrosos perros que intentaron secuestrar a esta niña, la…
+[Permalink](https://twitter.com/fernandeznorona/status/1617196092021690371) | 0 Me Gusta | 56 Retweets

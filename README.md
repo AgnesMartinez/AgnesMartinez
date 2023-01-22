@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 15:51:02
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 22:09:17
 *****
-@jj80337509 Presidente.
-[Permalink](https://twitter.com/fernandeznorona/status/1616946502848647170) | 0 Me Gusta | 0 Retweets
+@Antonio95422806 Harto, transas.
+[Permalink](https://twitter.com/fernandeznorona/status/1617041693567782913) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 15:47:00
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 22:07:35
 *****
-RT @adrisaa05: Así las cosas. 👇
-[Permalink](https://twitter.com/fernandeznorona/status/1616945488435236864) | 0 Me Gusta | 9 Retweets
+Estás diciendo barbaridades. También fallan y que lo quieras muerto para creerle es muy miserable.
+[Permalink](https://twitter.com/fernandeznorona/status/1617041267451645953) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 15:43:19
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 22:06:44
 *****
-RT @salomonj: Aunque soy respetuoso de las decisiones del Poder Judicial, no estoy de acuerdo con la resolución del juez en el caso de Juan…
-[Permalink](https://twitter.com/fernandeznorona/status/1616944561666002944) | 0 Me Gusta | 111 Retweets
+@ojeda100 @CiroGomezL @lopezobrador_ A ver…
+[Permalink](https://twitter.com/fernandeznorona/status/1617041053491822595) | 1 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 15:39:41
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 21:51:10
 *****
-RT @rubengluengas: Bestial ataque con tanqueta irrumpiendo en la universidad más antigua de América, para detener arbitrariamente (impidien…
-[Permalink](https://twitter.com/fernandeznorona/status/1616943649199386624) | 0 Me Gusta | 101 Retweets
+@Macarena006 Rebasa.
+[Permalink](https://twitter.com/fernandeznorona/status/1617037133314940928) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 15:33:05
+**Fernández Noroña** (**@fernandeznorona**) • 21-01-2023 a las 21:50:19
 *****
-RT @Julieta_Kristal: Exigimos justicia para @_ElenaRios. En México un ataque con ácido atenta contra la vida y la dignidad de una mujer. Ex…
-[Permalink](https://twitter.com/fernandeznorona/status/1616941987126718464) | 0 Me Gusta | 20 Retweets
+@IreneGu23130032 Resguardar. ¡Qué decente! Ahora habrá que tener cuidado de que verdaderamente sean los dueños quienes te digan que lo son.
+[Permalink](https://twitter.com/fernandeznorona/status/1617036918084227074) | 2 Me Gusta | 0 Retweets

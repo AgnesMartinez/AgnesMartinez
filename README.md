@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 08:37:26
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 15:34:50
 *****
-“Nada es más peligroso que un hombre que trata de entender”. Maryse Condé.
-[Permalink](https://twitter.com/fernandeznorona/status/1617199772364070918) | 44 Me Gusta | 15 Retweets
+@jonasenelabismo @Marblanca3 Ha jugado.
+[Permalink](https://twitter.com/fernandeznorona/status/1617304814190485505) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 08:28:04
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 15:30:24
 *****
-RT @Dvd_qva: 62 muertos en 45 días, con el gobierno de Boluarte, a Perú le están matando... ¿seguirás en silencio?¿a los cuantos muertos te…
-[Permalink](https://twitter.com/fernandeznorona/status/1617197414661894146) | 0 Me Gusta | 1,809 Retweets
+Erario, todo erario es público.
+[Permalink](https://twitter.com/fernandeznorona/status/1617303697280892930) | 28 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 08:27:50
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 15:29:47
 *****
-Por fin vio una Georgie Boy, @jorgeramosnews. Aunque no ve nada de la masacre en Perú.
-[Permalink](https://twitter.com/fernandeznorona/status/1617197358097534987) | 100 Me Gusta | 32 Retweets
+RT @nancy_contra: El sexenio de @FelipeCalderon no sólo significó muerte, desapariciones forzadas, desplazamientos por violencia, también s…
+[Permalink](https://twitter.com/fernandeznorona/status/1617303545631641600) | 0 Me Gusta | 414 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 08:23:30
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 15:29:36
 *****
-¿En dónde fue eso? Extraordinaria mujer.
-[Permalink](https://twitter.com/fernandeznorona/status/1617196264000729089) | 134 Me Gusta | 40 Retweets
+RT @adrisaa05: 🚨🚨 ¿La has visto? 🚨🚨
+[Permalink](https://twitter.com/fernandeznorona/status/1617303499360043008) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 08:22:49
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 15:03:58
 *****
-RT @fvonrossum: Si esto sucedió en México 🇲🇽 ojalá las autoridades agarren a esos mugrosos perros que intentaron secuestrar a esta niña, la…
-[Permalink](https://twitter.com/fernandeznorona/status/1617196092021690371) | 0 Me Gusta | 56 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1617297047354494979) | 22 Me Gusta | 5 Retweets

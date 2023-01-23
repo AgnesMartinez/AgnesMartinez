@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 15:34:50
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 20:08:03
 *****
-@jonasenelabismo @Marblanca3 Ha jugado.
-[Permalink](https://twitter.com/fernandeznorona/status/1617304814190485505) | 3 Me Gusta | 1 Retweets
+“Es necesario abandonar la viciosa costumbre establecida entre nosotros de esperar de los gobiernos el remedio de todos nuestros males. La iniciativa particular, secundada y extendida hasta convertirse en acción colectiva, es el carácter de las democracias”.
+[Permalink](https://twitter.com/fernandeznorona/status/1617373570308657152) | 61 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 15:30:24
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 19:56:28
 *****
-Erario, todo erario es público.
-[Permalink](https://twitter.com/fernandeznorona/status/1617303697280892930) | 28 Me Gusta | 5 Retweets
+Asesinos, no tienen vergüenza.
+[Permalink](https://twitter.com/fernandeznorona/status/1617370655862972417) | 136 Me Gusta | 44 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 15:29:47
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 19:38:36
 *****
-RT @nancy_contra: El sexenio de @FelipeCalderon no sólo significó muerte, desapariciones forzadas, desplazamientos por violencia, también s…
-[Permalink](https://twitter.com/fernandeznorona/status/1617303545631641600) | 0 Me Gusta | 414 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1617366161460719618) | 89 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 15:29:36
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 19:37:28
 *****
-RT @adrisaa05: 🚨🚨 ¿La has visto? 🚨🚨
-[Permalink](https://twitter.com/fernandeznorona/status/1617303499360043008) | 0 Me Gusta | 11 Retweets
+@BravaGm Has empezado.
+[Permalink](https://twitter.com/fernandeznorona/status/1617365875589545986) | 36 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 15:03:58
+**Fernández Noroña** (**@fernandeznorona**) • 22-01-2023 a las 18:48:06
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1617297047354494979) | 22 Me Gusta | 5 Retweets
+RT @KyleSkynet: Hay para todos, esta te va a gustar
+En todos los escenarios, se las metemos doblada...la boleta
+[Permalink](https://twitter.com/fernandeznorona/status/1617353450601459712) | 0 Me Gusta | 9 Retweets

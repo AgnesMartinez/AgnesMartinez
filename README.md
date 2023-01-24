@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 15:55:03
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 20:32:50
 *****
-RT @ArturoZaldivarL: Hoy hace 10 años la 1a Sala ordenó la liberación de Florence Cassez. Este asunto constituye un parteaguas en los DDHH…
-[Permalink](https://twitter.com/fernandeznorona/status/1617672289520320512) | 0 Me Gusta | 263 Retweets
+Pues se equivocan. Fue secretario de seguridad pública del gobierno usurpador de @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1617742195938975745) | 22 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 15:16:02
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 20:04:30
 *****
-Botijón, acude a Nueva York, como testigo de @GenaroGarciaL. @CartonCalderon el defensor de narcos.
-[Permalink](https://twitter.com/fernandeznorona/status/1617662472827338753) | 66 Me Gusta | 11 Retweets
+RT @AnibalGarzon: Mañana 24 de Enero está convocado un nuevo Paro Nacional en Perú contra el régimen de Dina Boluarte. El mismo día que se…
+[Permalink](https://twitter.com/fernandeznorona/status/1617735067186630657) | 0 Me Gusta | 1,262 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 14:04:54
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 20:02:36
 *****
-“Cuando el pueblo sea fuerte, cuando el pueblo sea sano, entonces se estimarán nuestras tareas. La historia es justiciera e insobornable, no la intimidan las excomuniones clericales ni las amenazas del poder. ¡Apelamos, pues, al fallo de la historia!”. Partido Liberal.
-[Permalink](https://twitter.com/fernandeznorona/status/1617644571978240008) | 57 Me Gusta | 20 Retweets
+@adrianasan_v @SinLinea_Mx @Ahrika76 ¡Zas!
+[Permalink](https://twitter.com/fernandeznorona/status/1617734586691366912) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 13:50:03
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 20:01:51
 *****
-RT @allbielsa: Curiosamente, TODOS los noticieros están hablando de lo sucedido en el metro, y NADA de las declaraciones de Arturo Beltran…
-[Permalink](https://twitter.com/fernandeznorona/status/1617640830893973504) | 0 Me Gusta | 64 Retweets
+@SinLinea_Mx Zas. Sin Línea pero con diccionario.
+[Permalink](https://twitter.com/fernandeznorona/status/1617734398346145792) | 35 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 12:29:35
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 19:54:54
 *****
-Convoquen mejor el 29 de febrero, señorito x, @ClaudioXGG.
-[Permalink](https://twitter.com/fernandeznorona/status/1617620583432454144) | 53 Me Gusta | 9 Retweets
+RT @AnibalGarzon: Mujer, indígena, campesina, provinciana, y de un país del Sur,... donde su gran discurso por la lucha del pueblo peruano…
+[Permalink](https://twitter.com/fernandeznorona/status/1617732650621632515) | 0 Me Gusta | 2,504 Retweets

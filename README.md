@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 09:58:03
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 15:55:03
 *****
-Yo me quedaría con: “que ganas de estar en Nueva York”.
-[Permalink](https://twitter.com/fernandeznorona/status/1617582449143451650) | 11 Me Gusta | 4 Retweets
+RT @ArturoZaldivarL: Hoy hace 10 años la 1a Sala ordenó la liberación de Florence Cassez. Este asunto constituye un parteaguas en los DDHH…
+[Permalink](https://twitter.com/fernandeznorona/status/1617672289520320512) | 0 Me Gusta | 263 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 09:56:03
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 15:16:02
 *****
-Ese documento es más falso que la derecha.
-[Permalink](https://twitter.com/fernandeznorona/status/1617581943138418689) | 13 Me Gusta | 5 Retweets
+Botijón, acude a Nueva York, como testigo de @GenaroGarciaL. @CartonCalderon el defensor de narcos.
+[Permalink](https://twitter.com/fernandeznorona/status/1617662472827338753) | 66 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 09:55:51
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 14:04:54
 *****
-RT @Caro__Fdz: Ni Audi ni Mercedes, esta vez @CINDYJIMENEZLOZ, titular de la Unidad de Apoyo Ejecutivo del @DIFGobPue, utilizó la unidad of…
-[Permalink](https://twitter.com/fernandeznorona/status/1617581894966849536) | 0 Me Gusta | 50 Retweets
+“Cuando el pueblo sea fuerte, cuando el pueblo sea sano, entonces se estimarán nuestras tareas. La historia es justiciera e insobornable, no la intimidan las excomuniones clericales ni las amenazas del poder. ¡Apelamos, pues, al fallo de la historia!”. Partido Liberal.
+[Permalink](https://twitter.com/fernandeznorona/status/1617644571978240008) | 57 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 09:39:03
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 13:50:03
 *****
-“Posee la rara virtud de tener una gran dosis de valor civil”, Ricardo Flores Magón sobre Juan Ramírez Ramos.
-[Permalink](https://twitter.com/fernandeznorona/status/1617577667997618176) | 17 Me Gusta | 1 Retweets
+RT @allbielsa: Curiosamente, TODOS los noticieros están hablando de lo sucedido en el metro, y NADA de las declaraciones de Arturo Beltran…
+[Permalink](https://twitter.com/fernandeznorona/status/1617640830893973504) | 0 Me Gusta | 64 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 09:08:52
+**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 12:29:35
 *****
-“… usted ha entrado en el combate político, leal y sereno, sin más armas que la verdad y sin otro escudo que la justicia;…”. Díaz Soto y Gama, presidente del club de estudiantes liberales de SLP, invitando a Ricardo Flores Magón a representarlos en el congreso liberal de 1901.
-[Permalink](https://twitter.com/fernandeznorona/status/1617570070422749187) | 49 Me Gusta | 14 Retweets
+Convoquen mejor el 29 de febrero, señorito x, @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1617620583432454144) | 53 Me Gusta | 9 Retweets

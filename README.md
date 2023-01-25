@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 13:48:37
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 19:36:29
 *****
-RT @AleCuore_: El aeropuerto de Texcoco con el prian, hubiera tardado mínimo tres sexenios para quedar listo. Nooo menos como 5. 🤣🤣🤣🤣
-[Permalink](https://twitter.com/fernandeznorona/status/1618002858187816960) | 0 Me Gusta | 28 Retweets
+RT @magolic41: @LJyDMX @fernandeznorona  Tengo mi separador, próximamente pongo mi cartulina 💪
+[Permalink](https://twitter.com/fernandeznorona/status/1618090402376212483) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 13:46:42
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 19:34:13
 *****
-RT @fisgonmonero: A medida que el Grande testifica que el Cártel de Sinaloa le daba sobornos millonarios a García Luna, @FelipeCalderon se…
-[Permalink](https://twitter.com/fernandeznorona/status/1618002377222815748) | 0 Me Gusta | 2,196 Retweets
+RT @elvin_calcano24: La revista especializada británica The Banker ha reconocido a Bolivia como el país latinoamericano con el mejor desemp…
+[Permalink](https://twitter.com/fernandeznorona/status/1618089832823259137) | 0 Me Gusta | 2,273 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 13:45:14
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 19:32:43
 *****
-RT @LuciaAlvites: Dina Boluarte se queda sola dentro del Peru y también en la región. Colombia, Bolivia, Honduras y, ahora, Chile condenan…
-[Permalink](https://twitter.com/fernandeznorona/status/1618002010217021444) | 0 Me Gusta | 2,276 Retweets
+RT @ingrucha: El juicio de García Luna es una forma de lavado de imagen de Estados Unidos. Ellos, q participan activamente del narcotráfico…
+[Permalink](https://twitter.com/fernandeznorona/status/1618089455709044736) | 0 Me Gusta | 86 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 13:20:51
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 19:29:50
 *****
-Miren lo que acaba de llegar al ⁦@CE_MXdiputados⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1617995871676944384) | 72 Me Gusta | 22 Retweets
+RT @julioarbizu: Hay 7 detenidos en Cotabambas y el comandante ha dicho: “ni los abogados entran”. Inadmisible, todos tenemos derecho a la…
+[Permalink](https://twitter.com/fernandeznorona/status/1618088728068751366) | 0 Me Gusta | 1,326 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 12:58:08
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 19:07:24
 *****
-RT @jon_aleman7: ayer por la noche en Gdl. después de que en el @HospitalCivil le negara la atención a una joven de 18 años, está dió a luz…
-[Permalink](https://twitter.com/fernandeznorona/status/1617990156899975168) | 0 Me Gusta | 29 Retweets
+Quizás no ves fallas en su lógica por pura ignorancia. ¿Me podrías decir quién calificó la elección presidencial de 1988?
+[Permalink](https://twitter.com/fernandeznorona/status/1618083082342653952) | 38 Me Gusta | 9 Retweets

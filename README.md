@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 20:32:50
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 13:48:37
 *****
-Pues se equivocan. Fue secretario de seguridad pública del gobierno usurpador de @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1617742195938975745) | 52 Me Gusta | 20 Retweets
+RT @AleCuore_: El aeropuerto de Texcoco con el prian, hubiera tardado mínimo tres sexenios para quedar listo. Nooo menos como 5. 🤣🤣🤣🤣
+[Permalink](https://twitter.com/fernandeznorona/status/1618002858187816960) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 20:04:30
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 13:46:42
 *****
-RT @AnibalGarzon: Mañana 24 de Enero está convocado un nuevo Paro Nacional en Perú contra el régimen de Dina Boluarte. El mismo día que se…
-[Permalink](https://twitter.com/fernandeznorona/status/1617735067186630657) | 0 Me Gusta | 2,068 Retweets
+RT @fisgonmonero: A medida que el Grande testifica que el Cártel de Sinaloa le daba sobornos millonarios a García Luna, @FelipeCalderon se…
+[Permalink](https://twitter.com/fernandeznorona/status/1618002377222815748) | 0 Me Gusta | 2,196 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 20:02:36
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 13:45:14
 *****
-@adrianasan_v @SinLinea_Mx @Ahrika76 ¡Zas!
-[Permalink](https://twitter.com/fernandeznorona/status/1617734586691366912) | 4 Me Gusta | 0 Retweets
+RT @LuciaAlvites: Dina Boluarte se queda sola dentro del Peru y también en la región. Colombia, Bolivia, Honduras y, ahora, Chile condenan…
+[Permalink](https://twitter.com/fernandeznorona/status/1618002010217021444) | 0 Me Gusta | 2,276 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 20:01:51
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 13:20:51
 *****
-@SinLinea_Mx Zas. Sin Línea pero con diccionario.
-[Permalink](https://twitter.com/fernandeznorona/status/1617734398346145792) | 55 Me Gusta | 9 Retweets
+Miren lo que acaba de llegar al ⁦@CE_MXdiputados⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1617995871676944384) | 72 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-01-2023 a las 19:54:54
+**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 12:58:08
 *****
-RT @AnibalGarzon: Mujer, indígena, campesina, provinciana, y de un país del Sur,... donde su gran discurso por la lucha del pueblo peruano…
-[Permalink](https://twitter.com/fernandeznorona/status/1617732650621632515) | 0 Me Gusta | 3,527 Retweets
+RT @jon_aleman7: ayer por la noche en Gdl. después de que en el @HospitalCivil le negara la atención a una joven de 18 años, está dió a luz…
+[Permalink](https://twitter.com/fernandeznorona/status/1617990156899975168) | 0 Me Gusta | 29 Retweets

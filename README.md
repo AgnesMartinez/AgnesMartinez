@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 19:36:29
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 09:45:10
 *****
-RT @magolic41: @LJyDMX @fernandeznorona  Tengo mi separador, próximamente pongo mi cartulina 💪
-[Permalink](https://twitter.com/fernandeznorona/status/1618090402376212483) | 0 Me Gusta | 9 Retweets
+Chingón.
+[Permalink](https://twitter.com/fernandeznorona/status/1618303981482315777) | 12 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 19:34:13
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 08:55:31
 *****
-RT @elvin_calcano24: La revista especializada británica The Banker ha reconocido a Bolivia como el país latinoamericano con el mejor desemp…
-[Permalink](https://twitter.com/fernandeznorona/status/1618089832823259137) | 0 Me Gusta | 2,575 Retweets
+Señorito X @ClaudioXGG, ya mejor empieza tu campaña #esclaudio. Me dará un gusto hacerte pinole en los debates.
+[Permalink](https://twitter.com/fernandeznorona/status/1618291485631451136) | 60 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 19:32:43
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 08:14:03
 *****
-RT @ingrucha: El juicio de García Luna es una forma de lavado de imagen de Estados Unidos. Ellos, q participan activamente del narcotráfico…
-[Permalink](https://twitter.com/fernandeznorona/status/1618089455709044736) | 0 Me Gusta | 89 Retweets
+Súper violencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1618281050689671169) | 26 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 19:29:50
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 08:13:27
 *****
-RT @julioarbizu: Hay 7 detenidos en Cotabambas y el comandante ha dicho: “ni los abogados entran”. Inadmisible, todos tenemos derecho a la…
-[Permalink](https://twitter.com/fernandeznorona/status/1618088728068751366) | 0 Me Gusta | 1,582 Retweets
+RT @PedroCastilloTe: Agradezco al hermano @lopezobrador_  por su solidaridad con el pueblo peruano. Más pronto que tarde, estaremos junto a…
+[Permalink](https://twitter.com/fernandeznorona/status/1618280900344844289) | 0 Me Gusta | 1,787 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-01-2023 a las 19:07:24
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 08:11:44
 *****
-Quizás no ves fallas en su lógica por pura ignorancia. ¿Me podrías decir quién calificó la elección presidencial de 1988?
-[Permalink](https://twitter.com/fernandeznorona/status/1618083082342653952) | 41 Me Gusta | 9 Retweets
+RT @_VicenteSerrano: Lamento informar a mis odiadores que soy el ÚNICO youtubero en las audiencias del juicio vs #GarciaLuna. 
+
+
+Con mi micr…
+[Permalink](https://twitter.com/fernandeznorona/status/1618280469594001409) | 0 Me Gusta | 2,856 Retweets

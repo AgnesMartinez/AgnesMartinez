@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 19:54:14
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 09:22:02
 *****
-RT @epigmenioibarra: Más de 700 millones de dólares robó García Luna al erario a lo largo de 18 años. En EU lo juzgan por narcotráfico. Aqu…
-[Permalink](https://twitter.com/fernandeznorona/status/1618457258551316480) | 0 Me Gusta | 3,729 Retweets
+Ya voy rumbo a Iztapalapa desde pueblo quieto.
+[Permalink](https://twitter.com/fernandeznorona/status/1618660548736073729) | 49 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 19:49:20
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 09:05:24
 *****
-RT @AntiTelevisaMx: Éste es el vídeo que ha enfurecido a todos los corruptos de @AccionNacional, por mostrar el repudió que tienen los Mexi…
-[Permalink](https://twitter.com/fernandeznorona/status/1618456027015557122) | 0 Me Gusta | 2,503 Retweets
+RT @mae_rusia: 💬 Presidente Vladímir Putin: Hemos sido pacientes durante mucho tiempo, hemos intentado negociar [con las autoridades ucrani…
+[Permalink](https://twitter.com/fernandeznorona/status/1618656362900381696) | 0 Me Gusta | 727 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 19:31:49
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 09:05:06
 *****
-Asesóralos #chayoteferoz @rivapa, tú sí sabes cómo se logre impartir justicia.
-[Permalink](https://twitter.com/fernandeznorona/status/1618451617132732416) | 51 Me Gusta | 12 Retweets
+RT @ildottorechairo: 🇩🇪 Cientos de personas protestan en Múnich, Alemania contra la entrega de tanques Leopard y suministro de armas a Ucra…
+[Permalink](https://twitter.com/fernandeznorona/status/1618656287390334976) | 0 Me Gusta | 216 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 19:30:16
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 08:31:45
 *****
-RT @polimniaromana: Urge encontrar quien cuide a estos 5 bbs. Todavía traen el cordón umbilical.
-Abandonados en un parque en una caja de ca…
-[Permalink](https://twitter.com/fernandeznorona/status/1618451226517200897) | 0 Me Gusta | 124 Retweets
+Golpe de Estado: @XiomaraCastroZ le llama a las cosas por su nombre.
+[Permalink](https://twitter.com/fernandeznorona/status/1618647891903660037) | 52 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 19:28:20
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 08:30:19
 *****
-En la toma de protesta del compañero presidente @lopezobrador_. Coadyuve para que nuestra fiesta se realizara sin tensiones ni incidentes. Intrigante.
-[Permalink](https://twitter.com/fernandeznorona/status/1618450738723819520) | 131 Me Gusta | 28 Retweets
+RT @FerCuevasMur: Conozco a un wey al que le regalaron una empresa paraestatal y hoy se queja de los impuestos que no paga. El cree que som…
+[Permalink](https://twitter.com/fernandeznorona/status/1618647531730399232) | 0 Me Gusta | 331 Retweets

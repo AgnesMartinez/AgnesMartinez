@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 15:51:24
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 19:54:14
 *****
-RT @DianaKarinaBa: Te esperamos en #Sonora querido amigo @fernandeznorona Ya todo listo para el finDe 🙌🏼
-[Permalink](https://twitter.com/fernandeznorona/status/1618396146120142848) | 0 Me Gusta | 17 Retweets
+RT @epigmenioibarra: Más de 700 millones de dólares robó García Luna al erario a lo largo de 18 años. En EU lo juzgan por narcotráfico. Aqu…
+[Permalink](https://twitter.com/fernandeznorona/status/1618457258551316480) | 0 Me Gusta | 3,459 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 15:49:53
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 19:49:20
 *****
-Carta abierta a ⁦@mario_delgado⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1618395763930955776) | 23 Me Gusta | 7 Retweets
+RT @AntiTelevisaMx: Éste es el vídeo que ha enfurecido a todos los corruptos de @AccionNacional, por mostrar el repudió que tienen los Mexi…
+[Permalink](https://twitter.com/fernandeznorona/status/1618456027015557122) | 0 Me Gusta | 2,399 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 15:06:15
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 19:31:49
 *****
-Pues mi compañero y amigo @RicardoMonrealA no debería estar porque no ha presidido el @senadomexicano.
-[Permalink](https://twitter.com/fernandeznorona/status/1618384783549267968) | 37 Me Gusta | 8 Retweets
+Asesóralos #chayoteferoz @rivapa, tú sí sabes cómo se logre impartir justicia.
+[Permalink](https://twitter.com/fernandeznorona/status/1618451617132732416) | 40 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 15:04:50
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 19:30:16
 *****
-RT @RincnCuriosoo: La compañía BIC publicó esta imagen y escribió: "No intentes cambiar algo hasta que deje de funcionar" 🖊
-[Permalink](https://twitter.com/fernandeznorona/status/1618384428358856706) | 0 Me Gusta | 4,950 Retweets
+RT @polimniaromana: Urge encontrar quien cuide a estos 5 bbs. Todavía traen el cordón umbilical.
+Abandonados en un parque en una caja de ca…
+[Permalink](https://twitter.com/fernandeznorona/status/1618451226517200897) | 0 Me Gusta | 97 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 15:02:38
+**Fernández Noroña** (**@fernandeznorona**) • 25-01-2023 a las 19:28:20
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1618383874672975872) | 23 Me Gusta | 4 Retweets
+En la toma de protesta del compañero presidente @lopezobrador_. Coadyuve para que nuestra fiesta se realizara sin tensiones ni incidentes. Intrigante.
+[Permalink](https://twitter.com/fernandeznorona/status/1618450738723819520) | 92 Me Gusta | 21 Retweets

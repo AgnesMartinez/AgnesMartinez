@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 21:09:17
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 10:09:22
 *****
-RT @__marrrrria: Amistades, es un honor para mí informarles que hoy defendí mi tesis y me aprobaron con MENCIÓN HONORÍFICA 😭😭 Oficialmente…
-[Permalink](https://twitter.com/fernandeznorona/status/1618838533183246336) | 0 Me Gusta | 19 Retweets
+Mañana, en Hermosillo.
+[Permalink](https://twitter.com/fernandeznorona/status/1619034849427308550) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 21:01:05
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 09:11:01
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1618836468696485888) | 50 Me Gusta | 8 Retweets
+RT @lximenezsarro: ¿Quién es Sandra Cuevas? ¿Que estudió?
+
+
+Yo tengo 7500 licenciaturas, 3000 maestrías y 300 doctorados en Harvard. Viajé a…
+[Permalink](https://twitter.com/fernandeznorona/status/1619020161536884737) | 0 Me Gusta | 230 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 20:59:46
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 09:09:48
 *****
-RT @alvaro_delgado: Nueve palestinos asesinados por Israel:
-[Permalink](https://twitter.com/fernandeznorona/status/1618836136788631554) | 0 Me Gusta | 472 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1619019857210802182) | 27 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 20:58:50
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 08:24:33
 *****
-RT @Dvd_qva: Si es una guerra, pero no es Ucrania, son las tropas y blindados que envia Dina Boluarte a enfrentar el levantamiento popular…
-[Permalink](https://twitter.com/fernandeznorona/status/1618835901303623680) | 0 Me Gusta | 1,635 Retweets
+¡Oila!
+[Permalink](https://twitter.com/fernandeznorona/status/1619008470723993604) | 152 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 20:57:46
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 08:05:33
 *****
-RT @HoyPalestina: ¡Nos están matando! ¿Dónde están los medios de comunicación? ¿Dónde está la comunidad internacional?
-[Permalink](https://twitter.com/fernandeznorona/status/1618835634319417344) | 0 Me Gusta | 4,860 Retweets
+Lo que hay que leer. Ahora resulta que la agredida es @SandraCuevas_. Su próxima marcha será indefensa de Genaro y Sandra. Incluyan al #TomandanteBorolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1619003685950062592) | 108 Me Gusta | 23 Retweets

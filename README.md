@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 13:17:37
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 21:09:17
 *****
-RT @Rawrbolito: @fernandeznorona Un saludo y un abrazo. Un gusto haberlo tenido por estas tierras santas 🙌🏻
-[Permalink](https://twitter.com/fernandeznorona/status/1618719832597495808) | 0 Me Gusta | 4 Retweets
+RT @__marrrrria: Amistades, es un honor para mí informarles que hoy defendí mi tesis y me aprobaron con MENCIÓN HONORÍFICA 😭😭 Oficialmente…
+[Permalink](https://twitter.com/fernandeznorona/status/1618838533183246336) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 13:16:46
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 21:01:05
 *****
-Larga vida al pueblo de Iztapalapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1618719619539427330) | 253 Me Gusta | 37 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1618836468696485888) | 23 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 13:16:20
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 20:59:46
 *****
-Me fue muy pero muy bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1618719512551120898) | 96 Me Gusta | 20 Retweets
+RT @alvaro_delgado: Nueve palestinos asesinados por Israel:
+[Permalink](https://twitter.com/fernandeznorona/status/1618836136788631554) | 0 Me Gusta | 439 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 13:15:42
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 20:58:50
 *****
-Muy motivante mi recorrido casa por casa en Iztapalapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1618719352311926784) | 83 Me Gusta | 21 Retweets
+RT @Dvd_qva: Si es una guerra, pero no es Ucrania, son las tropas y blindados que envia Dina Boluarte a enfrentar el levantamiento popular…
+[Permalink](https://twitter.com/fernandeznorona/status/1618835901303623680) | 0 Me Gusta | 1,332 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 13:14:54
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 20:57:46
 *****
-Tengan para que aprendan.
-[Permalink](https://twitter.com/fernandeznorona/status/1618719152340074496) | 208 Me Gusta | 41 Retweets
+RT @HoyPalestina: ¡Nos están matando! ¿Dónde están los medios de comunicación? ¿Dónde está la comunidad internacional?
+[Permalink](https://twitter.com/fernandeznorona/status/1618835634319417344) | 0 Me Gusta | 3,960 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 09:22:02
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 13:17:37
 *****
-Ya voy rumbo a Iztapalapa desde pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1618660548736073729) | 49 Me Gusta | 10 Retweets
+RT @Rawrbolito: @fernandeznorona Un saludo y un abrazo. Un gusto haberlo tenido por estas tierras santas 🙌🏻
+[Permalink](https://twitter.com/fernandeznorona/status/1618719832597495808) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 09:05:24
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 13:16:46
 *****
-RT @mae_rusia: 💬 Presidente Vladímir Putin: Hemos sido pacientes durante mucho tiempo, hemos intentado negociar [con las autoridades ucrani…
-[Permalink](https://twitter.com/fernandeznorona/status/1618656362900381696) | 0 Me Gusta | 727 Retweets
+Larga vida al pueblo de Iztapalapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1618719619539427330) | 253 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 09:05:06
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 13:16:20
 *****
-RT @ildottorechairo: 🇩🇪 Cientos de personas protestan en Múnich, Alemania contra la entrega de tanques Leopard y suministro de armas a Ucra…
-[Permalink](https://twitter.com/fernandeznorona/status/1618656287390334976) | 0 Me Gusta | 216 Retweets
+Me fue muy pero muy bien.
+[Permalink](https://twitter.com/fernandeznorona/status/1618719512551120898) | 96 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 08:31:45
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 13:15:42
 *****
-Golpe de Estado: @XiomaraCastroZ le llama a las cosas por su nombre.
-[Permalink](https://twitter.com/fernandeznorona/status/1618647891903660037) | 52 Me Gusta | 23 Retweets
+Muy motivante mi recorrido casa por casa en Iztapalapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1618719352311926784) | 83 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 08:30:19
+**Fernández Noroña** (**@fernandeznorona**) • 26-01-2023 a las 13:14:54
 *****
-RT @FerCuevasMur: Conozco a un wey al que le regalaron una empresa paraestatal y hoy se queja de los impuestos que no paga. El cree que som…
-[Permalink](https://twitter.com/fernandeznorona/status/1618647531730399232) | 0 Me Gusta | 331 Retweets
+Tengan para que aprendan.
+[Permalink](https://twitter.com/fernandeznorona/status/1618719152340074496) | 208 Me Gusta | 41 Retweets

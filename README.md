@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 10:09:22
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 15:55:18
 *****
-Mañana, en Hermosillo.
-[Permalink](https://twitter.com/fernandeznorona/status/1619034849427308550) | 1 Me Gusta | 0 Retweets
+RT @save__alejandro: @LJyDMX @Milenio @fernandeznorona @mario_delgado @elisaalanis siempre se porta muy gentil y profesional con todos. Oja…
+[Permalink](https://twitter.com/fernandeznorona/status/1619121903062622208) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 09:11:01
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 15:54:54
 *****
-RT @lximenezsarro: ¿Quién es Sandra Cuevas? ¿Que estudió?
-
-
-Yo tengo 7500 licenciaturas, 3000 maestrías y 300 doctorados en Harvard. Viajé a…
-[Permalink](https://twitter.com/fernandeznorona/status/1619020161536884737) | 0 Me Gusta | 230 Retweets
+Aquí andamos.
+[Permalink](https://twitter.com/fernandeznorona/status/1619121802504208385) | 41 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 09:09:48
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 15:52:36
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1619019857210802182) | 27 Me Gusta | 5 Retweets
+La video charla de hoy será entre 6:30 y las 6:45 PM.
+[Permalink](https://twitter.com/fernandeznorona/status/1619121226689150976) | 39 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 08:24:33
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 14:30:46
 *****
-¡Oila!
-[Permalink](https://twitter.com/fernandeznorona/status/1619008470723993604) | 152 Me Gusta | 23 Retweets
+“… cuando nadie mira por el pueblo, el pueblo mira por sí mismo; y cuando el pueblo mira por sí mismo, no es río que corre por su cauce natural, sino torrente que se desborda”.
+[Permalink](https://twitter.com/fernandeznorona/status/1619100629951197185) | 51 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 08:05:33
+**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 14:24:58
 *****
-Lo que hay que leer. Ahora resulta que la agredida es @SandraCuevas_. Su próxima marcha será indefensa de Genaro y Sandra. Incluyan al #TomandanteBorolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1619003685950062592) | 108 Me Gusta | 23 Retweets
+Aún no lo termino, pero este libro espléndido. Es de lectura obligada, lo volveremos a editar.
+[Permalink](https://twitter.com/fernandeznorona/status/1619099170123698176) | 55 Me Gusta | 12 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 09:15:16
+**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 15:51:32
 *****
-En Hermosillo, con mi amigo el gobernador @AlfonsoDurazo.
-[Permalink](https://twitter.com/fernandeznorona/status/1619383621277855744) | 52 Me Gusta | 15 Retweets
+Pues no, haremos la video charla a las 6:00 desde Santa Ana, Sonora.
+[Permalink](https://twitter.com/fernandeznorona/status/1619483342801600512) | 56 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 08:46:17
+**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 13:40:18
 *****
-RT @fjespriella: De @fernandeznorona se podrá decir todo lo que se quiera, menos que no tiene poder de convocatoria. A 15 minutos de empeza…
-[Permalink](https://twitter.com/fernandeznorona/status/1619376328700215296) | 0 Me Gusta | 14 Retweets
+RT @XORGE_VARGAS: ¡Llegaron¡  @fernandeznorona @CEditoriales
+[Permalink](https://twitter.com/fernandeznorona/status/1619450318143750144) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 08:46:05
+**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 13:37:19
 *****
-El gusto y el honor es mío, estimado compañero y amigo @AlfonsoDurazo.
-[Permalink](https://twitter.com/fernandeznorona/status/1619376276590166016) | 79 Me Gusta | 17 Retweets
+RT @ramon_flores_: Bienvenido a Sonora amigo @fernandeznorona listos para tus eventos Hermosillo 9:00 Cascada, Peñasco 2:00 plaza la Madre…
+[Permalink](https://twitter.com/fernandeznorona/status/1619449569368231936) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 22:00:39
+**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 13:36:38
 *****
-Mañana en Hermosillo.
-[Permalink](https://twitter.com/fernandeznorona/status/1619213847231090688) | 112 Me Gusta | 30 Retweets
+Vamos saliendo rumbo a Caborca. Ahí dormiremos hoy. Mañana, saldremos temprano para Puerto Peñasco.
+[Permalink](https://twitter.com/fernandeznorona/status/1619449396994928640) | 129 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-01-2023 a las 15:55:18
+**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 13:34:22
 *****
-RT @save__alejandro: @LJyDMX @Milenio @fernandeznorona @mario_delgado @elisaalanis siempre se porta muy gentil y profesional con todos. Oja…
-[Permalink](https://twitter.com/fernandeznorona/status/1619121903062622208) | 0 Me Gusta | 11 Retweets
+RT @DianaKarinaBa: ❗️TODO UN ÉXITO ❗️lleno total en la Asamblea Informativa de mi amigo @fernandeznorona en #Sonora 👏🏽👏🏽👏🏽 el @PTnacionalMX…
+[Permalink](https://twitter.com/fernandeznorona/status/1619448823662923779) | 0 Me Gusta | 31 Retweets

@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 15:51:32
+**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 20:33:57
 *****
-Pues no, haremos la video charla a las 6:00 desde Santa Ana, Sonora.
-[Permalink](https://twitter.com/fernandeznorona/status/1619483342801600512) | 56 Me Gusta | 10 Retweets
+Con la dirigente de morena Sonora ⁦@RayitoGaytan_⁩ y ⁦@ramon_flores_⁩, dirigente del PT Sonora.
+[Permalink](https://twitter.com/fernandeznorona/status/1619554416390213633) | 85 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 13:40:18
+**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 20:31:21
 *****
-RT @XORGE_VARGAS: ¡Llegaron¡  @fernandeznorona @CEditoriales
-[Permalink](https://twitter.com/fernandeznorona/status/1619450318143750144) | 0 Me Gusta | 8 Retweets
+RT @solangelochoa: ⭕Gran convocatoria durante la visita de @fernandeznorona  a #Sonora cuyo anfitrión fue el gobernador @AlfonsoDurazo  👇 @…
+[Permalink](https://twitter.com/fernandeznorona/status/1619553760719802368) | 0 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 13:37:19
+**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 20:30:20
 *****
-RT @ramon_flores_: Bienvenido a Sonora amigo @fernandeznorona listos para tus eventos Hermosillo 9:00 Cascada, Peñasco 2:00 plaza la Madre…
-[Permalink](https://twitter.com/fernandeznorona/status/1619449569368231936) | 0 Me Gusta | 28 Retweets
+RT @Beatriz84981597: Todo mundo sabía que @FelipeCalderon y García Luna, hacían negocios con el narco, pero solo el diputado Noroña @fernan…
+[Permalink](https://twitter.com/fernandeznorona/status/1619553506129752064) | 0 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 13:36:38
+**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 20:28:49
 *****
-Vamos saliendo rumbo a Caborca. Ahí dormiremos hoy. Mañana, saldremos temprano para Puerto Peñasco.
-[Permalink](https://twitter.com/fernandeznorona/status/1619449396994928640) | 129 Me Gusta | 19 Retweets
+RT @LuciaAlvites: Víctor Santiesteban Yacsavilca tenía 55 años, hoy debería volver con su familia, abrazar a los suyos, pero está dictadura…
+[Permalink](https://twitter.com/fernandeznorona/status/1619553125786066947) | 0 Me Gusta | 1,205 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 13:34:22
+**Fernández Noroña** (**@fernandeznorona**) • 28-01-2023 a las 20:28:38
 *****
-RT @DianaKarinaBa: ❗️TODO UN ÉXITO ❗️lleno total en la Asamblea Informativa de mi amigo @fernandeznorona en #Sonora 👏🏽👏🏽👏🏽 el @PTnacionalMX…
-[Permalink](https://twitter.com/fernandeznorona/status/1619448823662923779) | 0 Me Gusta | 31 Retweets
+RT @YumikoPalomarez: Un gran honor haber recibido al diputado @fernandeznorona, en su evento de Asamblea Informativa. 
+En Sonora se le esti…
+[Permalink](https://twitter.com/fernandeznorona/status/1619553078595948544) | 0 Me Gusta | 8 Retweets

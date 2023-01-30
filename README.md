@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 21:48:15
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 02:22:04
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1619935502819545088) | 10 Me Gusta | 1 Retweets
+Apenas llegando a casa.
+[Permalink](https://twitter.com/fernandeznorona/status/1620004410658263042) | 55 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 21:47:41
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 01:23:03
 *****
-RT @noroestemx: #POLÍTICA | A la reunión plenaria del grupo de diputados de Morena, que empezará este lunes, se sumarán los cinco aspirante…
-[Permalink](https://twitter.com/fernandeznorona/status/1619935361828016128) | 0 Me Gusta | 4 Retweets
+RT @Dvd_qva: Lima, brutal represión, así la democracia de Dina Boluarte...
+[Permalink](https://twitter.com/fernandeznorona/status/1619989561102442496) | 0 Me Gusta | 2,646 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 21:47:17
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 01:21:42
 *****
-RT @DianaKarinaBa: Andamos recorriendo #Sonora con mi amigo @fernandeznorona también tuvimos Asamblea Informativa en #Caborca. El @PTSonora…
-[Permalink](https://twitter.com/fernandeznorona/status/1619935258744614914) | 0 Me Gusta | 27 Retweets
+RT @HoyPalestina: LIMPIEZA ÉTNICA: La ocupación israelí acaba de emprender el derribo de 14 viviendas propiedad de palestinos en la Jerusal…
+[Permalink](https://twitter.com/fernandeznorona/status/1619989221200232448) | 0 Me Gusta | 465 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 21:44:54
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 01:21:18
 *****
-RT @Angievv5: Un honor haber recibido al Dip @fernandeznorona en caborca, junto al dirigente del PT sonora @ramon_flores_ regidor @renegarc…
-[Permalink](https://twitter.com/fernandeznorona/status/1619934658237718529) | 0 Me Gusta | 2 Retweets
+RT @HoyPalestina: Urgente: Fuerzas de ocupación israelíes asesinan a un jovén palestino en la ciudad ocupada de Hebron, en Cisjordania ocup…
+[Permalink](https://twitter.com/fernandeznorona/status/1619989120247558146) | 0 Me Gusta | 195 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 21:44:32
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 01:20:27
 *****
-RT @CalvinVS: Muy interesante escuchar al Dip. @fernandeznorona en su asamblea informativa. Gracias @ramon_flores_  Dirigente Estatal del @…
-[Permalink](https://twitter.com/fernandeznorona/status/1619934567410044928) | 0 Me Gusta | 14 Retweets
+RT @HoyPalestina: Urgente: Sube a 35 el número de palestinos asesinados por Israel en lo que va de año 2023.
+[Permalink](https://twitter.com/fernandeznorona/status/1619988905184595968) | 0 Me Gusta | 1,635 Retweets

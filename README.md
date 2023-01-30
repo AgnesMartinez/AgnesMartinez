@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 15:46:36
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 21:48:15
 *****
-RT @ramon_flores_: Esto es unidad…dos grandes referentes de la 4T @fernandeznorona @AlfonsoDurazo en la asamblea informativa. Gracias @fern…
-[Permalink](https://twitter.com/fernandeznorona/status/1619844491707584512) | 0 Me Gusta | 19 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1619935502819545088) | 10 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 15:18:00
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 21:47:41
 *****
-RT @DianaKarinaBa: La #CuartaTransformación tiene viento a favor en #Sonora y así nos tocó el clima en el bello #PuertoPeñasco, seguimos re…
-[Permalink](https://twitter.com/fernandeznorona/status/1619837291966656512) | 0 Me Gusta | 12 Retweets
+RT @noroestemx: #POLÍTICA | A la reunión plenaria del grupo de diputados de Morena, que empezará este lunes, se sumarán los cinco aspirante…
+[Permalink](https://twitter.com/fernandeznorona/status/1619935361828016128) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 13:27:43
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 21:47:17
 *****
-RT @adrisaa05: De nueva cuenta agradezco mucho al @CE_MXdiputados y a su coordinador, @fernandeznorona por la noble labor de editar libros…
-[Permalink](https://twitter.com/fernandeznorona/status/1619809540622675970) | 0 Me Gusta | 10 Retweets
+RT @DianaKarinaBa: Andamos recorriendo #Sonora con mi amigo @fernandeznorona también tuvimos Asamblea Informativa en #Caborca. El @PTSonora…
+[Permalink](https://twitter.com/fernandeznorona/status/1619935258744614914) | 0 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 13:25:07
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 21:44:54
 *****
-Justicia social a todos los rincones de la patria.
-[Permalink](https://twitter.com/fernandeznorona/status/1619808883782057984) | 134 Me Gusta | 41 Retweets
+RT @Angievv5: Un honor haber recibido al Dip @fernandeznorona en caborca, junto al dirigente del PT sonora @ramon_flores_ regidor @renegarc…
+[Permalink](https://twitter.com/fernandeznorona/status/1619934658237718529) | 0 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 13:24:12
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 21:44:32
 *****
-Erradicar toda violencia en contra de las mujeres.
-[Permalink](https://twitter.com/fernandeznorona/status/1619808654441713667) | 114 Me Gusta | 28 Retweets
+RT @CalvinVS: Muy interesante escuchar al Dip. @fernandeznorona en su asamblea informativa. Gracias @ramon_flores_  Dirigente Estatal del @…
+[Permalink](https://twitter.com/fernandeznorona/status/1619934567410044928) | 0 Me Gusta | 14 Retweets

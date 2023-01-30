@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 09:17:10
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 15:46:36
 *****
-Decepcionante. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1619746487759683584) | 23 Me Gusta | 5 Retweets
+RT @ramon_flores_: Esto es unidad…dos grandes referentes de la 4T @fernandeznorona @AlfonsoDurazo en la asamblea informativa. Gracias @fern…
+[Permalink](https://twitter.com/fernandeznorona/status/1619844491707584512) | 0 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 08:42:23
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 15:18:00
 *****
-De la entrevista ayer, en Hermosillo.
-[Permalink](https://twitter.com/fernandeznorona/status/1619737733412573186) | 129 Me Gusta | 21 Retweets
+RT @DianaKarinaBa: La #CuartaTransformación tiene viento a favor en #Sonora y así nos tocó el clima en el bello #PuertoPeñasco, seguimos re…
+[Permalink](https://twitter.com/fernandeznorona/status/1619837291966656512) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 08:41:17
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 13:27:43
 *****
-Con el alcalde de Caborca, Abrahám Mier, “el cubano”.
-[Permalink](https://twitter.com/fernandeznorona/status/1619737455833530368) | 60 Me Gusta | 10 Retweets
+RT @adrisaa05: De nueva cuenta agradezco mucho al @CE_MXdiputados y a su coordinador, @fernandeznorona por la noble labor de editar libros…
+[Permalink](https://twitter.com/fernandeznorona/status/1619809540622675970) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 08:38:01
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 13:25:07
 *****
-Saliendo rumbo a Puerto Peñasco.
-[Permalink](https://twitter.com/fernandeznorona/status/1619736634207145984) | 59 Me Gusta | 8 Retweets
+Justicia social a todos los rincones de la patria.
+[Permalink](https://twitter.com/fernandeznorona/status/1619808883782057984) | 134 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 08:36:11
+**Fernández Noroña** (**@fernandeznorona**) • 29-01-2023 a las 13:24:12
 *****
-Caborca.
-[Permalink](https://twitter.com/fernandeznorona/status/1619736171994845184) | 47 Me Gusta | 7 Retweets
+Erradicar toda violencia en contra de las mujeres.
+[Permalink](https://twitter.com/fernandeznorona/status/1619808654441713667) | 114 Me Gusta | 28 Retweets

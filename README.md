@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 15:35:24
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 20:58:32
 *****
-Y el billete de mil, un kilo.
-[Permalink](https://twitter.com/fernandeznorona/status/1620204061554528256) | 75 Me Gusta | 13 Retweets
+Ahí te hablan @PepetonD.
+[Permalink](https://twitter.com/fernandeznorona/status/1620285378354872320) | 23 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 15:34:44
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 20:58:06
 *****
-Mire usted, ni uno ni otro, yo.
-[Permalink](https://twitter.com/fernandeznorona/status/1620203891341262851) | 48 Me Gusta | 4 Retweets
+RT @rochaperiodista: Edgar Ulises Báez Gutiérez admite en una grabación: “tomé algunas referencias, no copié íntegramente la tesis” de la m…
+[Permalink](https://twitter.com/fernandeznorona/status/1620285271416913921) | 0 Me Gusta | 1,170 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 15:34:14
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 20:49:46
 *****
-Mi #chayoferoz @rivapa, acá le tengo un ábaco de regalo. Pase por él, se lo ganó a pulso.
-[Permalink](https://twitter.com/fernandeznorona/status/1620203764409073664) | 109 Me Gusta | 25 Retweets
+Inchi Nacho, a nosotros no nos diste Talavera, jejeje
+[Permalink](https://twitter.com/fernandeznorona/status/1620283171106586625) | 25 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 15:33:27
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 19:50:51
 *****
-RT @lamparadiogenes: ¿Vergüenza?
-
-
-Vergüenza la que deben sentir las maestras y maestros de @rivapa al comprobar que sus esfuerzos para que…
-[Permalink](https://twitter.com/fernandeznorona/status/1620203570409922561) | 0 Me Gusta | 6 Retweets
+We, un poco de empatía con la familia que debe estar destrozada.
+[Permalink](https://twitter.com/fernandeznorona/status/1620268346460745728) | 37 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 15:24:33
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 19:35:07
 *****
-Muy bien en invitar a todos. Mi reconocimiento para @NachoMierV y la fracción de @PartidoMorenaMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1620201331146502150) | 31 Me Gusta | 7 Retweets
+RT @NachoMierV: Gracias por acompañarnos a la Plenaria hermano @m_ebrard. Eres hombre de palabra, un digno representante de nuestro movimie…
+[Permalink](https://twitter.com/fernandeznorona/status/1620264387100672000) | 0 Me Gusta | 37 Retweets

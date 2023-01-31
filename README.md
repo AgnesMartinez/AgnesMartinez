@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 02:22:04
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 15:35:24
 *****
-Apenas llegando a casa.
-[Permalink](https://twitter.com/fernandeznorona/status/1620004410658263042) | 165 Me Gusta | 13 Retweets
+Y el billete de mil, un kilo.
+[Permalink](https://twitter.com/fernandeznorona/status/1620204061554528256) | 75 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 01:23:03
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 15:34:44
 *****
-RT @Dvd_qva: Lima, brutal represión, así la democracia de Dina Boluarte...
-[Permalink](https://twitter.com/fernandeznorona/status/1619989561102442496) | 0 Me Gusta | 2,738 Retweets
+Mire usted, ni uno ni otro, yo.
+[Permalink](https://twitter.com/fernandeznorona/status/1620203891341262851) | 48 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 01:21:42
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 15:34:14
 *****
-RT @HoyPalestina: LIMPIEZA ÉTNICA: La ocupación israelí acaba de emprender el derribo de 14 viviendas propiedad de palestinos en la Jerusal…
-[Permalink](https://twitter.com/fernandeznorona/status/1619989221200232448) | 0 Me Gusta | 1,457 Retweets
+Mi #chayoferoz @rivapa, acá le tengo un ábaco de regalo. Pase por él, se lo ganó a pulso.
+[Permalink](https://twitter.com/fernandeznorona/status/1620203764409073664) | 109 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 01:21:18
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 15:33:27
 *****
-RT @HoyPalestina: Urgente: Fuerzas de ocupación israelíes asesinan a un jovén palestino en la ciudad ocupada de Hebron, en Cisjordania ocup…
-[Permalink](https://twitter.com/fernandeznorona/status/1619989120247558146) | 0 Me Gusta | 433 Retweets
+RT @lamparadiogenes: ¿Vergüenza?
+
+
+Vergüenza la que deben sentir las maestras y maestros de @rivapa al comprobar que sus esfuerzos para que…
+[Permalink](https://twitter.com/fernandeznorona/status/1620203570409922561) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 01:20:27
+**Fernández Noroña** (**@fernandeznorona**) • 30-01-2023 a las 15:24:33
 *****
-RT @HoyPalestina: Urgente: Sube a 35 el número de palestinos asesinados por Israel en lo que va de año 2023.
-[Permalink](https://twitter.com/fernandeznorona/status/1619988905184595968) | 0 Me Gusta | 1,679 Retweets
+Muy bien en invitar a todos. Mi reconocimiento para @NachoMierV y la fracción de @PartidoMorenaMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1620201331146502150) | 31 Me Gusta | 7 Retweets

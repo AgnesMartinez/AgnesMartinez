@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 08:28:33
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 14:10:36
 *****
-Me acabo de topar con un grupo de profesoras de Chihuahua que dicen que los libros de texto promueven la pederastia y que hay una secta satánica en Palacio Nacional. ¿Qué haces con eso?
-[Permalink](https://twitter.com/fernandeznorona/status/1620821414302613505) | 451 Me Gusta | 68 Retweets
+En el debate que haya, cumpliré tu sueño @ChicShion -@ChicChillon- y te arrepentirás de andarme cucando. Y, aunque el debate será fuerte, NUNCA me pelearé con mi amiga y compañera @Claudiashein.
+[Permalink](https://twitter.com/fernandeznorona/status/1620907496549531654) | 52 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2023 a las 22:18:02
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 14:10:36
 *****
-Me voy a dormir pues mañana tendré una nueva jornada muy intensa. Casi no he podido avanzar en mi lectura. Aunque estoy muy cerca de terminarlo.
-[Permalink](https://twitter.com/fernandeznorona/status/1620667773050576896) | 99 Me Gusta | 16 Retweets
+Uh, éste ente anónimo dice apoyarte @Claudiashein y se la pasa injuriándome permanentemente. Miserable, cobarde, hipócrita, insolente, venenoso, injurioso, intrigante, sectaria y un largo etc es esta persona o colectivo, quien, por cierto, me ataca y no pone mi cuenta…
+[Permalink](https://twitter.com/fernandeznorona/status/1620907494301396993) | 74 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2023 a las 22:16:11
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 13:59:51
 *****
-RT @ReginaldoSF_PT: @fernandeznorona es reconocido por su congruencia y el continuo llamado a la unidad.
-
-
-Nos regimos por los valores y pri…
-[Permalink](https://twitter.com/fernandeznorona/status/1620667309856813056) | 0 Me Gusta | 18 Retweets
+Vete a estudiar derecho, aunque dudo que en eso seas ducho, tinterillo. Por otra parte. a muchos nos gusta el trabajo de @naocrochet; a ti no. Pues así son las cosas y santas pascuas.
+[Permalink](https://twitter.com/fernandeznorona/status/1620904787855446016) | 38 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2023 a las 22:14:20
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 13:36:03
 *****
-6255 en Facebook y 5475 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1620666844683321347) | 73 Me Gusta | 15 Retweets
+He ejercido. Los personajes que tejes acreditan conciencia, cultura y compromiso, además de un talento evidente. Los ataques son por tu postura política de compromiso con el pueblo. Ni caso les hagas. Abrazote @naocrochet.
+[Permalink](https://twitter.com/fernandeznorona/status/1620898798313824256) | 44 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-01-2023 a las 19:30:31
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 13:03:51
 *****
-Aquí con ⁦@AlbertoAnayaGt⁩ y amadeo Espinosa.
-[Permalink](https://twitter.com/fernandeznorona/status/1620625617992699905) | 297 Me Gusta | 41 Retweets
+Regalo para cada coordinador parlamentario.
+[Permalink](https://twitter.com/fernandeznorona/status/1620890698001129478) | 96 Me Gusta | 17 Retweets

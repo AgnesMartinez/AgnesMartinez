@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 20:58:45
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 09:46:34
 *****
-Regresé un montón de llamadas perdidas, así que no pude leer. Ya casi lo termino. A dormir pues mañana debo ir temprano al @SATMX; luego a @MorenaSenadores y, después al pleno de @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1621010211426238465) | 88 Me Gusta | 13 Retweets
+Muy contento y muy agradecido con ⁦@MorenaSenadores⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1621203435994451970) | 32 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 20:45:46
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 09:44:44
 *****
-RT @m_ebrard: Y que me encuentro a Gerardo Fernández Noroña en la plenaria de los grupos parlamentarios del PT , gran compañero y amigo. ht…
-[Permalink](https://twitter.com/fernandeznorona/status/1621006941559422977) | 0 Me Gusta | 389 Retweets
+Muy buena reunión con ⁦@MorenaSenadores⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1621202975707332615) | 21 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 20:42:58
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 09:22:27
 *****
-RT @pattygmiranda: CONEVAL: Programas sociales de AMLO evitaron que 4 millones de personas cayeran en pobreza y 2.5 en pobreza extrema.
-Ten…
-[Permalink](https://twitter.com/fernandeznorona/status/1621006237503733761) | 0 Me Gusta | 29 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1621197368006680576) | 82 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 20:37:40
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 09:22:15
 *****
-Si.
-[Permalink](https://twitter.com/fernandeznorona/status/1621004902741995520) | 23 Me Gusta | 5 Retweets
+Muy buena reunión en  @senadomexicano con @MorenaSenadores. Muy agradecido con toda la fracción y, en particular con @RicardoMonrealA y @armentapuebla_. Muchas gracias a la Senadoras y Senadores que acudieron a intercambiar puntos de vista conmigo.
+[Permalink](https://twitter.com/fernandeznorona/status/1621197316001599493) | 35 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 20:34:17
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 06:55:01
 *****
-Mi gira de este fin de semana en Nayarit.
-[Permalink](https://twitter.com/fernandeznorona/status/1621004051306487808) | 74 Me Gusta | 21 Retweets
+RT @rochaperiodista: Con Felipe Calderón la gasolina aumentó 22.9 por ciento, con el licenciado Peña Nieto 42.8 y con nosotros ha habido un…
+[Permalink](https://twitter.com/fernandeznorona/status/1621160263310352385) | 0 Me Gusta | 258 Retweets

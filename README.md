@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 14:10:36
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 20:58:45
 *****
-En el debate que haya, cumpliré tu sueño @ChicShion -@ChicChillon- y te arrepentirás de andarme cucando. Y, aunque el debate será fuerte, NUNCA me pelearé con mi amiga y compañera @Claudiashein.
-[Permalink](https://twitter.com/fernandeznorona/status/1620907496549531654) | 52 Me Gusta | 16 Retweets
+Regresé un montón de llamadas perdidas, así que no pude leer. Ya casi lo termino. A dormir pues mañana debo ir temprano al @SATMX; luego a @MorenaSenadores y, después al pleno de @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1621010211426238465) | 54 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 14:10:36
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 20:45:46
 *****
-Uh, éste ente anónimo dice apoyarte @Claudiashein y se la pasa injuriándome permanentemente. Miserable, cobarde, hipócrita, insolente, venenoso, injurioso, intrigante, sectaria y un largo etc es esta persona o colectivo, quien, por cierto, me ataca y no pone mi cuenta…
-[Permalink](https://twitter.com/fernandeznorona/status/1620907494301396993) | 74 Me Gusta | 21 Retweets
+RT @m_ebrard: Y que me encuentro a Gerardo Fernández Noroña en la plenaria de los grupos parlamentarios del PT , gran compañero y amigo. ht…
+[Permalink](https://twitter.com/fernandeznorona/status/1621006941559422977) | 0 Me Gusta | 383 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 13:59:51
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 20:42:58
 *****
-Vete a estudiar derecho, aunque dudo que en eso seas ducho, tinterillo. Por otra parte. a muchos nos gusta el trabajo de @naocrochet; a ti no. Pues así son las cosas y santas pascuas.
-[Permalink](https://twitter.com/fernandeznorona/status/1620904787855446016) | 38 Me Gusta | 6 Retweets
+RT @pattygmiranda: CONEVAL: Programas sociales de AMLO evitaron que 4 millones de personas cayeran en pobreza y 2.5 en pobreza extrema.
+Ten…
+[Permalink](https://twitter.com/fernandeznorona/status/1621006237503733761) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 13:36:03
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 20:37:40
 *****
-He ejercido. Los personajes que tejes acreditan conciencia, cultura y compromiso, además de un talento evidente. Los ataques son por tu postura política de compromiso con el pueblo. Ni caso les hagas. Abrazote @naocrochet.
-[Permalink](https://twitter.com/fernandeznorona/status/1620898798313824256) | 44 Me Gusta | 5 Retweets
+Si.
+[Permalink](https://twitter.com/fernandeznorona/status/1621004902741995520) | 16 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 13:03:51
+**Fernández Noroña** (**@fernandeznorona**) • 01-02-2023 a las 20:34:17
 *****
-Regalo para cada coordinador parlamentario.
-[Permalink](https://twitter.com/fernandeznorona/status/1620890698001129478) | 96 Me Gusta | 17 Retweets
+Mi gira de este fin de semana en Nayarit.
+[Permalink](https://twitter.com/fernandeznorona/status/1621004051306487808) | 54 Me Gusta | 17 Retweets

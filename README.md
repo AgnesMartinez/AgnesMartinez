@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 21:58:02
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 09:27:51
 *****
-“Los muertos solo mueren si dejamos que perezcan en nuestros corazones”. Maryse Condé.
-[Permalink](https://twitter.com/fernandeznorona/status/1621387515864424448) | 59 Me Gusta | 16 Retweets
+Ahí veo algunos compañeros, jejeje
+[Permalink](https://twitter.com/fernandeznorona/status/1621561114604478464) | 26 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 21:46:51
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 09:25:45
 *****
-Caray, buena intervención.
-[Permalink](https://twitter.com/fernandeznorona/status/1621384702971224064) | 32 Me Gusta | 9 Retweets
+RT @AnitaLomeli: Tras la polémica con militares en las instalaciones del Congreso, el diputado @fernandeznorona, del @PTnacionalMX y @leone…
+[Permalink](https://twitter.com/fernandeznorona/status/1621560586063462403) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 21:38:20
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 09:24:24
 *****
-Con mi nieto, que a dos días de cumplir un año ya va a @El_Pendulo⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1621382558654283776) | 460 Me Gusta | 33 Retweets
+Mira, resulta que mi nieto el Santiago del Sagrado Corazón de Jesús, nació el día del abogado.
+[Permalink](https://twitter.com/fernandeznorona/status/1621560248094916608) | 15 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 21:29:04
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 09:21:59
 *****
-Nunca he dicho que la gente lea un libro al día. Ni yo leo un libro al día.
-[Permalink](https://twitter.com/fernandeznorona/status/1621380225056784384) | 36 Me Gusta | 10 Retweets
+Jajajajejejejijijijojojojujuju, el vocero del gobierno de coalición de la ínsula Barataria será el subnormal de @JLozanoA.
+[Permalink](https://twitter.com/fernandeznorona/status/1621559636330520576) | 51 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 21:28:25
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 09:20:49
 *****
-¿Por qué no puedes ver en Facebook?
-[Permalink](https://twitter.com/fernandeznorona/status/1621380062280044545) | 16 Me Gusta | 8 Retweets
+No debe tolerarse ninguna injusticia. Seguro se dice creyente.
+[Permalink](https://twitter.com/fernandeznorona/status/1621559342552997890) | 16 Me Gusta | 6 Retweets

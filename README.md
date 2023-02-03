@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 09:46:34
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 15:54:09
 *****
-Muy contento y muy agradecido con ⁦@MorenaSenadores⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1621203435994451970) | 32 Me Gusta | 9 Retweets
+“Si no hubiera injusticia en la tierra, no sería yo un rebelde; pero mientras haya lágrimas y tristeza y angustia causadas por la injusticia, mi alma no puede estar en paz”. El gigante llamado Ricardo Flores Magón.
+[Permalink](https://twitter.com/fernandeznorona/status/1621295942615056384) | 66 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 09:44:44
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 13:18:31
 *****
-Muy buena reunión con ⁦@MorenaSenadores⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1621202975707332615) | 21 Me Gusta | 6 Retweets
+Naa, era por otra cosa.
+[Permalink](https://twitter.com/fernandeznorona/status/1621256775470137344) | 60 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 09:22:27
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 13:17:57
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1621197368006680576) | 82 Me Gusta | 7 Retweets
+RT @CelidaLopezc: Bienvenido a #Sonora, querido canciller, @m_ebrard. #TierraDeOportunidades
+[Permalink](https://twitter.com/fernandeznorona/status/1621256633698377737) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 09:22:15
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 13:17:29
 *****
-Muy buena reunión en  @senadomexicano con @MorenaSenadores. Muy agradecido con toda la fracción y, en particular con @RicardoMonrealA y @armentapuebla_. Muchas gracias a la Senadoras y Senadores que acudieron a intercambiar puntos de vista conmigo.
-[Permalink](https://twitter.com/fernandeznorona/status/1621197316001599493) | 35 Me Gusta | 12 Retweets
+Uchepos del portal de Pátzcuaro, con crema y salsa verde.
+[Permalink](https://twitter.com/fernandeznorona/status/1621256516689924098) | 34 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 06:55:01
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 13:16:32
 *****
-RT @rochaperiodista: Con Felipe Calderón la gasolina aumentó 22.9 por ciento, con el licenciado Peña Nieto 42.8 y con nosotros ha habido un…
-[Permalink](https://twitter.com/fernandeznorona/status/1621160263310352385) | 0 Me Gusta | 258 Retweets
+Pues claro, ese ese muy muy bueno, que trae ideas y pensamientos. ¿No fue @EPN el cliente?
+[Permalink](https://twitter.com/fernandeznorona/status/1621256276670877696) | 27 Me Gusta | 6 Retweets

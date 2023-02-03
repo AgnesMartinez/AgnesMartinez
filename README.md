@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 15:54:09
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 21:58:02
 *****
-“Si no hubiera injusticia en la tierra, no sería yo un rebelde; pero mientras haya lágrimas y tristeza y angustia causadas por la injusticia, mi alma no puede estar en paz”. El gigante llamado Ricardo Flores Magón.
-[Permalink](https://twitter.com/fernandeznorona/status/1621295942615056384) | 66 Me Gusta | 28 Retweets
+“Los muertos solo mueren si dejamos que perezcan en nuestros corazones”. Maryse Condé.
+[Permalink](https://twitter.com/fernandeznorona/status/1621387515864424448) | 18 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 13:18:31
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 21:46:51
 *****
-Naa, era por otra cosa.
-[Permalink](https://twitter.com/fernandeznorona/status/1621256775470137344) | 60 Me Gusta | 10 Retweets
+Caray, buena intervención.
+[Permalink](https://twitter.com/fernandeznorona/status/1621384702971224064) | 18 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 13:17:57
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 21:38:20
 *****
-RT @CelidaLopezc: Bienvenido a #Sonora, querido canciller, @m_ebrard. #TierraDeOportunidades
-[Permalink](https://twitter.com/fernandeznorona/status/1621256633698377737) | 0 Me Gusta | 14 Retweets
+Con mi nieto, que a dos días de cumplir un año ya va a @El_Pendulo⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1621382558654283776) | 179 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 13:17:29
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 21:29:04
 *****
-Uchepos del portal de Pátzcuaro, con crema y salsa verde.
-[Permalink](https://twitter.com/fernandeznorona/status/1621256516689924098) | 34 Me Gusta | 6 Retweets
+Nunca he dicho que la gente lea un libro al día. Ni yo leo un libro al día.
+[Permalink](https://twitter.com/fernandeznorona/status/1621380225056784384) | 22 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 13:16:32
+**Fernández Noroña** (**@fernandeznorona**) • 02-02-2023 a las 21:28:25
 *****
-Pues claro, ese ese muy muy bueno, que trae ideas y pensamientos. ¿No fue @EPN el cliente?
-[Permalink](https://twitter.com/fernandeznorona/status/1621256276670877696) | 27 Me Gusta | 6 Retweets
+¿Por qué no puedes ver en Facebook?
+[Permalink](https://twitter.com/fernandeznorona/status/1621380062280044545) | 8 Me Gusta | 5 Retweets

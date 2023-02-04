@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 16:36:50
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 21:57:40
 *****
-Lo acompaño siempre Librado Rivera, a excepción de la noche en que lo asesinaron.
-[Permalink](https://twitter.com/fernandeznorona/status/1621669073192108032) | 3 Me Gusta | 2 Retweets
+Cené en Ixtlán del Río, un pollo frito “La Picha”; suena a albur pero es un manjar. Delicioso, imperdible.
+[Permalink](https://twitter.com/fernandeznorona/status/1621749810847174656) | 18 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 16:35:30
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 21:55:46
 *****
-Este es un mensaje de 2018 ¿quién lo publicó ahora @TwitterMexico?
-[Permalink](https://twitter.com/fernandeznorona/status/1621668735915524096) | 5 Me Gusta | 2 Retweets
+Muy generoso José Luis Sánchez, fue por nosotros al aeropuerto de Guadalajara, nos trajo Ixtlán del Río; nos llevó a cenar esa maravilla de pollo frito y va de regreso para Guadalajara. Muy agradecido.
+[Permalink](https://twitter.com/fernandeznorona/status/1621749332025430016) | 34 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 16:34:13
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 18:20:01
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1621668414187253760) | 6 Me Gusta | 1 Retweets
+4348 en Facebook, no les creo nada. 8748 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1621695036831444993) | 56 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 16:33:10
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 17:13:31
 *****
-Apenas aterrizamos en Guadalajara.
-[Permalink](https://twitter.com/fernandeznorona/status/1621668150092922880) | 13 Me Gusta | 1 Retweets
+No, el problema es el abuso, la discrecionalidad,, la prepotencia. Una cosa es que pases un filtro de seguridad y otra es que hagan lo que les dé la gana.
+[Permalink](https://twitter.com/fernandeznorona/status/1621678303982800896) | 56 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 15:22:09
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 16:54:36
 *****
-Fe de erratas: donde dice de su actividad, debe decir de su seguridad. Para ser más preciso, de su pseudo seguridad.
-[Permalink](https://twitter.com/fernandeznorona/status/1621650277903306752) | 17 Me Gusta | 4 Retweets
+Encima, nos tocó posición remoto. Así que ni siquiera hemos llegado a la terminal.
+[Permalink](https://twitter.com/fernandeznorona/status/1621673541921038336) | 69 Me Gusta | 6 Retweets

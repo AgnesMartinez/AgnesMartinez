@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 09:27:51
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 16:36:50
 *****
-Ahí veo algunos compañeros, jejeje
-[Permalink](https://twitter.com/fernandeznorona/status/1621561114604478464) | 26 Me Gusta | 9 Retweets
+Lo acompaño siempre Librado Rivera, a excepción de la noche en que lo asesinaron.
+[Permalink](https://twitter.com/fernandeznorona/status/1621669073192108032) | 3 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 09:25:45
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 16:35:30
 *****
-RT @AnitaLomeli: Tras la polémica con militares en las instalaciones del Congreso, el diputado @fernandeznorona, del @PTnacionalMX y @leone…
-[Permalink](https://twitter.com/fernandeznorona/status/1621560586063462403) | 0 Me Gusta | 6 Retweets
+Este es un mensaje de 2018 ¿quién lo publicó ahora @TwitterMexico?
+[Permalink](https://twitter.com/fernandeznorona/status/1621668735915524096) | 5 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 09:24:24
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 16:34:13
 *****
-Mira, resulta que mi nieto el Santiago del Sagrado Corazón de Jesús, nació el día del abogado.
-[Permalink](https://twitter.com/fernandeznorona/status/1621560248094916608) | 15 Me Gusta | 3 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1621668414187253760) | 6 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 09:21:59
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 16:33:10
 *****
-Jajajajejejejijijijojojojujuju, el vocero del gobierno de coalición de la ínsula Barataria será el subnormal de @JLozanoA.
-[Permalink](https://twitter.com/fernandeznorona/status/1621559636330520576) | 51 Me Gusta | 11 Retweets
+Apenas aterrizamos en Guadalajara.
+[Permalink](https://twitter.com/fernandeznorona/status/1621668150092922880) | 13 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 09:20:49
+**Fernández Noroña** (**@fernandeznorona**) • 03-02-2023 a las 15:22:09
 *****
-No debe tolerarse ninguna injusticia. Seguro se dice creyente.
-[Permalink](https://twitter.com/fernandeznorona/status/1621559342552997890) | 16 Me Gusta | 6 Retweets
+Fe de erratas: donde dice de su actividad, debe decir de su seguridad. Para ser más preciso, de su pseudo seguridad.
+[Permalink](https://twitter.com/fernandeznorona/status/1621650277903306752) | 17 Me Gusta | 4 Retweets

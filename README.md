@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-02-2023 a las 09:57:50
+**Fernández Noroña** (**@fernandeznorona**) • 04-02-2023 a las 15:58:12
 *****
-Así en Ixtlán del Río.
-[Permalink](https://twitter.com/fernandeznorona/status/1621931046211145733) | 33 Me Gusta | 9 Retweets
+Ya inícianos.
+[Permalink](https://twitter.com/fernandeznorona/status/1622021735796166656) | 40 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-02-2023 a las 09:27:10
+**Fernández Noroña** (**@fernandeznorona**) • 04-02-2023 a las 15:45:06
 *****
-Ixtlán del Río, Nayarit.
-[Permalink](https://twitter.com/fernandeznorona/status/1621923328368775168) | 50 Me Gusta | 11 Retweets
+Nos tocó el sol de frente.
+[Permalink](https://twitter.com/fernandeznorona/status/1622018438871891969) | 66 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-02-2023 a las 08:33:38
+**Fernández Noroña** (**@fernandeznorona**) • 04-02-2023 a las 15:44:13
 *****
-Pues francamente es de las personas más consistentes de la derecha. Lástima que lo proponga @gilbertolozanog.
-[Permalink](https://twitter.com/fernandeznorona/status/1621909859867283457) | 44 Me Gusta | 6 Retweets
+Tecuala, Nayarit. Antes de empezar.
+[Permalink](https://twitter.com/fernandeznorona/status/1622018217177751553) | 26 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-02-2023 a las 08:31:55
+**Fernández Noroña** (**@fernandeznorona**) • 04-02-2023 a las 15:09:04
 *****
-¡Grande!
-[Permalink](https://twitter.com/fernandeznorona/status/1621909426998312960) | 19 Me Gusta | 5 Retweets
+En Tecuala son las cuatro de la tarde, hora de la asamblea informativa. Por lo tanto, la video charla será a las siete de la noche hora del centro, pues no creo desocuparme antes
+[Permalink](https://twitter.com/fernandeznorona/status/1622009372124626944) | 59 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-02-2023 a las 08:24:36
+**Fernández Noroña** (**@fernandeznorona**) • 04-02-2023 a las 15:06:06
 *****
-Pero yo estoy jugando entre el platillo del jefe y el tigre Toño.
-[Permalink](https://twitter.com/fernandeznorona/status/1621907583731736576) | 40 Me Gusta | 4 Retweets
+No sabes de lo que te pierdes.
+[Permalink](https://twitter.com/fernandeznorona/status/1622008625869750274) | 40 Me Gusta | 2 Retweets

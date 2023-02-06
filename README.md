@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 15:12:55
+**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 21:36:13
 *****
-Asamblea en Bahía de Banderas.
-[Permalink](https://twitter.com/fernandeznorona/status/1622372729943883776) | 92 Me Gusta | 15 Retweets
+Mi regalo de hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1622469190186676229) | 55 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 15:03:02
+**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 21:14:06
 *****
-Bahía de Banderas.
-[Permalink](https://twitter.com/fernandeznorona/status/1622370241761185792) | 56 Me Gusta | 10 Retweets
+Toda mi solidaridad con el pueblo de Chile.
+[Permalink](https://twitter.com/fernandeznorona/status/1622463625502855169) | 145 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 14:03:48
+**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 21:13:49
 *****
-Con ⁦@FugioOrtiz⁩ en Tepic.
-[Permalink](https://twitter.com/fernandeznorona/status/1622355333963300864) | 59 Me Gusta | 13 Retweets
+Toda mi solidaridad con el pueblo de Turquía.
+[Permalink](https://twitter.com/fernandeznorona/status/1622463551951499268) | 115 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 14:03:09
+**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 21:12:38
 *****
-Tepic.
-[Permalink](https://twitter.com/fernandeznorona/status/1622355170746318848) | 107 Me Gusta | 23 Retweets
+RT @galvanochoa: 𝐋𝐨𝐬 𝐞𝐱𝐩𝐞𝐫𝐭𝐨𝐬, Hernández en @lajornadaonline.
+[Permalink](https://twitter.com/fernandeznorona/status/1622463252952408066) | 0 Me Gusta | 712 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 14:02:33
+**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 21:11:20
 *****
-Hoy en Tepic.
-[Permalink](https://twitter.com/fernandeznorona/status/1622355020745248769) | 192 Me Gusta | 32 Retweets
+RT @PonchoGutz: Santiago Creel: Las principales transformaciones de México se dieron mediante el diálogo.
+
+
+El diálogo:
+[Permalink](https://twitter.com/fernandeznorona/status/1622462926736031747) | 0 Me Gusta | 149 Retweets

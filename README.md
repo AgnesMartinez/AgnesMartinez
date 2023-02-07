@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 14:17:28
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 21:08:30
 *****
-Me entero con sorpresa del fallecimiento de Nohemí Beraud Osorio. Fue colaboradora nuestra cuando fui vocero del @PRDMexico -2004 al 2008-. Mi solidaridad para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1622721161519050753) | 64 Me Gusta | 10 Retweets
+¡Un par! Oye a éste ignorante. Compártenos los 30 millones de personas que votaron por tu piña, bebé.
+[Permalink](https://twitter.com/fernandeznorona/status/1622824602992009216) | 76 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 14:13:28
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 21:04:33
 *****
-Muy augusto…
-[Permalink](https://twitter.com/fernandeznorona/status/1622720155188105216) | 32 Me Gusta | 6 Retweets
+Lo terminé. Es una historia terrible y, sin embargo, Maryse Condé se las arregla para terminarlo bellamente. Desnuda al racismo de manera absoluta. Es brutal.
+[Permalink](https://twitter.com/fernandeznorona/status/1622823608514121728) | 49 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 14:13:02
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 20:58:39
 *****
-RT @_MistWolf_: Tengo excelentes noticias, me reuniré con José Luis Sánchez, responsable del @ptjalisco y diputado federal, ya les estaré c…
-[Permalink](https://twitter.com/fernandeznorona/status/1622720046278799361) | 0 Me Gusta | 17 Retweets
+¿Qué es una vida comparada con la inmensidad del tiempo? Maryse Condé.
+[Permalink](https://twitter.com/fernandeznorona/status/1622822123701141504) | 28 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 14:08:12
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 20:19:19
 *****
-¡Óyela!
-[Permalink](https://twitter.com/fernandeznorona/status/1622718829490212864) | 80 Me Gusta | 15 Retweets
+@Kentt_Blue @Pemex @lopezobrador_ @oxxogas @SheffieldGto Cínicamente.
+[Permalink](https://twitter.com/fernandeznorona/status/1622812224774631424) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 14:05:00
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 20:16:00
 *****
-Que nos diga @rivapa ¿cuántas toneladas eran 25 millones de pesos? #ChayoteFeroz.
-[Permalink](https://twitter.com/fernandeznorona/status/1622718023798001665) | 161 Me Gusta | 61 Retweets
+RT @jenarovillamil: Tremenda la tragedia en  #Turquia. Más de 4 mil personas fallecidas y más de 5
+Mil estructuras dañadas tras un sismo qu…
+[Permalink](https://twitter.com/fernandeznorona/status/1622811388698836992) | 0 Me Gusta | 49 Retweets

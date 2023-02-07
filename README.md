@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 09:57:06
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 14:17:28
 *****
-RT @ReginaldoSF_PT: Envío un abrazo solidario a todas las familias que han perdido a seres amados, así como sus hogares. Es una tragedia la…
-[Permalink](https://twitter.com/fernandeznorona/status/1622655640954077184) | 0 Me Gusta | 3 Retweets
+Me entero con sorpresa del fallecimiento de Nohemí Beraud Osorio. Fue colaboradora nuestra cuando fui vocero del @PRDMexico -2004 al 2008-. Mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1622721161519050753) | 64 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 21:36:13
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 14:13:28
 *****
-Mi regalo de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1622469190186676229) | 305 Me Gusta | 42 Retweets
+Muy augusto…
+[Permalink](https://twitter.com/fernandeznorona/status/1622720155188105216) | 32 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 21:14:06
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 14:13:02
 *****
-Toda mi solidaridad con el pueblo de Chile.
-[Permalink](https://twitter.com/fernandeznorona/status/1622463625502855169) | 543 Me Gusta | 44 Retweets
+RT @_MistWolf_: Tengo excelentes noticias, me reuniré con José Luis Sánchez, responsable del @ptjalisco y diputado federal, ya les estaré c…
+[Permalink](https://twitter.com/fernandeznorona/status/1622720046278799361) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 21:13:49
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 14:08:12
 *****
-Toda mi solidaridad con el pueblo de Turquía.
-[Permalink](https://twitter.com/fernandeznorona/status/1622463551951499268) | 340 Me Gusta | 32 Retweets
+¡Óyela!
+[Permalink](https://twitter.com/fernandeznorona/status/1622718829490212864) | 80 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-02-2023 a las 21:12:38
+**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 14:05:00
 *****
-RT @galvanochoa: 𝐋𝐨𝐬 𝐞𝐱𝐩𝐞𝐫𝐭𝐨𝐬, Hernández en @lajornadaonline.
-[Permalink](https://twitter.com/fernandeznorona/status/1622463252952408066) | 0 Me Gusta | 793 Retweets
+Que nos diga @rivapa ¿cuántas toneladas eran 25 millones de pesos? #ChayoteFeroz.
+[Permalink](https://twitter.com/fernandeznorona/status/1622718023798001665) | 161 Me Gusta | 61 Retweets

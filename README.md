@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 16:01:33
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 19:45:02
 *****
-Muchas felicidades al compañero secretario de la @SEDENAmx, @luis_c_sandoval en su cumpleaños.
-[Permalink](https://twitter.com/fernandeznorona/status/1623109745384243200) | 68 Me Gusta | 8 Retweets
+“La crisis consiste precisamente en que lo viejo está muriendo y lo nuevo no puede nacer: durante este interregno surgen los más variados síntomas mórbidos”. Gramsci citado por Labatut.
+[Permalink](https://twitter.com/fernandeznorona/status/1623165985195982849) | 37 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 15:48:08
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 19:40:34
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1623106367954518018) | 67 Me Gusta | 13 Retweets
+Lo terminé. Bueno, sobre la locura de los celos. Recomendable.
+[Permalink](https://twitter.com/fernandeznorona/status/1623164862015877120) | 51 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 14:46:28
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 19:20:55
 *****
-Inauguraste peores pifias en la instalación de Congreso General, donde le negaste la palabra a un par. @SantiagoCreelM.
-[Permalink](https://twitter.com/fernandeznorona/status/1623090846878044160) | 48 Me Gusta | 11 Retweets
+No. Ya dijo #NiegoCategoricamente.
+[Permalink](https://twitter.com/fernandeznorona/status/1623159915924852737) | 35 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 14:42:09
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 19:19:48
 *****
-¿En la “Chaya Maya?
-[Permalink](https://twitter.com/fernandeznorona/status/1623089763032109056) | 30 Me Gusta | 1 Retweets
+RT @JorgeMoch: Cuando trabajé en @Milenio tuve de jefe directo a @carlosmarin, y siempre fue insoportable. Censuraba todo, y además era de…
+[Permalink](https://twitter.com/fernandeznorona/status/1623159633639800833) | 0 Me Gusta | 169 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 14:40:32
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 19:19:13
 *****
-Pues no, fíjese. Ganaré la candidatura. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1623089356226592769) | 63 Me Gusta | 9 Retweets
+Se le acabó la independencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1623159486579109888) | 60 Me Gusta | 17 Retweets

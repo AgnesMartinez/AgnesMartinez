@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 19:45:02
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 09:44:59
 *****
-“La crisis consiste precisamente en que lo viejo está muriendo y lo nuevo no puede nacer: durante este interregno surgen los más variados síntomas mórbidos”. Gramsci citado por Labatut.
-[Permalink](https://twitter.com/fernandeznorona/status/1623165985195982849) | 37 Me Gusta | 10 Retweets
+RT @TobiasLatour: En mi visita al @aifaaero tomé el Mexibus, transbordé al Metro Bus y después al Metro en Indios verdes hacia mi destino d…
+[Permalink](https://twitter.com/fernandeznorona/status/1623377365463142401) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 19:40:34
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 09:43:21
 *****
-Lo terminé. Bueno, sobre la locura de los celos. Recomendable.
-[Permalink](https://twitter.com/fernandeznorona/status/1623164862015877120) | 51 Me Gusta | 5 Retweets
+RT @AlbertoAnayaGt: En estos momentos de crisis y tragedia, nos solidarizamos con los pueblos y Gobiernos de Turquía y Siria. Oportuno el a…
+[Permalink](https://twitter.com/fernandeznorona/status/1623376952819126313) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 19:20:55
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 08:45:46
 *****
-No. Ya dijo #NiegoCategoricamente.
-[Permalink](https://twitter.com/fernandeznorona/status/1623159915924852737) | 35 Me Gusta | 7 Retweets
+Pide Delfina que las corcholatas le echen la mano en Edomex – El Financiero. No pues le agradezco a ⁦@delfinagomeza⁩ que invite a mis cuatro compañeros aspirantes citados por nombre “y a otros”.
+[Permalink](https://twitter.com/fernandeznorona/status/1623362463478517770) | 29 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 19:19:48
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 08:24:06
 *****
-RT @JorgeMoch: Cuando trabajé en @Milenio tuve de jefe directo a @carlosmarin, y siempre fue insoportable. Censuraba todo, y además era de…
-[Permalink](https://twitter.com/fernandeznorona/status/1623159633639800833) | 0 Me Gusta | 169 Retweets
+Agenda de esta semana.
+[Permalink](https://twitter.com/fernandeznorona/status/1623357011525046318) | 50 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 19:19:13
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 07:25:49
 *****
-Se le acabó la independencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1623159486579109888) | 60 Me Gusta | 17 Retweets
+Ya en @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1623342341770674176) | 92 Me Gusta | 10 Retweets

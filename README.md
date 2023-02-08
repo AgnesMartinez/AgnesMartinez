@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 21:08:30
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 16:01:33
 *****
-¡Un par! Oye a éste ignorante. Compártenos los 30 millones de personas que votaron por tu piña, bebé.
-[Permalink](https://twitter.com/fernandeznorona/status/1622824602992009216) | 178 Me Gusta | 42 Retweets
+Muchas felicidades al compañero secretario de la @SEDENAmx, @luis_c_sandoval en su cumpleaños.
+[Permalink](https://twitter.com/fernandeznorona/status/1623109745384243200) | 68 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 21:04:33
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 15:48:08
 *****
-Lo terminé. Es una historia terrible y, sin embargo, Maryse Condé se las arregla para terminarlo bellamente. Desnuda al racismo de manera absoluta. Es brutal.
-[Permalink](https://twitter.com/fernandeznorona/status/1622823608514121728) | 70 Me Gusta | 18 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1623106367954518018) | 67 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 20:58:39
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 14:46:28
 *****
-¿Qué es una vida comparada con la inmensidad del tiempo? Maryse Condé.
-[Permalink](https://twitter.com/fernandeznorona/status/1622822123701141504) | 50 Me Gusta | 7 Retweets
+Inauguraste peores pifias en la instalación de Congreso General, donde le negaste la palabra a un par. @SantiagoCreelM.
+[Permalink](https://twitter.com/fernandeznorona/status/1623090846878044160) | 48 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 20:19:19
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 14:42:09
 *****
-@Kentt_Blue @Pemex @lopezobrador_ @oxxogas @SheffieldGto Cínicamente.
-[Permalink](https://twitter.com/fernandeznorona/status/1622812224774631424) | 5 Me Gusta | 1 Retweets
+¿En la “Chaya Maya?
+[Permalink](https://twitter.com/fernandeznorona/status/1623089763032109056) | 30 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-02-2023 a las 20:16:00
+**Fernández Noroña** (**@fernandeznorona**) • 07-02-2023 a las 14:40:32
 *****
-RT @jenarovillamil: Tremenda la tragedia en  #Turquia. Más de 4 mil personas fallecidas y más de 5
-Mil estructuras dañadas tras un sismo qu…
-[Permalink](https://twitter.com/fernandeznorona/status/1622811388698836992) | 0 Me Gusta | 67 Retweets
+Pues no, fíjese. Ganaré la candidatura. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1623089356226592769) | 63 Me Gusta | 9 Retweets

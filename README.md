@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 09:44:59
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 20:32:43
 *****
-RT @TobiasLatour: En mi visita al @aifaaero tomé el Mexibus, transbordé al Metro Bus y después al Metro en Indios verdes hacia mi destino d…
-[Permalink](https://twitter.com/fernandeznorona/status/1623377365463142401) | 0 Me Gusta | 9 Retweets
+RT @LaydaSansores: Encontramos los documentos de pagos a Televisa y otros medios locales, de facturas que no tienen sustento, no dice para…
+[Permalink](https://twitter.com/fernandeznorona/status/1623540374974398466) | 0 Me Gusta | 1,785 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 09:43:21
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 20:29:55
 *****
-RT @AlbertoAnayaGt: En estos momentos de crisis y tragedia, nos solidarizamos con los pueblos y Gobiernos de Turquía y Siria. Oportuno el a…
-[Permalink](https://twitter.com/fernandeznorona/status/1623376952819126313) | 0 Me Gusta | 9 Retweets
+¿La alcaldía? Naa, La ALDF.
+[Permalink](https://twitter.com/fernandeznorona/status/1623539670226440194) | 27 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 08:45:46
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 19:38:36
 *****
-Pide Delfina que las corcholatas le echen la mano en Edomex – El Financiero. No pues le agradezco a ⁦@delfinagomeza⁩ que invite a mis cuatro compañeros aspirantes citados por nombre “y a otros”.
-[Permalink](https://twitter.com/fernandeznorona/status/1623362463478517770) | 29 Me Gusta | 9 Retweets
+RT @epigmenioibarra: Celebro que en el juicio de García Luna se haya señalado a Felipe Calderón y espero que, el gobierno de los EEUU y sus…
+[Permalink](https://twitter.com/fernandeznorona/status/1623526755607670791) | 0 Me Gusta | 2,395 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 08:24:06
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 19:31:54
 *****
-Agenda de esta semana.
-[Permalink](https://twitter.com/fernandeznorona/status/1623357011525046318) | 50 Me Gusta | 10 Retweets
+Ay pobre @rivapa, mártir de la libertad de expresión. ¿Cuántas toneladas de chayote llevas perdidas durante este sexenio?
+[Permalink](https://twitter.com/fernandeznorona/status/1623525066670579713) | 138 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 07:25:49
+**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 19:30:38
 *****
-Ya en @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1623342341770674176) | 92 Me Gusta | 10 Retweets
+Niego categóricamente que esta foto esté trucada.
+[Permalink](https://twitter.com/fernandeznorona/status/1623524748272574465) | 201 Me Gusta | 49 Retweets

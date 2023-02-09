@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 20:32:43
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 10:05:14
 *****
-RT @LaydaSansores: Encontramos los documentos de pagos a Televisa y otros medios locales, de facturas que no tienen sustento, no dice para…
-[Permalink](https://twitter.com/fernandeznorona/status/1623540374974398466) | 0 Me Gusta | 1,785 Retweets
+El señorito X @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1623744849986871296) | 13 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 20:29:55
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 09:49:39
 *****
-¿La alcaldía? Naa, La ALDF.
-[Permalink](https://twitter.com/fernandeznorona/status/1623539670226440194) | 27 Me Gusta | 3 Retweets
+RT @LJyDMX: Todo listo para la gira de trabajo y asambleas informativas que nuestro #CharroNegro @fernandeznorona realizará en #Michoacán e…
+[Permalink](https://twitter.com/fernandeznorona/status/1623740925796143105) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 19:38:36
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 09:47:50
 *****
-RT @epigmenioibarra: Celebro que en el juicio de García Luna se haya señalado a Felipe Calderón y espero que, el gobierno de los EEUU y sus…
-[Permalink](https://twitter.com/fernandeznorona/status/1623526755607670791) | 0 Me Gusta | 2,395 Retweets
+RT @FernandoCruzFr7: ‼️EXTORSIONAN A ABUELITA Y LE ROBAN 15 MIL PESOS‼️ estos supuestos trabajadores de la @CFE_Contigo le hicieron creer a…
+[Permalink](https://twitter.com/fernandeznorona/status/1623740469065678851) | 0 Me Gusta | 1,299 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 19:31:54
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 09:45:17
 *****
-Ay pobre @rivapa, mártir de la libertad de expresión. ¿Cuántas toneladas de chayote llevas perdidas durante este sexenio?
-[Permalink](https://twitter.com/fernandeznorona/status/1623525066670579713) | 138 Me Gusta | 49 Retweets
+RT @AnibalGarzon: El pueblo sirio padece un devastador terremoto con miles de muertos y los Estados Unidos y la Unión Europea no levantan a…
+[Permalink](https://twitter.com/fernandeznorona/status/1623739830885658628) | 0 Me Gusta | 3,677 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-02-2023 a las 19:30:38
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 09:44:34
 *****
-Niego categóricamente que esta foto esté trucada.
-[Permalink](https://twitter.com/fernandeznorona/status/1623524748272574465) | 201 Me Gusta | 49 Retweets
+RT @jgnaredo: ¿De verdad no sabía Felipe Calderón de todo los lujos con que vivía su secretario de seguridad pública?
+
+
+¿De verdad no sabía…
+[Permalink](https://twitter.com/fernandeznorona/status/1623739648546594817) | 0 Me Gusta | 395 Retweets

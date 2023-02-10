@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 10:05:14
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 12:36:35
 *****
-El señorito X @ClaudioXGG.
-[Permalink](https://twitter.com/fernandeznorona/status/1623744849986871296) | 13 Me Gusta | 3 Retweets
+¡Fatal!
+[Permalink](https://twitter.com/fernandeznorona/status/1623782939258503169) | 49 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 09:49:39
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 12:04:58
 *****
-RT @LJyDMX: Todo listo para la gira de trabajo y asambleas informativas que nuestro #CharroNegro @fernandeznorona realizará en #Michoacán e…
-[Permalink](https://twitter.com/fernandeznorona/status/1623740925796143105) | 0 Me Gusta | 10 Retweets
+He retirado mi petición de destituir a @SantiagoCreelM ya que la fracción del @PTnacionalMX no acompaña la solicitud. Mi posición política al respecto se mantiene, pero no cuenta ni con mayoría simple.
+[Permalink](https://twitter.com/fernandeznorona/status/1623774983108304899) | 803 Me Gusta | 138 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 09:47:50
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 11:47:56
 *****
-RT @FernandoCruzFr7: ‼️EXTORSIONAN A ABUELITA Y LE ROBAN 15 MIL PESOS‼️ estos supuestos trabajadores de la @CFE_Contigo le hicieron creer a…
-[Permalink](https://twitter.com/fernandeznorona/status/1623740469065678851) | 0 Me Gusta | 1,299 Retweets
+Y dicen que soy “mecha corta”.
+[Permalink](https://twitter.com/fernandeznorona/status/1623770695434919936) | 57 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 09:45:17
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 11:46:49
 *****
-RT @AnibalGarzon: El pueblo sirio padece un devastador terremoto con miles de muertos y los Estados Unidos y la Unión Europea no levantan a…
-[Permalink](https://twitter.com/fernandeznorona/status/1623739830885658628) | 0 Me Gusta | 3,677 Retweets
+RT @ManuSteels: Cierto. Se tiende a olvidar eso. Noroña era el único que le decía sus verdades a GGL, que le pedía cuentas y que lo enfrent…
+[Permalink](https://twitter.com/fernandeznorona/status/1623770412474679296) | 0 Me Gusta | 86 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 09:44:34
+**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 11:40:59
 *****
-RT @jgnaredo: ¿De verdad no sabía Felipe Calderón de todo los lujos con que vivía su secretario de seguridad pública?
-
-
-¿De verdad no sabía…
-[Permalink](https://twitter.com/fernandeznorona/status/1623739648546594817) | 0 Me Gusta | 395 Retweets
+Hoy, en la efeméride al golpe de estado en México, que culminó con el asesinato del presidente Madero.
+[Permalink](https://twitter.com/fernandeznorona/status/1623768946309464065) | 136 Me Gusta | 29 Retweets

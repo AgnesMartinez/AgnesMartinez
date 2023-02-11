@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 16:34:38
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 20:25:17
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1624205235043565568) | 3 Me Gusta | 1 Retweets
+Reunión con el alcaldes y alcaldesas de la región.
+[Permalink](https://twitter.com/fernandeznorona/status/1624263276749258754) | 71 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 15:19:54
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 17:03:18
 *****
-Voy saliendo de Aguililla rumbo Apatzingán. Llegando transmitiré. 6:45 de la tarde más o menos.
-[Permalink](https://twitter.com/fernandeznorona/status/1624186424412053504) | 81 Me Gusta | 11 Retweets
+Apenas llegando a Apatzingán. Paciencia, ya casi.
+[Permalink](https://twitter.com/fernandeznorona/status/1624212448206270466) | 100 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 13:10:47
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 16:50:43
 *****
-Escuela de cuadros de la derecha.
-[Permalink](https://twitter.com/fernandeznorona/status/1624153931440959488) | 137 Me Gusta | 17 Retweets
+En Aguililla.
+[Permalink](https://twitter.com/fernandeznorona/status/1624209280499843074) | 108 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 12:24:43
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 16:45:28
 *****
-Besitos.
-[Permalink](https://twitter.com/fernandeznorona/status/1624142339458404369) | 37 Me Gusta | 6 Retweets
+Por cierto Georgie Boy, @jorgeramosnews, en Perú hay un golpe de estado y uno centenar de asesinados por la brutal represión y tu calladito calladito.
+[Permalink](https://twitter.com/fernandeznorona/status/1624207959923253250) | 300 Me Gusta | 98 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 10:39:55
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 16:43:15
 *****
-Vamos saliendo de Uruapan a Aguililla.
-[Permalink](https://twitter.com/fernandeznorona/status/1624115965104357400) | 126 Me Gusta | 11 Retweets
+Y tú eres un ignorante desde 1959, Georgie boy @jorgeramosnews. No sé qué es más monumental, si tu ignorancia o tu mala fe.
+[Permalink](https://twitter.com/fernandeznorona/status/1624207403230060545) | 326 Me Gusta | 59 Retweets

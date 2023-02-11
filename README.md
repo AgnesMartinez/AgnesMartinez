@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 09:07:30
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 16:34:38
 *****
-“No existen amigos y enemigos cuando hay que socorrer a alguien. Usted no sabe ni siquiera cómo es ese lugar”. Erri de Luca hablando de la montaña, pero es obvio que habla también sobre la vida.
-[Permalink](https://twitter.com/fernandeznorona/status/1624092709370703872) | 42 Me Gusta | 10 Retweets
+Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1624205235043565568) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 08:50:31
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 15:19:54
 *****
-Ahora leo éste. Me lo recomendó muchísimo ⁦@Ascension528Hz⁩. Va muy bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1624088436368977925) | 24 Me Gusta | 9 Retweets
+Voy saliendo de Aguililla rumbo Apatzingán. Llegando transmitiré. 6:45 de la tarde más o menos.
+[Permalink](https://twitter.com/fernandeznorona/status/1624186424412053504) | 81 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 23:44:02
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 13:10:47
 *****
-Apenas llegamos al hotel en Uruapan. Estuvo pesado.
-[Permalink](https://twitter.com/fernandeznorona/status/1623950909280514050) | 112 Me Gusta | 9 Retweets
+Escuela de cuadros de la derecha.
+[Permalink](https://twitter.com/fernandeznorona/status/1624153931440959488) | 137 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 20:31:22
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 12:24:43
 *****
-Lo terminé, un par de ensayos bastante buenos.
-[Permalink](https://twitter.com/fernandeznorona/status/1623902419582087168) | 76 Me Gusta | 16 Retweets
+Besitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1624142339458404369) | 37 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-02-2023 a las 18:27:11
+**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 10:39:55
 *****
-Vamos camino a Uruapan. Ahí pasaré la noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1623871168817004544) | 424 Me Gusta | 37 Retweets
+Vamos saliendo de Uruapan a Aguililla.
+[Permalink](https://twitter.com/fernandeznorona/status/1624115965104357400) | 126 Me Gusta | 11 Retweets

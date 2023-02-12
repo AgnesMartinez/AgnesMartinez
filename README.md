@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 14:24:47
+**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 20:39:00
 *****
-Uruapan
-[Permalink](https://twitter.com/fernandeznorona/status/1624534943576776704) | 64 Me Gusta | 15 Retweets
+Lo terminé. Extraordinario libro. Erri de Luca es un espléndido escritor. No sé por qué a mi amigo @PepetonD no le gusta.
+[Permalink](https://twitter.com/fernandeznorona/status/1624629116061507584) | 27 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 14:02:03
+**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 20:30:46
 *****
-Muchas gracias compañero y amigo @IgnacioBCamposE.
-[Permalink](https://twitter.com/fernandeznorona/status/1624529220444762113) | 43 Me Gusta | 10 Retweets
+“La fraternidad es el sentimiento político por excelencia. No excluye a nadie.” Erri de Luca.
+[Permalink](https://twitter.com/fernandeznorona/status/1624627045627232256) | 34 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 14:01:11
+**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 20:29:37
 *****
-No salimos de Zicuirán un poco antes de que terminara el evento. Llegaremos 4:15 a Uruapan.
-[Permalink](https://twitter.com/fernandeznorona/status/1624529005440569348) | 63 Me Gusta | 12 Retweets
+Dice un proverbio oriental: “cuando las aguas se levantan, la barca debe hacer lo mismo”. Erri de Luca.
+[Permalink](https://twitter.com/fernandeznorona/status/1624626758170574848) | 44 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 12:55:57
+**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 19:58:11
 *****
-Priscila Tapia, tiene 10 años y canta bellísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1624512586342608896) | 296 Me Gusta | 31 Retweets
+RT @zenenzeferino: Ya estamos en la librería @Mar___Adentro  Puerto de Veracruz . A las 7 pm arrancamos
+[Permalink](https://twitter.com/fernandeznorona/status/1624618845922283520) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 10:44:51
+**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 19:56:49
 *****
-En Zicuirán, La Huacana, Mich.
-[Permalink](https://twitter.com/fernandeznorona/status/1624479597147623424) | 138 Me Gusta | 27 Retweets
+RT @Paco_PatoAlv: El chamaquito que se hacía dos horas de su casa a la escuela,  el que se aferró a la historia, el que leía todo.
+El nieto…
+[Permalink](https://twitter.com/fernandeznorona/status/1624618503537049600) | 0 Me Gusta | 204 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 08:15:08
+**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 14:24:47
 *****
-Salimos de Apatzingán rumbo a Zicuarán.
-[Permalink](https://twitter.com/fernandeznorona/status/1624441916590030848) | 65 Me Gusta | 11 Retweets
+Uruapan
+[Permalink](https://twitter.com/fernandeznorona/status/1624534943576776704) | 64 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 20:25:17
+**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 14:02:03
 *****
-Reunión con el alcaldes y alcaldesas de la región.
-[Permalink](https://twitter.com/fernandeznorona/status/1624263276749258754) | 115 Me Gusta | 20 Retweets
+Muchas gracias compañero y amigo @IgnacioBCamposE.
+[Permalink](https://twitter.com/fernandeznorona/status/1624529220444762113) | 43 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 17:03:18
+**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 14:01:11
 *****
-Apenas llegando a Apatzingán. Paciencia, ya casi.
-[Permalink](https://twitter.com/fernandeznorona/status/1624212448206270466) | 139 Me Gusta | 14 Retweets
+No salimos de Zicuirán un poco antes de que terminara el evento. Llegaremos 4:15 a Uruapan.
+[Permalink](https://twitter.com/fernandeznorona/status/1624529005440569348) | 63 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 16:50:43
+**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 12:55:57
 *****
-En Aguililla.
-[Permalink](https://twitter.com/fernandeznorona/status/1624209280499843074) | 154 Me Gusta | 40 Retweets
+Priscila Tapia, tiene 10 años y canta bellísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1624512586342608896) | 296 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-02-2023 a las 16:45:28
+**Fernández Noroña** (**@fernandeznorona**) • 11-02-2023 a las 10:44:51
 *****
-Por cierto Georgie Boy, @jorgeramosnews, en Perú hay un golpe de estado y uno centenar de asesinados por la brutal represión y tu calladito calladito.
-[Permalink](https://twitter.com/fernandeznorona/status/1624207959923253250) | 481 Me Gusta | 153 Retweets
+En Zicuirán, La Huacana, Mich.
+[Permalink](https://twitter.com/fernandeznorona/status/1624479597147623424) | 138 Me Gusta | 27 Retweets

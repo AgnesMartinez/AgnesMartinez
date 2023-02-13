@@ -1,30 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 21:24:10
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 09:00:52
 *****
-Ya a dormir, sigo en Morelia. Mañana iniciaré la jornada temprano.
-[Permalink](https://twitter.com/fernandeznorona/status/1625002871635980289) | 99 Me Gusta | 6 Retweets
+Muy agradecido de la gentileza y calidez del compañero Gobernador ⁦@ARBedolla⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1625178203479490560) | 63 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 20:19:42
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 08:59:54
 *****
-RT @MxFaby: Las obras del #TrenMaya están devastando a poblaciones endémicas, debemos detener semejante barbarie. ¿Me ayudas a compartir, @…
-[Permalink](https://twitter.com/fernandeznorona/status/1624986647761764354) | 0 Me Gusta | 572 Retweets
+Les decía, muy buena reunión con el gobernador de Michoacán ⁦@ARBedolla⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1625177957550690304) | 43 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 20:18:50
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 08:51:38
 *****
-RT @FonsiLoaiza: Un millón de manifestantes claman contra el destrozo de la sanidad pública por parte de Ayuso del PP en Madrid. Impresiona…
-[Permalink](https://twitter.com/fernandeznorona/status/1624986432564523009) | 0 Me Gusta | 9,286 Retweets
+Ahí vamos.
+[Permalink](https://twitter.com/fernandeznorona/status/1625175880267071491) | 123 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 20:18:14
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 08:48:11
 *****
-RT @kpitan92: Falta que saquen el ovni atropellado por el tren maya
-[Permalink](https://twitter.com/fernandeznorona/status/1624986279157850114) | 0 Me Gusta | 8 Retweets
+Ahí le hablan al señorito X, @ClaudioXGG y a una bola de derechosos del movimiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1625175012016812032) | 49 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 20:17:15
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 08:43:58
 *****
-RT @AliteyU: Así en el estado que me vió nacer #Coahuila 
-
-
-Y nomás no entienden 🙄
-@Mauriciodelaga1
-[Permalink](https://twitter.com/fernandeznorona/status/1624986031492591617) | 0 Me Gusta | 5 Retweets
+Buena imagen, solo les falta la candidata. ¿No tienen? Nosotros si, será la próxima gobernadora @delfinagomeza.
+[Permalink](https://twitter.com/fernandeznorona/status/1625173948014141440) | 94 Me Gusta | 19 Retweets

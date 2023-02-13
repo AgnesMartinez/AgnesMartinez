@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 16:14:59
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 21:24:10
 *****
-Voy camino a Cuitzeo. La video charla la haré hasta terminando el evento en Cuitzeo por ahí de las nueve de la noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1624925065342222336) | 33 Me Gusta | 9 Retweets
+Ya a dormir, sigo en Morelia. Mañana iniciaré la jornada temprano.
+[Permalink](https://twitter.com/fernandeznorona/status/1625002871635980289) | 59 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 14:54:50
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 20:19:42
 *****
-Zamora, Mich.
-[Permalink](https://twitter.com/fernandeznorona/status/1624904892329627650) | 90 Me Gusta | 22 Retweets
+RT @MxFaby: Las obras del #TrenMaya están devastando a poblaciones endémicas, debemos detener semejante barbarie. ¿Me ayudas a compartir, @…
+[Permalink](https://twitter.com/fernandeznorona/status/1624986647761764354) | 0 Me Gusta | 434 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 14:26:43
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 20:18:50
 *****
-Morelia, Mich.
-[Permalink](https://twitter.com/fernandeznorona/status/1624897819336384512) | 64 Me Gusta | 10 Retweets
+RT @FonsiLoaiza: Un millón de manifestantes claman contra el destrozo de la sanidad pública por parte de Ayuso del PP en Madrid. Impresiona…
+[Permalink](https://twitter.com/fernandeznorona/status/1624986432564523009) | 0 Me Gusta | 8,063 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 12:53:56
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 20:18:14
 *****
-RT @AlbertoAnayaGt: Lamento el sensible fallecimiento de la señora Bastida Rosas Landa, abuela de nuestra estimada compañera y Diputada de…
-[Permalink](https://twitter.com/fernandeznorona/status/1624874466974248960) | 0 Me Gusta | 4 Retweets
+RT @kpitan92: Falta que saquen el ovni atropellado por el tren maya
+[Permalink](https://twitter.com/fernandeznorona/status/1624986279157850114) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 12:28:36
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 20:17:15
 *****
-No sabía que el tren maya llega hasta Brasil, #TomandanteBorolas alias @FelipeCalderon. Además, antes de comenzaran la construcción en México. #pagaranPorEllo
-[Permalink](https://twitter.com/fernandeznorona/status/1624868093444120576) | 283 Me Gusta | 60 Retweets
+RT @AliteyU: Así en el estado que me vió nacer #Coahuila 
+
+
+Y nomás no entienden 🙄
+@Mauriciodelaga1
+[Permalink](https://twitter.com/fernandeznorona/status/1624986031492591617) | 0 Me Gusta | 3 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 08:41:53
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 16:14:59
 *****
-Zamora.
-[Permalink](https://twitter.com/fernandeznorona/status/1624811036938485760) | 60 Me Gusta | 10 Retweets
+Voy camino a Cuitzeo. La video charla la haré hasta terminando el evento en Cuitzeo por ahí de las nueve de la noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1624925065342222336) | 33 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 08:41:14
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 14:54:50
 *****
 Zamora, Mich.
-[Permalink](https://twitter.com/fernandeznorona/status/1624810873180278784) | 47 Me Gusta | 13 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1624904892329627650) | 90 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 08:26:03
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 14:26:43
 *****
-Muy bien Zamora.
-[Permalink](https://twitter.com/fernandeznorona/status/1624807050914983939) | 48 Me Gusta | 16 Retweets
+Morelia, Mich.
+[Permalink](https://twitter.com/fernandeznorona/status/1624897819336384512) | 64 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 08:24:52
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 12:53:56
 *****
-Zamora.
-[Permalink](https://twitter.com/fernandeznorona/status/1624806756659625984) | 89 Me Gusta | 21 Retweets
+RT @AlbertoAnayaGt: Lamento el sensible fallecimiento de la señora Bastida Rosas Landa, abuela de nuestra estimada compañera y Diputada de…
+[Permalink](https://twitter.com/fernandeznorona/status/1624874466974248960) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 07:55:40
+**Fernández Noroña** (**@fernandeznorona**) • 12-02-2023 a las 12:28:36
 *****
-Ayer en Uruapan.
-[Permalink](https://twitter.com/fernandeznorona/status/1624799408276799489) | 78 Me Gusta | 15 Retweets
+No sabía que el tren maya llega hasta Brasil, #TomandanteBorolas alias @FelipeCalderon. Además, antes de comenzaran la construcción en México. #pagaranPorEllo
+[Permalink](https://twitter.com/fernandeznorona/status/1624868093444120576) | 283 Me Gusta | 60 Retweets

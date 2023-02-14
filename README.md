@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 15:21:09
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 20:35:08
 *****
-RT @JhonnyNicaragua: Mientras distraen con los OVNIS, Estados Unidos está atravesando la catástrofe ambiental más grande de los últimos 50…
-[Permalink](https://twitter.com/fernandeznorona/status/1625273902946729984) | 0 Me Gusta | 3,233 Retweets
+@lauralun03 @LJyDMX Ha sido. Ha mostrado.
+[Permalink](https://twitter.com/fernandeznorona/status/1625352919477256193) | 6 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 15:19:04
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 20:14:48
 *****
-Oigan, es misión imposible acreditar los km por internet o en los módulos de autoservicio en el aeropuerto. El año pasado se quedaron sin acreditar casi todos mis viajes.
-[Permalink](https://twitter.com/fernandeznorona/status/1625273381745721346) | 45 Me Gusta | 6 Retweets
+RT @Renegado_L: Especímenes de la selva de Quintana Roo huyen despavoridos ante el avance de las obras del #TrenMaya, el mayor ecocidio de…
+[Permalink](https://twitter.com/fernandeznorona/status/1625347804699807744) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 15:15:30
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 20:13:32
 *****
-Te lamentarás por ésto, #TomandanteBorolas alias @FelipeCalderon ? ¿@Mzavalagc algo sabrá el Borolas?
-[Permalink](https://twitter.com/fernandeznorona/status/1625272482986078208) | 67 Me Gusta | 23 Retweets
+Te quedó súper. Se la regalaré a @Claudiashein.
+[Permalink](https://twitter.com/fernandeznorona/status/1625347483114119173) | 51 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 15:07:20
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 20:05:36
 *****
-RT @HeIterSkelter_: Otra víctima más durante la construcción del Tren Maya, atropellaron a un extraterrestre. Fuente: @FelipeCalderon #Boro…
-[Permalink](https://twitter.com/fernandeznorona/status/1625270425801441281) | 0 Me Gusta | 16 Retweets
+¡La humanidad! Mire usted, pues no. Esperemos la respuesta, pero en el peor escenario, a ti te representa, a la humanidad que a mi respecta, no.
+[Permalink](https://twitter.com/fernandeznorona/status/1625345487913058304) | 37 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 15:07:02
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 19:53:25
 *****
-Yo, sectarios.
-[Permalink](https://twitter.com/fernandeznorona/status/1625270352904347648) | 37 Me Gusta | 7 Retweets
+Discriminación.
+[Permalink](https://twitter.com/fernandeznorona/status/1625342422145179651) | 17 Me Gusta | 2 Retweets

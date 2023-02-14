@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 09:00:52
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 15:21:09
 *****
-Muy agradecido de la gentileza y calidez del compañero Gobernador ⁦@ARBedolla⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1625178203479490560) | 63 Me Gusta | 9 Retweets
+RT @JhonnyNicaragua: Mientras distraen con los OVNIS, Estados Unidos está atravesando la catástrofe ambiental más grande de los últimos 50…
+[Permalink](https://twitter.com/fernandeznorona/status/1625273902946729984) | 0 Me Gusta | 3,233 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 08:59:54
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 15:19:04
 *****
-Les decía, muy buena reunión con el gobernador de Michoacán ⁦@ARBedolla⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1625177957550690304) | 43 Me Gusta | 8 Retweets
+Oigan, es misión imposible acreditar los km por internet o en los módulos de autoservicio en el aeropuerto. El año pasado se quedaron sin acreditar casi todos mis viajes.
+[Permalink](https://twitter.com/fernandeznorona/status/1625273381745721346) | 45 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 08:51:38
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 15:15:30
 *****
-Ahí vamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1625175880267071491) | 123 Me Gusta | 19 Retweets
+Te lamentarás por ésto, #TomandanteBorolas alias @FelipeCalderon ? ¿@Mzavalagc algo sabrá el Borolas?
+[Permalink](https://twitter.com/fernandeznorona/status/1625272482986078208) | 67 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 08:48:11
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 15:07:20
 *****
-Ahí le hablan al señorito X, @ClaudioXGG y a una bola de derechosos del movimiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1625175012016812032) | 49 Me Gusta | 10 Retweets
+RT @HeIterSkelter_: Otra víctima más durante la construcción del Tren Maya, atropellaron a un extraterrestre. Fuente: @FelipeCalderon #Boro…
+[Permalink](https://twitter.com/fernandeznorona/status/1625270425801441281) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 08:43:58
+**Fernández Noroña** (**@fernandeznorona**) • 13-02-2023 a las 15:07:02
 *****
-Buena imagen, solo les falta la candidata. ¿No tienen? Nosotros si, será la próxima gobernadora @delfinagomeza.
-[Permalink](https://twitter.com/fernandeznorona/status/1625173948014141440) | 94 Me Gusta | 19 Retweets
+Yo, sectarios.
+[Permalink](https://twitter.com/fernandeznorona/status/1625270352904347648) | 37 Me Gusta | 7 Retweets

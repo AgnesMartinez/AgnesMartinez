@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 16:14:58
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 20:22:23
 *****
-La entregué, en una comparecencia del Secretario de la Función Pública ante el pleno, copia de la escritura y no hicieron absolutamente nada. Los medios nunca publicaron una sola línea.
-[Permalink](https://twitter.com/fernandeznorona/status/1625649835931205632) | 39 Me Gusta | 9 Retweets
+¿Ahora ya no atacan a Mexico #chayoteferoz? pero además mientes por enésima vez @rivapa. Nadie acusó al compañero presidente. Estás hecho un cerdo. Abur.
+[Permalink](https://twitter.com/fernandeznorona/status/1625712098108899329) | 95 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 16:14:58
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 20:19:55
 *****
-Así dijo @GenaroGarciaL cuando compareció en 2011 y le reclamé tener propiedades por 42.5 millones. Dijo que una propiedad de 20 millones, la había comprado a crédito. Presenté la copia de la escritura que demostraba que la había comprado de contado. La entregué…
-[Permalink](https://twitter.com/fernandeznorona/status/1625649833544646656) | 58 Me Gusta | 21 Retweets
+Éste video tienen que verlo una bola que se han dejado manipular durante toda la pasada pandemia.
+[Permalink](https://twitter.com/fernandeznorona/status/1625711480485076994) | 71 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 13:24:20
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 20:16:17
 *****
-RT @NachoMierV: El dinero es el 👹. Lorenzo Córdova le debe una explicación al pueblo de México por los altísimos sueldos que perciben algun…
-[Permalink](https://twitter.com/fernandeznorona/status/1625606895364096000) | 0 Me Gusta | 88 Retweets
+RT @rubengluengas: ¡Catástrofe ambiental! Más de mil galones de cloruro de vinilo envenenan Ohio
+[Permalink](https://twitter.com/fernandeznorona/status/1625710563392118785) | 0 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 13:23:09
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 20:14:28
 *****
-Ya le respondí.
-[Permalink](https://twitter.com/fernandeznorona/status/1625606596029210624) | 22 Me Gusta | 6 Retweets
+RT @Mike28dev: Un regalo de 14 de febrero. Muchas Gracias a mi querido Dip. GFN.
+[Permalink](https://twitter.com/fernandeznorona/status/1625710107471364097) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 13:13:08
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 20:13:54
 *****
-RT @Mike28dev: Caminamos contigo camarada. Nuestro apoyo no termina ❤️. @lopezobrador_ compañero presidente que se escuche bien y claro, es…
-[Permalink](https://twitter.com/fernandeznorona/status/1625604077311918080) | 0 Me Gusta | 13 Retweets
+Pues si tienen interés, búsquenla. Saludos.
+[Permalink](https://twitter.com/fernandeznorona/status/1625709962725842944) | 26 Me Gusta | 9 Retweets

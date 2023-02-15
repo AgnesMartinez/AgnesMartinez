@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2023 a las 07:51:04
+*****
+Posteriormente presente la escritura que acreditaba que la había comprado de contado.
+[Permalink](https://twitter.com/fernandeznorona/status/1625885412223774720) | 75 Me Gusta | 24 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2023 a las 07:51:03
+*****
+Así me respondió @GenaroGarciaL cuándo compareció y le cuestiones tener propiedades por 42 y medio millones de pesos con su sueldo de funcionario. “Es que ahorro mucho y mi última casa de 20 millones la compré a crédito”. Posteriormente presente la escritura que acreditaba que…
+[Permalink](https://twitter.com/fernandeznorona/status/1625885410244132868) | 140 Me Gusta | 53 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2023 a las 07:48:47
+*****
+RT @LJyDMX: Consumir de una forma u otra, o no hacerlo, es un tipo de activismo que nos puede llevar hacia un modelo más justo y más humano…
+[Permalink](https://twitter.com/fernandeznorona/status/1625884836945661952) | 0 Me Gusta | 21 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 15-02-2023 a las 07:39:58
+*****
+Empecé muy bien el día. Buena reunión.
+[Permalink](https://twitter.com/fernandeznorona/status/1625882617613541378) | 58 Me Gusta | 6 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 20:22:23
 *****
 ¿Ahora ya no atacan a Mexico #chayoteferoz? pero además mientes por enésima vez @rivapa. Nadie acusó al compañero presidente. Estás hecho un cerdo. Abur.
-[Permalink](https://twitter.com/fernandeznorona/status/1625712098108899329) | 167 Me Gusta | 41 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 20:19:55
-*****
-Éste video tienen que verlo una bola que se han dejado manipular durante toda la pasada pandemia.
-[Permalink](https://twitter.com/fernandeznorona/status/1625711480485076994) | 133 Me Gusta | 60 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 20:16:17
-*****
-RT @rubengluengas: ¡Catástrofe ambiental! Más de mil galones de cloruro de vinilo envenenan Ohio
-[Permalink](https://twitter.com/fernandeznorona/status/1625710563392118785) | 0 Me Gusta | 61 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 20:14:28
-*****
-RT @Mike28dev: Un regalo de 14 de febrero. Muchas Gracias a mi querido Dip. GFN.
-[Permalink](https://twitter.com/fernandeznorona/status/1625710107471364097) | 0 Me Gusta | 9 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 20:13:54
-*****
-Pues si tienen interés, búsquenla. Saludos.
-[Permalink](https://twitter.com/fernandeznorona/status/1625709962725842944) | 42 Me Gusta | 11 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1625712098108899329) | 224 Me Gusta | 57 Retweets

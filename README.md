@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 09:11:02
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 16:14:58
 *****
-Yo le hubiese dicho: ese curita es un cualquiera, porque no se casa.
-[Permalink](https://twitter.com/fernandeznorona/status/1625543148410748951) | 22 Me Gusta | 10 Retweets
+La entregué, en una comparecencia del Secretario de la Función Pública ante el pleno, copia de la escritura y no hicieron absolutamente nada. Los medios nunca publicaron una sola línea.
+[Permalink](https://twitter.com/fernandeznorona/status/1625649835931205632) | 39 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 09:03:23
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 16:14:58
 *****
-RT @cesargutipri: El abogado de García Luna quiso inducir al testigo Jesús Rey Zambada asumir que dio dinero para la campaña de López Obrad…
-[Permalink](https://twitter.com/fernandeznorona/status/1625541221971120128) | 0 Me Gusta | 689 Retweets
+Así dijo @GenaroGarciaL cuando compareció en 2011 y le reclamé tener propiedades por 42.5 millones. Dijo que una propiedad de 20 millones, la había comprado a crédito. Presenté la copia de la escritura que demostraba que la había comprado de contado. La entregué…
+[Permalink](https://twitter.com/fernandeznorona/status/1625649833544646656) | 58 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 08:58:02
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 13:24:20
 *****
-¿De plano? Naa, son etapas de la vida.
-[Permalink](https://twitter.com/fernandeznorona/status/1625539879428886528) | 13 Me Gusta | 1 Retweets
+RT @NachoMierV: El dinero es el 👹. Lorenzo Córdova le debe una explicación al pueblo de México por los altísimos sueldos que perciben algun…
+[Permalink](https://twitter.com/fernandeznorona/status/1625606895364096000) | 0 Me Gusta | 88 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 08:47:47
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 13:23:09
 *****
-Me imagino que el acomodaticio de Pascoe se refiere a su rey, el rey de España, ¿o no, señorito X @ClaudioXGG?
-[Permalink](https://twitter.com/fernandeznorona/status/1625537297935482884) | 25 Me Gusta | 5 Retweets
+Ya le respondí.
+[Permalink](https://twitter.com/fernandeznorona/status/1625606596029210624) | 22 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 08:46:30
+**Fernández Noroña** (**@fernandeznorona**) • 14-02-2023 a las 13:13:08
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1625536974768554003) | 34 Me Gusta | 16 Retweets
+RT @Mike28dev: Caminamos contigo camarada. Nuestro apoyo no termina ❤️. @lopezobrador_ compañero presidente que se escuche bien y claro, es…
+[Permalink](https://twitter.com/fernandeznorona/status/1625604077311918080) | 0 Me Gusta | 13 Retweets

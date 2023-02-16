@@ -1,29 +1,36 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2023 a las 20:08:41
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 06:51:32
 *****
-RT @danialonpri: 🚨ÚLTIMO MINUTO
+RT @aga10mx: EE.UU. tenía razón
+\#OVNIS 
 
 
-La zona afectada por el“accidente”de tren en Ohio tiene un diámetro de 650km y afecta ya a 23 MILLONES de…
-[Permalink](https://twitter.com/fernandeznorona/status/1626071040999784450) | 0 Me Gusta | 6,231 Retweets
+Captan en foto a alienígena entre seres humanos.
+[Permalink](https://twitter.com/fernandeznorona/status/1626232818832642048) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2023 a las 19:23:55
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 06:47:44
 *****
-‘…Tienes oportunidad de saber y te la niegas por desmaña. En eso eres muy moderno. Hoy en día se practica el analfabetismo voluntario’. Erri de Luca.
-[Permalink](https://twitter.com/fernandeznorona/status/1626059774423957504) | 56 Me Gusta | 13 Retweets
+RT @danialonpri: 🚨ÚLTIMO MINUTO🚨
+
+
+El incidente de Ohio afectaría también al bajo Mississippi amenazando el suministro de agua del 22% de la…
+[Permalink](https://twitter.com/fernandeznorona/status/1626231863303110657) | 0 Me Gusta | 8,313 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2023 a las 19:21:33
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 06:44:12
 *****
-Miren esta maravilla que compré.
-[Permalink](https://twitter.com/fernandeznorona/status/1626059179231268864) | 339 Me Gusta | 17 Retweets
+RT @NortenaCatrina: Saben si los "ambientalistas" televisos como Eugenio Derbez y Kate del Castillo, que viven en Estados Unidos, ya están…
+[Permalink](https://twitter.com/fernandeznorona/status/1626230974639136773) | 0 Me Gusta | 5,873 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2023 a las 19:04:38
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 06:33:22
 *****
-Ya vi que PAN significa Partido Astracanada Nacional. @AccionNacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1626054921941393408) | 60 Me Gusta | 14 Retweets
+RT @dgarciamx_: ¿Vieron el video donde Eugenio Derbez y Arturo Islas le dan con todo a EEUU por la tragedia ambiental ocurrida en Ohio?
+
+
+Yo…
+[Permalink](https://twitter.com/fernandeznorona/status/1626228244877037569) | 0 Me Gusta | 166 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-02-2023 a las 18:49:29
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 06:31:34
 *****
-Es bellísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1626051107318538242) | 36 Me Gusta | 6 Retweets
+Puej ji. No la eligió nadie y está reprimiendo al pueblo peruano.
+[Permalink](https://twitter.com/fernandeznorona/status/1626227793553145856) | 106 Me Gusta | 20 Retweets

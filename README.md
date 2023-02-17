@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 09:11:01
+*****
+¡Qué hermoso video!
+[Permalink](https://twitter.com/fernandeznorona/status/1626630310120288257) | 15 Me Gusta | 1 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 08:19:47
+*****
+El peso está en 18.50, pero es gracias a que el cabeza hueca @VicenteFoxQue robó poquito y eso dejó una economía indestructible.
+[Permalink](https://twitter.com/fernandeznorona/status/1626617415416315906) | 133 Me Gusta | 17 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 08:18:15
+*****
+El peso está en 18.50, pero eso es gracias al #TomandanteBorolas alias @FelipeCalderon, que dejó una economía sólida para la eternidad después de su usurpación.
+[Permalink](https://twitter.com/fernandeznorona/status/1626617027254419456) | 161 Me Gusta | 29 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:54:54
 *****
 Fuerte declaración de @higinio_mtz. ¿@RicardoMonrealA sigue sin declarar al respecto?
-[Permalink](https://twitter.com/fernandeznorona/status/1626445059859316738) | 129 Me Gusta | 47 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1626445059859316738) | 175 Me Gusta | 58 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:52:09
 *****
 Mira @aura_fdez.
-[Permalink](https://twitter.com/fernandeznorona/status/1626444365337083904) | 30 Me Gusta | 2 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:48:46
-*****
-RT @NachoMierV: Instalamos el Comité Técnico de Evaluación para la elección de los Consejeros del @INEMexico. Todas y todos se comprometier…
-[Permalink](https://twitter.com/fernandeznorona/status/1626443516695171072) | 0 Me Gusta | 37 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:47:21
-*****
-RT @HoyPalestina: APARTHEID: La vida diaria de los niños y jóvenes palestinos bajo la ocupación israelí en la ciudad ocupada de Jerusalén.…
-[Permalink](https://twitter.com/fernandeznorona/status/1626443159453696000) | 0 Me Gusta | 1,718 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:47:04
-*****
-RT @aran_tirado: Hoy ha sido un día histórico para el feminismo en España, aunque haya sectores de este movimiento que no lo quieran recono…
-[Permalink](https://twitter.com/fernandeznorona/status/1626443085545889792) | 0 Me Gusta | 23 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1626444365337083904) | 46 Me Gusta | 4 Retweets

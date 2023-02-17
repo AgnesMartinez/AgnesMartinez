@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 14:45:39
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:54:54
 *****
-Si tuviera que escoger sólo un libro para editar de Erri de Luca, me costaría trabajo elegir.
-[Permalink](https://twitter.com/fernandeznorona/status/1626352132181098497) | 35 Me Gusta | 8 Retweets
+Fuerte declaración de @higinio_mtz. ¿@RicardoMonrealA sigue sin declarar al respecto?
+[Permalink](https://twitter.com/fernandeznorona/status/1626445059859316738) | 74 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 14:44:58
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:52:09
 *****
-Estoy apunto de que inicie la instalación del comité técnico para elegir las quintetas de posibles consejeros electorales y terminé el libro “A tamaño natural” de Erri de Luca y me muerdo un huevo para no llorar. ¡Qué manera de cerrar el libro! ¡Espléndido! Si tuviera que…
-[Permalink](https://twitter.com/fernandeznorona/status/1626351962387288065) | 54 Me Gusta | 15 Retweets
+Mira @aura_fdez.
+[Permalink](https://twitter.com/fernandeznorona/status/1626444365337083904) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 14:39:05
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:48:46
 *****
-“No hay revocación para su hijo: deja que muera como un bandido colgado de un poste. El cristianismo se basa en la obediencia extrema y dócil de un hijo hacia su padre”. Sigue hablando Erri de Luca sobre la crucifixión de Cristo.
-[Permalink](https://twitter.com/fernandeznorona/status/1626350480464171008) | 36 Me Gusta | 10 Retweets
+RT @NachoMierV: Instalamos el Comité Técnico de Evaluación para la elección de los Consejeros del @INEMexico. Todas y todos se comprometier…
+[Permalink](https://twitter.com/fernandeznorona/status/1626443516695171072) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 14:36:57
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:47:21
 *****
-“Hay autoridades terrenales a las que se confía el poder de la gracia. La ejercen con avaricia.  La autoridad celestial tiene otra justificación: se veda a sí misma el poderlo todo. Ese padre se prohíbe el intervenir a favor de su hijo”.
-[Permalink](https://twitter.com/fernandeznorona/status/1626349943316434945) | 32 Me Gusta | 10 Retweets
+RT @HoyPalestina: APARTHEID: La vida diaria de los niños y jóvenes palestinos bajo la ocupación israelí en la ciudad ocupada de Jerusalén.…
+[Permalink](https://twitter.com/fernandeznorona/status/1626443159453696000) | 0 Me Gusta | 859 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 14:34:51
+**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:47:04
 *****
-“Las misiones extremas exigen la disolución de los lazos más íntimos. Pero incluso al obedecer a la llamada, nada impide al corazón el dolor del desgarro”. es un poeta Erri de Luca. Sigue hablando de Jesús en la cruz
-[Permalink](https://twitter.com/fernandeznorona/status/1626349414326337546) | 29 Me Gusta | 7 Retweets
+RT @aran_tirado: Hoy ha sido un día histórico para el feminismo en España, aunque haya sectores de este movimiento que no lo quieran recono…
+[Permalink](https://twitter.com/fernandeznorona/status/1626443085545889792) | 0 Me Gusta | 21 Retweets

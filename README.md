@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 09:11:01
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 16:09:17
 *****
-¡Qué hermoso video!
-[Permalink](https://twitter.com/fernandeznorona/status/1626630310120288257) | 15 Me Gusta | 1 Retweets
+Una hora hicimos de la Roma al @aifa.
+[Permalink](https://twitter.com/fernandeznorona/status/1626735566892019712) | 54 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 08:19:47
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 15:57:23
 *****
-El peso está en 18.50, pero es gracias a que el cabeza hueca @VicenteFoxQue robó poquito y eso dejó una economía indestructible.
-[Permalink](https://twitter.com/fernandeznorona/status/1626617415416315906) | 133 Me Gusta | 17 Retweets
+Nada. Para comenzar no es encuesta.
+[Permalink](https://twitter.com/fernandeznorona/status/1626732575787040768) | 22 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 08:18:15
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 15:06:23
 *****
-El peso está en 18.50, pero eso es gracias al #TomandanteBorolas alias @FelipeCalderon, que dejó una economía sólida para la eternidad después de su usurpación.
-[Permalink](https://twitter.com/fernandeznorona/status/1626617027254419456) | 161 Me Gusta | 29 Retweets
+Salimos rumbo al @aifa.
+[Permalink](https://twitter.com/fernandeznorona/status/1626719739862208513) | 41 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:54:54
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 14:53:25
 *****
-Fuerte declaración de @higinio_mtz. ¿@RicardoMonrealA sigue sin declarar al respecto?
-[Permalink](https://twitter.com/fernandeznorona/status/1626445059859316738) | 175 Me Gusta | 58 Retweets
+En breve, saldré de la Roma rumbo al @aifaaero.
+[Permalink](https://twitter.com/fernandeznorona/status/1626716475540271104) | 50 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-02-2023 a las 20:52:09
+**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 14:04:22
 *****
-Mira @aura_fdez.
-[Permalink](https://twitter.com/fernandeznorona/status/1626444365337083904) | 46 Me Gusta | 4 Retweets
+Carajo, y yo que compré 100 dólares apenas empezó el gobierno del compañero presidente ⁦@lopezobrador_⁩, para salvarme de la crisis.
+[Permalink](https://twitter.com/fernandeznorona/status/1626704133565853699) | 661 Me Gusta | 151 Retweets

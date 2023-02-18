@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 21:35:16
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 08:56:18
 *****
-@vifex Has comido.
-[Permalink](https://twitter.com/fernandeznorona/status/1626817604315754498) | 21 Me Gusta | 2 Retweets
+Pasé por una cantina en José María Morelos que decía: “la cruda y los calzones no se quitan solos”.
+[Permalink](https://twitter.com/fernandeznorona/status/1626988991210815488) | 48 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 21:29:45
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 08:04:34
 *****
-A dormir que mañana deberé salir muy temprano rumbo a José María Morelos, Quintana Roo.
-[Permalink](https://twitter.com/fernandeznorona/status/1626816214826614785) | 52 Me Gusta | 1 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1626975973609463808) | 113 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 21:04:29
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 07:31:09
 *****
-Vine a cenar a la Chaya Maya. Como siempre, muy rico; el personal súper gentil. Desde que conocí Mérida, de adolescente, siempre me ha gustado mucho.
-[Permalink](https://twitter.com/fernandeznorona/status/1626809857071280128) | 110 Me Gusta | 2 Retweets
+Desayunando en José María Morelos. En “Fonda La Soledad”, con Teresita Hernández
+[Permalink](https://twitter.com/fernandeznorona/status/1626967564613038080) | 47 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 19:21:22
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 05:13:12
 *****
-Acabamos de aterrizar en Mérida.
-[Permalink](https://twitter.com/fernandeznorona/status/1626783908984459264) | 101 Me Gusta | 8 Retweets
+Ya vamos a José María Morelos desde Mérida.
+[Permalink](https://twitter.com/fernandeznorona/status/1626932848094486529) | 68 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-02-2023 a las 17:46:17
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 04:37:37
 *****
-Para los que me andan criticando por mi último discurso del 14 de febrero en el debate de la agenda política sobre el juicio a ⁦@GenaroGarciaL⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1626759979771510785) | 62 Me Gusta | 11 Retweets
+RT @Laudelino_H: Volvamos a los libros @MarialciraMatuT @TVLecturas @GipsyGastello @ErikaOSanoja @josenegronv
+[Permalink](https://twitter.com/fernandeznorona/status/1626923891821056002) | 0 Me Gusta | 69 Retweets

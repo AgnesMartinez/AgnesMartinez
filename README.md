@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 15:35:11
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 22:04:39
 *****
-Con la poetisa maya, Doña Narcisa.
-[Permalink](https://twitter.com/fernandeznorona/status/1627089375069888515) | 144 Me Gusta | 16 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1627187386223407105) | 13 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 15:34:00
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 20:04:33
 *****
-Doña Narcisa me entregó este poema que leyó en el mitin para mi. En Sabán.
-[Permalink](https://twitter.com/fernandeznorona/status/1627089077102338050) | 85 Me Gusta | 20 Retweets
+Durante mi recorrido de hoy por José María Morelos.
+[Permalink](https://twitter.com/fernandeznorona/status/1627157164224614400) | 172 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 14:14:26
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 20:02:05
 *****
-Sabán.
-[Permalink](https://twitter.com/fernandeznorona/status/1627069052521947137) | 61 Me Gusta | 13 Retweets
+Vamos apenas de Felipe Carrillo Puerto a Cancún.
+[Permalink](https://twitter.com/fernandeznorona/status/1627156541051752450) | 65 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 14:14:22
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 19:06:16
 *****
-Pich.
-[Permalink](https://twitter.com/fernandeznorona/status/1627069034981367811) | 75 Me Gusta | 7 Retweets
+Ahora vamos camino a Cancún.
+[Permalink](https://twitter.com/fernandeznorona/status/1627142494734413844) | 66 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 12:54:28
+**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 19:05:50
 *****
-De acuerdo.
-[Permalink](https://twitter.com/fernandeznorona/status/1627048930298200067) | 91 Me Gusta | 17 Retweets
+En Señor, Felipe Carrillo Puerto, Quintana Roo.
+[Permalink](https://twitter.com/fernandeznorona/status/1627142386630500352) | 69 Me Gusta | 9 Retweets

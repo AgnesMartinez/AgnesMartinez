@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 23:25:09
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2023 a las 08:45:15
 *****
-Apenas a descansar. Una larga jornada.
-[Permalink](https://twitter.com/fernandeznorona/status/1627207646330646528) | 52 Me Gusta | 5 Retweets
+¿Cartón? Es el botijón de @CartonCalderon? Ahí la llevas señorito X @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1627348601344065543) | 35 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 22:54:51
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2023 a las 08:44:09
 *****
-Apenas llegando a Cancún y todavía no llegamos al hotel.
-[Permalink](https://twitter.com/fernandeznorona/status/1627200021295771650) | 48 Me Gusta | 2 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1627348320837328898) | 45 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 22:04:39
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2023 a las 08:43:41
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1627187386223407105) | 68 Me Gusta | 11 Retweets
+¡La delincuencia vive su mejor momento! Dice el defensor del #tomandanteBorolas alias @FelipeCalderon y de su admirado procesado en Nueva York @GenaroGarciaL.
+[Permalink](https://twitter.com/fernandeznorona/status/1627348207293407232) | 34 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 20:04:33
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2023 a las 08:42:19
 *****
-Durante mi recorrido de hoy por José María Morelos.
-[Permalink](https://twitter.com/fernandeznorona/status/1627157164224614400) | 239 Me Gusta | 19 Retweets
+Se enojó el Dr. Chapatín @JesusMartinMx. Le irrita que le vaya bien al país.
+[Permalink](https://twitter.com/fernandeznorona/status/1627347859635830784) | 50 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-02-2023 a las 20:02:05
+**Fernández Noroña** (**@fernandeznorona**) • 19-02-2023 a las 08:41:16
 *****
-Vamos apenas de Felipe Carrillo Puerto a Cancún.
-[Permalink](https://twitter.com/fernandeznorona/status/1627156541051752450) | 72 Me Gusta | 5 Retweets
+El compañero presidente.
+[Permalink](https://twitter.com/fernandeznorona/status/1627347595747000320) | 84 Me Gusta | 7 Retweets

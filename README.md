@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 08:34:07
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 15:37:16
 *****
-RT @alvaro_delgado: “Sonido La Sandra”, de ⁦@monerohernandez⁩, en ⁦@lajornadaonline⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1627708185959141376) | 0 Me Gusta | 1,067 Retweets
+Puej ji, hay que erradicar la violencia contra las mujeres pero esa legislaciones totalmente violatoria del marco constitucional.
+[Permalink](https://twitter.com/fernandeznorona/status/1627814676200402945) | 35 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2023 a las 21:23:08
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 15:28:41
 *****
-Ahí estaré solidario.
-[Permalink](https://twitter.com/fernandeznorona/status/1627539325859643394) | 210 Me Gusta | 67 Retweets
+¿Se reeligió desde el 2024 hasta el 2050? ¡Un fenómeno @LillyTellez!
+[Permalink](https://twitter.com/fernandeznorona/status/1627812514242220033) | 60 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2023 a las 21:20:08
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 14:36:02
 *****
-RT @anticuaeguiara: Por proteger manifestaciones culturales de los embates fascistas de  Sandra Cuevas en su intento de blanqueamiento soci…
-[Permalink](https://twitter.com/fernandeznorona/status/1627538571933454336) | 0 Me Gusta | 34 Retweets
+Y que los ciudadanos que hacen fraude electoral como tú comprenderás vayan a la cárcel, #tomandanteborolas alias @FelipeCalderon. Hiciste fraude en la interna de @AccionNacional -2005, candidatura presidencial- e hiciste fraude en la elección presidencial constitucional de 2006.
+[Permalink](https://twitter.com/fernandeznorona/status/1627799263689203712) | 164 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2023 a las 21:19:03
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 11:31:24
 *****
-Súper cretina @SandraCuevas_. Autoritarismo feroz.
-[Permalink](https://twitter.com/fernandeznorona/status/1627538301463760896) | 78 Me Gusta | 25 Retweets
+RT @Pajaropolitico: ➡La abogada Laura Ozuna explicó que este lunes se presentaron tres verificadoras con el argumento de que la diligencia…
+[Permalink](https://twitter.com/fernandeznorona/status/1627752798929690624) | 0 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-02-2023 a las 20:51:36
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 11:30:05
 *****
-Aunque me hubiese gustado ir a Pueblo quieto, me quedé.
-[Permalink](https://twitter.com/fernandeznorona/status/1627531391247216641) | 61 Me Gusta | 6 Retweets
+RT @PdPagina: #AHORA 🔴"Nosotros abrimos el espacio para proteger a los vecinos que fueron golpeadas. Acá somos un espacio autónomo y aparti…
+[Permalink](https://twitter.com/fernandeznorona/status/1627752470561820673) | 0 Me Gusta | 46 Retweets

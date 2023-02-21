@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 15:37:16
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 21:42:33
 *****
-Puej ji, hay que erradicar la violencia contra las mujeres pero esa legislaciones totalmente violatoria del marco constitucional.
-[Permalink](https://twitter.com/fernandeznorona/status/1627814676200402945) | 35 Me Gusta | 7 Retweets
+Votó el electorado de la Cuauhtémoc por abrumadora mayoría.
+[Permalink](https://twitter.com/fernandeznorona/status/1627906600030674944) | 15 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 15:28:41
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 21:30:24
 *****
-¿Se reeligió desde el 2024 hasta el 2050? ¡Un fenómeno @LillyTellez!
-[Permalink](https://twitter.com/fernandeznorona/status/1627812514242220033) | 60 Me Gusta | 10 Retweets
+Mira @FedericoArreola.
+[Permalink](https://twitter.com/fernandeznorona/status/1627903543138213891) | 26 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 14:36:02
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 20:49:21
 *****
-Y que los ciudadanos que hacen fraude electoral como tú comprenderás vayan a la cárcel, #tomandanteborolas alias @FelipeCalderon. Hiciste fraude en la interna de @AccionNacional -2005, candidatura presidencial- e hiciste fraude en la elección presidencial constitucional de 2006.
-[Permalink](https://twitter.com/fernandeznorona/status/1627799263689203712) | 164 Me Gusta | 33 Retweets
+Guarden este mensaje: @SandraCuevas_ no se retirará. Tendrá que retirarla el pueblo, no volviendo a votar por esa persona nunca más.
+[Permalink](https://twitter.com/fernandeznorona/status/1627893214307909632) | 332 Me Gusta | 76 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 11:31:24
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 20:36:58
 *****
-RT @Pajaropolitico: ➡La abogada Laura Ozuna explicó que este lunes se presentaron tres verificadoras con el argumento de que la diligencia…
-[Permalink](https://twitter.com/fernandeznorona/status/1627752798929690624) | 0 Me Gusta | 39 Retweets
+Pues podrías retirarse de una vez, no veo la razón de la espera @SandraCuevas_.
+[Permalink](https://twitter.com/fernandeznorona/status/1627890095557853184) | 52 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 11:30:05
+**Fernández Noroña** (**@fernandeznorona**) • 20-02-2023 a las 20:02:27
 *****
-RT @PdPagina: #AHORA 🔴"Nosotros abrimos el espacio para proteger a los vecinos que fueron golpeadas. Acá somos un espacio autónomo y aparti…
-[Permalink](https://twitter.com/fernandeznorona/status/1627752470561820673) | 0 Me Gusta | 46 Retweets
+RT @GalloLibreria: Nos vemos con muchos libros 📚📚📚
+\#alamedacentral ♥️📖📖
+[Permalink](https://twitter.com/fernandeznorona/status/1627881408931807233) | 0 Me Gusta | 12 Retweets

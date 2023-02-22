@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 15:50:13
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 21:07:57
 *****
-Mientras en Estados Unidos declaran culpable a @GenaroGarciaL, en México, jueces federales descongelan cuentas de su esposa.
-[Permalink](https://twitter.com/fernandeznorona/status/1628180323367366667) | 293 Me Gusta | 108 Retweets
+Oye a éste cretino. @SalCamarena confunde al país con sus patrones.
+[Permalink](https://twitter.com/fernandeznorona/status/1628260282798686208) | 65 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 14:47:16
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 20:51:30
 *****
-La rueda de prensa que acabo de dar el veredicto de culpabilidad contra @GenaroGarciaL prácticamente desierta. La fuente de la @Mx_Diputados ratifica su comportamiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1628164479169986560) | 377 Me Gusta | 116 Retweets
+Los medios, ayer como hoy, difundiendo el comunicado del #tomandanteBorolas alias @FelipeCalderon diciendo que no pactó con los narcos. Habla con verdad, solo pactó con el Chapo.
+[Permalink](https://twitter.com/fernandeznorona/status/1628256142546636800) | 188 Me Gusta | 53 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 14:21:44
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 20:50:09
 *****
-RT @AleCamph: El tiempo pone a cada uno en su lugar el Diputado @fernandeznorona siempre tuvo la razón #justicia #GarciaLunaElPANyCalderonS…
-[Permalink](https://twitter.com/fernandeznorona/status/1628158053601144834) | 0 Me Gusta | 253 Retweets
+Y ustedes le creen al #tomandanteBorolas alias @FelipeCalderon, ¿Verdad @reformanacional?
+[Permalink](https://twitter.com/fernandeznorona/status/1628255803550441472) | 104 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 14:20:53
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 19:45:12
 *****
-Los paniaguados abandonaron la sesión de @Mx_Diputados. Lo hicieron, apenas se enteraron de la sentencia de culpabilidad de @GenaroGarciaL.
-[Permalink](https://twitter.com/fernandeznorona/status/1628157838395580417) | 1,225 Me Gusta | 387 Retweets
+No se la muestren a @ChicChillon, porque se suicida. @ChicShion.
+[Permalink](https://twitter.com/fernandeznorona/status/1628239455248166915) | 72 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 13:10:03
+**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 19:42:11
 *****
-Xacto. ⁦@eldeforma⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1628140016474984487) | 1,838 Me Gusta | 290 Retweets
+Oye #TomandanteBorolas alias @FelipeCalderon, tú no fuiste presidente, uso de la presidencia. Eso para abrir boca. De que eres socio del Chapo, ya nadie lo duda. Antes no me creían, hoy todo el mundo sabe que hablé con verdad.
+[Permalink](https://twitter.com/fernandeznorona/status/1628238699623227393) | 1,587 Me Gusta | 490 Retweets

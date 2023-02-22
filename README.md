@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 21:07:57
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2023 a las 08:09:19
 *****
-Oye a éste cretino. @SalCamarena confunde al país con sus patrones.
-[Permalink](https://twitter.com/fernandeznorona/status/1628260282798686208) | 114 Me Gusta | 28 Retweets
+Chingadera de teléfono cada vez peor; donde dice “uso de la presidencia”, debe decir: usurpaste la presidencia, #TomandanteBorolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1628426719295156224) | 117 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 20:51:30
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2023 a las 08:07:51
 *****
-Los medios, ayer como hoy, difundiendo el comunicado del #tomandanteBorolas alias @FelipeCalderon diciendo que no pactó con los narcos. Habla con verdad, solo pactó con el Chapo.
-[Permalink](https://twitter.com/fernandeznorona/status/1628256142546636800) | 289 Me Gusta | 85 Retweets
+En realidad desde 2009 y hasta 2012, en todas sus comparecencias.
+[Permalink](https://twitter.com/fernandeznorona/status/1628426352876560384) | 63 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 20:50:09
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2023 a las 07:59:19
 *****
-Y ustedes le creen al #tomandanteBorolas alias @FelipeCalderon, ¿Verdad @reformanacional?
-[Permalink](https://twitter.com/fernandeznorona/status/1628255803550441472) | 136 Me Gusta | 30 Retweets
+RT @SoyNinoCanun:
+[Permalink](https://twitter.com/fernandeznorona/status/1628424202616246273) | 0 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 19:45:12
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2023 a las 07:23:33
 *****
-No se la muestren a @ChicChillon, porque se suicida. @ChicShion.
-[Permalink](https://twitter.com/fernandeznorona/status/1628239455248166915) | 90 Me Gusta | 20 Retweets
+“-Ningún hombre puede satisfacer a una mujer que no lo quiere -dijo Herzog”. Bellow.
+[Permalink](https://twitter.com/fernandeznorona/status/1628415201287585792) | 94 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-02-2023 a las 19:42:11
+**Fernández Noroña** (**@fernandeznorona**) • 22-02-2023 a las 07:10:34
 *****
-Oye #TomandanteBorolas alias @FelipeCalderon, tú no fuiste presidente, uso de la presidencia. Eso para abrir boca. De que eres socio del Chapo, ya nadie lo duda. Antes no me creían, hoy todo el mundo sabe que hablé con verdad.
-[Permalink](https://twitter.com/fernandeznorona/status/1628238699623227393) | 2,425 Me Gusta | 729 Retweets
+Mi barrio.
+[Permalink](https://twitter.com/fernandeznorona/status/1628411935631736833) | 89 Me Gusta | 13 Retweets

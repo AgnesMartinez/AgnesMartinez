@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2023 a las 11:35:14
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2023 a las 21:20:35
 *****
-RT @_VicenteSerrano: Un diputado que debe ser reivindicado es @fernandeznorona... #GarciaLuna sí era n4rc0
-[Permalink](https://twitter.com/fernandeznorona/status/1628840929527271426) | 0 Me Gusta | 73 Retweets
+RT @atr_ahre: ¡La felicidad de este perrito al ser adoptado no tiene precio! 😭😍
+[Permalink](https://twitter.com/fernandeznorona/status/1628988237594218497) | 0 Me Gusta | 11,916 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2023 a las 07:05:54
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2023 a las 21:14:54
 *****
-Merecida primera plana. ¡Genial!
-[Permalink](https://twitter.com/fernandeznorona/status/1628773148307910656) | 375 Me Gusta | 89 Retweets
+RT @Navegaciones: Mucho efectismo dramático, desgarrarse las vestiduras y todo, @SantiagoCreelM, pero tú coordinabas el gabinete de Segurid…
+[Permalink](https://twitter.com/fernandeznorona/status/1628986808682876928) | 0 Me Gusta | 197 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2023 a las 07:03:39
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2023 a las 21:12:01
 *****
-RT @DamianAIcazar: !Hay que decirlo!
-
-
-El diputado @fernandeznorona es un chingón.
-[Permalink](https://twitter.com/fernandeznorona/status/1628772581342867456) | 0 Me Gusta | 2,130 Retweets
+¿Oigan y la “princesa” ya dijo como le hará para gobernar su ínsula Barataria teniendo 20 hernias en la columna vertebral?
+[Permalink](https://twitter.com/fernandeznorona/status/1628986083135393792) | 181 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2023 a las 07:03:36
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2023 a las 21:08:50
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1628772571335229446) | 746 Me Gusta | 74 Retweets
+Papi, papi, eres narco, borracho y usurpador, pero como me has educado en la hipocresía, estoy muy orgulloso de ti. Buena labor hiciste #TomandanteBorolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1628985279460564994) | 384 Me Gusta | 89 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-02-2023 a las 20:47:26
+**Fernández Noroña** (**@fernandeznorona**) • 23-02-2023 a las 21:02:17
 *****
-RT @aura_fdez: Ayúdame a difundir para encontrarla.
-[Permalink](https://twitter.com/fernandeznorona/status/1628617506498703361) | 0 Me Gusta | 63 Retweets
+Mañana dirán que el #TomandanteBorolas alias @FelipeCalderon no es panista. Que fue, pero que ya no es. Desvergonzados.
+[Permalink](https://twitter.com/fernandeznorona/status/1628983631170400257) | 195 Me Gusta | 40 Retweets

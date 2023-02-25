@@ -1,27 +1,33 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 19:59:30
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 23:23:43
 *****
-RT @cebver: Solicitamos su colaboración para localizar a la C. Ruth Janeyri Jiménez Vargas, cualquier información contactar al número y/o c…
-[Permalink](https://twitter.com/fernandeznorona/status/1629330217742245895) | 0 Me Gusta | 36 Retweets
+RT @fabianpulidoFA: Para Alemania, la empresa Tesla representa un peligro para el recurso hídrico.
+
+
+"Un tribunal de Brandeburgo deberá deci…
+[Permalink](https://twitter.com/fernandeznorona/status/1629381612176801793) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 19:59:20
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 23:22:24
 *****
-RT @jgnaredo: Dice el @INEMexico que es falso que  @lorenzocordovav y @CiroMurayamaINE recibirán 10 millones de pesos de finiquito cada uno…
-[Permalink](https://twitter.com/fernandeznorona/status/1629330178278141952) | 0 Me Gusta | 531 Retweets
+RT @covidefem1: URGENTE MÁXIMA DIFUSIÓN 🚨
+Estefanía Soria
+25 años 
+Desparecida desde el 01 de feb 2023
+Sector valle de los chillos puente 8…
+[Permalink](https://twitter.com/fernandeznorona/status/1629381282911383552) | 0 Me Gusta | 133 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 19:59:09
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 23:21:20
 *****
-Con una hora de retraso saldremos a Tijuana.
-[Permalink](https://twitter.com/fernandeznorona/status/1629330131184410624) | 38 Me Gusta | 6 Retweets
+RT @juanbaaq: Un desvío de 5 mil millones de pesos fue la #EstafaMaestra, entramado de corrupción por el que a costa de los más pobres se e…
+[Permalink](https://twitter.com/fernandeznorona/status/1629381011565060096) | 0 Me Gusta | 2,128 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 19:24:16
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 23:20:25
 *****
-9: 22 y ni siquiera hemos podido abordar el vuelo de @Aeromexico a Tijuana. La salida estaba programada a las nueve de la noche. Pero siguen saboteando al @aifaaero, mientras el @AICM_mx está absolutamente saturado.
-[Permalink](https://twitter.com/fernandeznorona/status/1629321354792017922) | 113 Me Gusta | 24 Retweets
+RT @DemocracyNowEs: “Malcolm X tenía solo 39 años cuando fue asesinado, la misma edad que tenía Martin Luther King Jr., tres años después,…
+[Permalink](https://twitter.com/fernandeznorona/status/1629380779846569984) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 19:21:13
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 23:17:46
 *****
-RT @SupsipS: y 200 senadores. Lo cual nos da 1 diputado por cada 150 mil y 1 senador por cada 300 mil italianos.
-Seguiría teniendo casi el…
-[Permalink](https://twitter.com/fernandeznorona/status/1629320587158888448) | 0 Me Gusta | 9 Retweets
+¿Y qué dijo?
+[Permalink](https://twitter.com/fernandeznorona/status/1629380117108781056) | 158 Me Gusta | 39 Retweets

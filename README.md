@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 09:21:30
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 19:59:30
 *****
-Nunca es tarde para tener valor y hacer una investigación que debieron haber hecho hace 14 años.
-[Permalink](https://twitter.com/fernandeznorona/status/1629169662087905281) | 391 Me Gusta | 101 Retweets
+RT @cebver: Solicitamos su colaboración para localizar a la C. Ruth Janeyri Jiménez Vargas, cualquier información contactar al número y/o c…
+[Permalink](https://twitter.com/fernandeznorona/status/1629330217742245895) | 0 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 09:20:54
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 19:59:20
 *****
-RT @Dcyon: #AyudameARegresarACasa #Gato #GatosPerdidosMx #perdido #Michi #Narvarte #CDMX
-[Permalink](https://twitter.com/fernandeznorona/status/1629169510107303937) | 0 Me Gusta | 54 Retweets
+RT @jgnaredo: Dice el @INEMexico que es falso que  @lorenzocordovav y @CiroMurayamaINE recibirán 10 millones de pesos de finiquito cada uno…
+[Permalink](https://twitter.com/fernandeznorona/status/1629330178278141952) | 0 Me Gusta | 531 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 09:20:08
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 19:59:09
 *****
-RT @jenarovillamil: #Informativo14. Más de 9 mdp recibirían los consejeros @lorenzocordovav y @CiroMurayamaINE por finiquito, incluyendo mi…
-[Permalink](https://twitter.com/fernandeznorona/status/1629169315835482114) | 0 Me Gusta | 1,377 Retweets
+Con una hora de retraso saldremos a Tijuana.
+[Permalink](https://twitter.com/fernandeznorona/status/1629330131184410624) | 38 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 09:19:06
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 19:24:16
 *****
-@jon_aleman7 Vez. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1629169059584409600) | 19 Me Gusta | 0 Retweets
+9: 22 y ni siquiera hemos podido abordar el vuelo de @Aeromexico a Tijuana. La salida estaba programada a las nueve de la noche. Pero siguen saboteando al @aifaaero, mientras el @AICM_mx está absolutamente saturado.
+[Permalink](https://twitter.com/fernandeznorona/status/1629321354792017922) | 113 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-02-2023 a las 21:20:35
+**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 19:21:13
 *****
-RT @atr_ahre: ¡La felicidad de este perrito al ser adoptado no tiene precio! 😭😍
-[Permalink](https://twitter.com/fernandeznorona/status/1628988237594218497) | 0 Me Gusta | 15,905 Retweets
+RT @SupsipS: y 200 senadores. Lo cual nos da 1 diputado por cada 150 mil y 1 senador por cada 300 mil italianos.
+Seguiría teniendo casi el…
+[Permalink](https://twitter.com/fernandeznorona/status/1629320587158888448) | 0 Me Gusta | 9 Retweets

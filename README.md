@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-02-2023 a las 15:58:47
+**Fernández Noroña** (**@fernandeznorona**) • 25-02-2023 a las 20:58:06
 *****
-Tijuana. A pesar del frío y la lluvia.
-[Permalink](https://twitter.com/fernandeznorona/status/1629632030928678914) | 103 Me Gusta | 19 Retweets
+Lo terminé. Es un libro espléndido. Gran historiador Carlos Monsiváis.
+[Permalink](https://twitter.com/fernandeznorona/status/1629707355196649472) | 80 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-02-2023 a las 15:35:44
+**Fernández Noroña** (**@fernandeznorona**) • 25-02-2023 a las 19:59:50
 *****
-La video charla será por la noche, tengo un evento en Tijuana a esta hora. Hacia las ocho de la noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1629626229753085952) | 68 Me Gusta | 13 Retweets
+RT @LJyDMX: Nuestro #CharroNegro Gerardo @fernandeznorona preparando su video charla en hotel Lucerna de  Tijuana, después de cumplir exito…
+[Permalink](https://twitter.com/fernandeznorona/status/1629692691155128320) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-02-2023 a las 09:17:48
+**Fernández Noroña** (**@fernandeznorona**) • 25-02-2023 a las 19:59:09
 *****
-Así va en Tijuana, primera reunión por la mañana.
-[Permalink](https://twitter.com/fernandeznorona/status/1629531117337411595) | 155 Me Gusta | 30 Retweets
+Iré.
+[Permalink](https://twitter.com/fernandeznorona/status/1629692518261731330) | 49 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-02-2023 a las 09:15:25
+**Fernández Noroña** (**@fernandeznorona**) • 25-02-2023 a las 19:50:30
 *****
-A pesar de la lluvia y el frío, Tijuana.
-[Permalink](https://twitter.com/fernandeznorona/status/1629530520097890305) | 243 Me Gusta | 36 Retweets
+RT @balles72: Anda tristón 🤭🤭🤭
+\#MarchaDeNarcosyCorruptos
+[Permalink](https://twitter.com/fernandeznorona/status/1629690342005153792) | 0 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-02-2023 a las 23:23:43
+**Fernández Noroña** (**@fernandeznorona**) • 25-02-2023 a las 19:50:16
 *****
-RT @fabianpulidoFA: Para Alemania, la empresa Tesla representa un peligro para el recurso hídrico.
-
-
-"Un tribunal de Brandeburgo deberá deci…
-[Permalink](https://twitter.com/fernandeznorona/status/1629381612176801793) | 0 Me Gusta | 20 Retweets
+RT @abrahamendieta: Si continúa empeorando la imagen del PAN, los cárteles del narcotráfico van a tener que sacar un comunicado desvinculán…
+[Permalink](https://twitter.com/fernandeznorona/status/1629690283242979328) | 0 Me Gusta | 1,670 Retweets

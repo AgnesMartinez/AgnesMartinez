@@ -1,28 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 19:35:18
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2023 a las 04:05:03
 *****
-La derecha no quiere reconocer que @FelipeCalderon y @GenaroGarciaL son dos caras de la misma moneda; pero el pueblo lo ve muy claro, por más músculo que muestren. La paradoja es que están en la lona, aunque hoy les haya ido bien en su movilización.
-[Permalink](https://twitter.com/fernandeznorona/status/1630048903180713986) | 282 Me Gusta | 80 Retweets
+Otro que confunde la plaza de Leandro Valle con estacionamiento. ⁦@UCS_GCDMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1630177189592285184) | 13 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 19:29:11
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2023 a las 03:16:40
 *****
-Es que con ustedes, que se decían demócratas, encarcelaban y asesinaban, que son las formas de represión más brutales.
-[Permalink](https://twitter.com/fernandeznorona/status/1630047363971645440) | 99 Me Gusta | 32 Retweets
+Te equivocas en redondo y te espantas con el petate del muerto. O quizás buscar golpear a alguna de las personas que aspiran, mientras la derecha, a pesar de sus diferencias, consolida su unidad.
+[Permalink](https://twitter.com/fernandeznorona/status/1630165013800312833) | 16 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 19:25:56
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2023 a las 03:15:03
 *****
-RT @taller2006: A mí no me obliga nadie a nada.
-Solo te demostré que trataste de manipular un vídeo al sacarlo de contexto.
-La original Ver…
-[Permalink](https://twitter.com/fernandeznorona/status/1630046547604828160) | 0 Me Gusta | 7 Retweets
+RT @DavidVargasA18: ¿Porque es orador José Ramón Cossío en la marcha del narco?
+
+
+Es un exministro corrupto.
+Dejó impune a los asesin@s de l…
+[Permalink](https://twitter.com/fernandeznorona/status/1630164605614825478) | 0 Me Gusta | 2,015 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 19:18:46
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2023 a las 03:12:36
 *****
-Hay que reconocer que lograron su objetivo el día de hoy. Me parece que hay que mostrar nuestra fuerza, que es muy superior, en vez de seguir negando que la derecha avanza.
-[Permalink](https://twitter.com/fernandeznorona/status/1630044746172313600) | 578 Me Gusta | 64 Retweets
+Recién aterrizamos en la capital.
+[Permalink](https://twitter.com/fernandeznorona/status/1630163988792082432) | 12 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 19:05:52
+**Fernández Noroña** (**@fernandeznorona**) • 27-02-2023 a las 00:01:42
 *****
-14,428 en Facebook y, 19,208 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1630041496949780480) | 75 Me Gusta | 8 Retweets
+Si me olvidó como defendías la democracia en 2006, en 2012 y no sé dónde andabas en 1988.
+[Permalink](https://twitter.com/fernandeznorona/status/1630115947142053896) | 58 Me Gusta | 11 Retweets

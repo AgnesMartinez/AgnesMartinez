@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 15:55:59
+**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 19:35:18
 *****
-La videocharla de hoy será hacia las 7 PM.
-[Permalink](https://twitter.com/fernandeznorona/status/1629993710329970688) | 44 Me Gusta | 11 Retweets
+La derecha no quiere reconocer que @FelipeCalderon y @GenaroGarciaL son dos caras de la misma moneda; pero el pueblo lo ve muy claro, por más músculo que muestren. La paradoja es que están en la lona, aunque hoy les haya ido bien en su movilización.
+[Permalink](https://twitter.com/fernandeznorona/status/1630048903180713986) | 282 Me Gusta | 80 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 15:41:11
+**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 19:29:11
 *****
-Maneadero, Ensenada.
-[Permalink](https://twitter.com/fernandeznorona/status/1629989989550374913) | 63 Me Gusta | 15 Retweets
+Es que con ustedes, que se decían demócratas, encarcelaban y asesinaban, que son las formas de represión más brutales.
+[Permalink](https://twitter.com/fernandeznorona/status/1630047363971645440) | 99 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 13:19:04
+**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 19:25:56
 *****
-¡Ay Papantla!
-[Permalink](https://twitter.com/fernandeznorona/status/1629954221037568001) | 76 Me Gusta | 7 Retweets
+RT @taller2006: A mí no me obliga nadie a nada.
+Solo te demostré que trataste de manipular un vídeo al sacarlo de contexto.
+La original Ver…
+[Permalink](https://twitter.com/fernandeznorona/status/1630046547604828160) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 13:10:06
+**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 19:18:46
 *****
-Hoy en Tijuana.
-[Permalink](https://twitter.com/fernandeznorona/status/1629951965756112897) | 115 Me Gusta | 27 Retweets
+Hay que reconocer que lograron su objetivo el día de hoy. Me parece que hay que mostrar nuestra fuerza, que es muy superior, en vez de seguir negando que la derecha avanza.
+[Permalink](https://twitter.com/fernandeznorona/status/1630044746172313600) | 578 Me Gusta | 64 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 13:08:01
+**Fernández Noroña** (**@fernandeznorona**) • 26-02-2023 a las 19:05:52
 *****
-Nuestra asamblea en Tijuana.
-[Permalink](https://twitter.com/fernandeznorona/status/1629951440142704640) | 178 Me Gusta | 37 Retweets
+14,428 en Facebook y, 19,208 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1630041496949780480) | 75 Me Gusta | 8 Retweets

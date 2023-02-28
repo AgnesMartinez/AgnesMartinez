@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2023 a las 19:11:34
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 09:02:27
 *****
-Las críticas son válidas. Lo que es una patraña es cargarle la responsabilidad de la fuerza de la manifestación de ayer.
-[Permalink](https://twitter.com/fernandeznorona/status/1630405319808503808) | 62 Me Gusta | 4 Retweets
+Se maltrata el #tomandanteborolas alias @FelipeCalderon en España. Se ve que extraña a la familia.
+[Permalink](https://twitter.com/fernandeznorona/status/1630614418022187010) | 44 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2023 a las 18:14:28
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 08:45:58
 *****
-¡Ah qué caray! Y @alitomorenoc tan entusiasta ayer en el zócalo. Pero todavía le quedan los canallas del @TEPJF_informa. Esos venden su sentencia y seguro les llegará al precio el dirigente del @PRI_Nacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1630390951125434368) | 118 Me Gusta | 36 Retweets
+¡Falible! En verdad eres bruto cabeza hueca de @VicenteFoxQue. Seguro quisiste poner infalible. Por otro lado, tu desvergüenza es inaudita: “La sencillez de ‘Los Pinos”. Le llamas sencillez al conjunto de mansiones que hay en lo que eufemísticamente llamaban residencia oficial.
+[Permalink](https://twitter.com/fernandeznorona/status/1630610271382261761) | 163 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2023 a las 17:24:04
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 08:41:00
 *****
-Ahí estaré.
-[Permalink](https://twitter.com/fernandeznorona/status/1630378266925178881) | 81 Me Gusta | 29 Retweets
+Lo veo claramente. Pero yo no entraré a la política mezquina y de lodo. Seré solidario siempre.
+[Permalink](https://twitter.com/fernandeznorona/status/1630609019227217921) | 41 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2023 a las 17:14:54
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 08:39:42
 *****
-10,725 en Facebook y, 14,087 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1630375959596777473) | 141 Me Gusta | 20 Retweets
+RT @rosendomarind: Todos los librófilos a darse una vuelta a la 44 FIL Palacio de Minería este miér 1 de marzo 17 hrs. Patio Tacuba Sección…
+[Permalink](https://twitter.com/fernandeznorona/status/1630608692080001026) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-02-2023 a las 14:52:00
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 06:47:11
 *****
-@guilbert_ga @QuinquePolitico Transas.
-[Permalink](https://twitter.com/fernandeznorona/status/1630339999500746757) | 7 Me Gusta | 0 Retweets
+RT @fgjesonora: 🟠 Se desactiva #AlertaAmber al localizar sana y a salvo a Nancy Karenia Anguamea Vázquez, de 13 años de edad, quien fue rep…
+[Permalink](https://twitter.com/fernandeznorona/status/1630580378934317056) | 0 Me Gusta | 16 Retweets

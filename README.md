@@ -1,30 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 17:28:18
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 10:04:46
 *****
-Como ustedes no hacen nada, ahora ya son dos los vehículos estacionados en Leandro Valle ⁦@UCS_GCDMX⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1630741719355469824) | 136 Me Gusta | 28 Retweets
+Si la inversión de Tesla no se hubiese hecho, decían que era culpa del compañero presidente @lopezobrador_; si se hace, dicen que sea cierto del inútil de @samuel_garcias. ¿Así o más hipócritas?
+[Permalink](https://twitter.com/fernandeznorona/status/1630992489443196930) | 39 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 17:23:37
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 09:59:42
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1630740541301465088) | 332 Me Gusta | 60 Retweets
+RT @LetyVarela: A #Manchas la golpeaban en las calles de Iztapalapa y la rescatamos; en su primera revisión en Brigada de Vigilancia Animal…
+[Permalink](https://twitter.com/fernandeznorona/status/1630991214517387282) | 0 Me Gusta | 394 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 17:19:03
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 09:35:10
 *****
-11,115 en Facebook y, 13,573 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1630739392884080641) | 114 Me Gusta | 22 Retweets
+En cuanto a los sepultureros del @PRDMexico, no oí su intervención. Estaba en una reunión de JUCOPO. Pero no hubo alusión a mi persona, se hablaba frente al espejo, pues @GenaroGarciaL es su compañero.
+[Permalink](https://twitter.com/fernandeznorona/status/1630985042339004416) | 20 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 16:07:14
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 09:29:30
 *****
-Otro que confunde la plaza de Leandro Valle con Estacionamiento. ⁦@UCS_GCDMX⁩
-[Permalink](https://twitter.com/fernandeznorona/status/1630721317149491201) | 83 Me Gusta | 18 Retweets
+No es una burla, es una crítica. Reconozco que mostraron músculo. Lamentable que sus motores son el odio, el racismo y el clasismo; la desinformación y la ignorancia monumental. Pensándolo bien, hasta fui generoso en decirle pedorra.
+[Permalink](https://twitter.com/fernandeznorona/status/1630983613779935233) | 43 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 15:29:24
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 09:26:25
 *****
-RT @ensanar: @VicenteFoxQue Que pinos ni que ocho cuartos, derechito al 
-Metropolitan Detention Center.
-
-
-Ahí pronto te veremos con tus cómp…
-[Permalink](https://twitter.com/fernandeznorona/status/1630711796838400000) | 0 Me Gusta | 52 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1630982837280047142) | 10 Me Gusta | 2 Retweets

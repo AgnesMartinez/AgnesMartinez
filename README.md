@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 09:02:27
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 16:07:14
 *****
-Se maltrata el #tomandanteborolas alias @FelipeCalderon en España. Se ve que extraña a la familia.
-[Permalink](https://twitter.com/fernandeznorona/status/1630614418022187010) | 44 Me Gusta | 7 Retweets
+Otro que confunde la plaza de Leandro Valle con Estacionamiento. ⁦@UCS_GCDMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1630721317149491201) | 49 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 08:45:58
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 15:29:24
 *****
-¡Falible! En verdad eres bruto cabeza hueca de @VicenteFoxQue. Seguro quisiste poner infalible. Por otro lado, tu desvergüenza es inaudita: “La sencillez de ‘Los Pinos”. Le llamas sencillez al conjunto de mansiones que hay en lo que eufemísticamente llamaban residencia oficial.
-[Permalink](https://twitter.com/fernandeznorona/status/1630610271382261761) | 163 Me Gusta | 39 Retweets
+RT @ensanar: @VicenteFoxQue Que pinos ni que ocho cuartos, derechito al 
+Metropolitan Detention Center.
+
+
+Ahí pronto te veremos con tus cómp…
+[Permalink](https://twitter.com/fernandeznorona/status/1630711796838400000) | 0 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 08:41:00
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 14:54:24
 *****
-Lo veo claramente. Pero yo no entraré a la política mezquina y de lodo. Seré solidario siempre.
-[Permalink](https://twitter.com/fernandeznorona/status/1630609019227217921) | 41 Me Gusta | 6 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1630702989739425792) | 43 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 08:39:42
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 14:54:13
 *****
-RT @rosendomarind: Todos los librófilos a darse una vuelta a la 44 FIL Palacio de Minería este miér 1 de marzo 17 hrs. Patio Tacuba Sección…
-[Permalink](https://twitter.com/fernandeznorona/status/1630608692080001026) | 0 Me Gusta | 5 Retweets
+Besitos libres de toda misoginia.
+[Permalink](https://twitter.com/fernandeznorona/status/1630702944055091200) | 25 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 06:47:11
+**Fernández Noroña** (**@fernandeznorona**) • 28-02-2023 a las 13:04:52
 *****
-RT @fgjesonora: 🟠 Se desactiva #AlertaAmber al localizar sana y a salvo a Nancy Karenia Anguamea Vázquez, de 13 años de edad, quien fue rep…
-[Permalink](https://twitter.com/fernandeznorona/status/1630580378934317056) | 0 Me Gusta | 16 Retweets
+RT @adrisaa05: Rescatan a un caballo vivo que permaneció 21 días bajo los escombros del sismo en Turquía. 👏👏👏👏👏👏
+[Permalink](https://twitter.com/fernandeznorona/status/1630675425721548804) | 0 Me Gusta | 20 Retweets

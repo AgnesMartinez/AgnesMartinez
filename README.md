@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 10:04:46
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 13:02:04
 *****
-Si la inversión de Tesla no se hubiese hecho, decían que era culpa del compañero presidente @lopezobrador_; si se hace, dicen que sea cierto del inútil de @samuel_garcias. ¿Así o más hipócritas?
-[Permalink](https://twitter.com/fernandeznorona/status/1630992489443196930) | 39 Me Gusta | 10 Retweets
+RT @rafitarg: Ya me llegaron mis libros! 🥳
+Muchas gracias @fernandeznorona y al @CE_MXdiputados por su trabajo y dedicación. 🤗
+[Permalink](https://twitter.com/fernandeznorona/status/1631037107035680770) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 09:59:42
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 12:57:57
 *****
-RT @LetyVarela: A #Manchas la golpeaban en las calles de Iztapalapa y la rescatamos; en su primera revisión en Brigada de Vigilancia Animal…
-[Permalink](https://twitter.com/fernandeznorona/status/1630991214517387282) | 0 Me Gusta | 394 Retweets
+Yo.
+[Permalink](https://twitter.com/fernandeznorona/status/1631036072619540482) | 197 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 09:35:10
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 12:56:43
 *****
-En cuanto a los sepultureros del @PRDMexico, no oí su intervención. Estaba en una reunión de JUCOPO. Pero no hubo alusión a mi persona, se hablaba frente al espejo, pues @GenaroGarciaL es su compañero.
-[Permalink](https://twitter.com/fernandeznorona/status/1630985042339004416) | 20 Me Gusta | 5 Retweets
+RT @lopezobrador_: Hace poco, en el carnaval de Hecelchakán, Campeche, hicieron una representación de lo mismo. El pueblo del sureste se ap…
+[Permalink](https://twitter.com/fernandeznorona/status/1631035762933202946) | 0 Me Gusta | 1,653 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 09:29:30
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 12:55:21
 *****
-No es una burla, es una crítica. Reconozco que mostraron músculo. Lamentable que sus motores son el odio, el racismo y el clasismo; la desinformación y la ignorancia monumental. Pensándolo bien, hasta fui generoso en decirle pedorra.
-[Permalink](https://twitter.com/fernandeznorona/status/1630983613779935233) | 43 Me Gusta | 11 Retweets
+¡Qué chingón!
+[Permalink](https://twitter.com/fernandeznorona/status/1631035416169119745) | 67 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 09:26:25
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 12:53:13
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1630982837280047142) | 10 Me Gusta | 2 Retweets
+Para que estén informados.
+[Permalink](https://twitter.com/fernandeznorona/status/1631034882817245185) | 48 Me Gusta | 16 Retweets

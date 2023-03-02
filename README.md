@@ -1,27 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 21:19:29
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 09:35:53
 *****
-RT @Mx_Diputados: 📚El presidente del Consejo Editorial, el diputado @fernandeznorona participó en la Feria Internacional del Libro del Pala…
-[Permalink](https://twitter.com/fernandeznorona/status/1631162286327885829) | 0 Me Gusta | 8 Retweets
+RT @FerCuevasMur: Tesla generará 6,000 empleos y los medios no paran de aplaudir. 
+
+
+El tren maya, ya generó 114,000 empleos y los medios ha…
+[Permalink](https://twitter.com/fernandeznorona/status/1631347606570909696) | 0 Me Gusta | 575 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 21:08:22
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 09:16:03
 *****
-Pues no se quedó con nada.
-[Permalink](https://twitter.com/fernandeznorona/status/1631159491034066944) | 70 Me Gusta | 9 Retweets
+Transa. Seguro lo escribió tu líder el cabeza hueca @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1631342615613284353) | 57 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 20:30:33
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 08:21:11
 *****
-RT @FiscaliaCDMX: Ha sido localizada la menor de edad, Paulette Romero Uriostegui, agradecemos a la ciudadanía, medios de comunicación e in…
-[Permalink](https://twitter.com/fernandeznorona/status/1631149974942625793) | 0 Me Gusta | 11 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1631328807754899474) | 54 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 20:30:16
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 08:10:17
 *****
-RT @FiscaliaCDMX: Ha sido localizado el menor de edad, Ariel Santiago Romero Uriostegui, agradecemos a la ciudadanía, medios de comunicació…
-[Permalink](https://twitter.com/fernandeznorona/status/1631149899881361408) | 0 Me Gusta | 10 Retweets
+Me dicen que es un desorden. Se deben respetar las citas, que es requisito para acudir. A la ciudadana si no quiere esperarse hasta el sábado, la envían a San Luis Río Colorado.
+[Permalink](https://twitter.com/fernandeznorona/status/1631326065963540482) | 37 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 19:30:48
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 08:10:16
 *****
-RT @epigmenioibarra: Felipe Calderón necesitaba afianzarse en la presidencia que se había robado y el aval de una potencia extranjera.
-Por…
-[Permalink](https://twitter.com/fernandeznorona/status/1631134935871258624) | 0 Me Gusta | 744 Retweets
+Me comenta una ciudadana que fue a regularizar su auto de procedencia extranjera a Caborca Tenía cita hoy a las tres de la tarde. Llegó a las siete de la mañana, hay 170 carros y le dicen que le tocará hasta el sábado. Hay autos formados no son de cita de hoy. ¿Qué pasa @SHCP_mx?
+[Permalink](https://twitter.com/fernandeznorona/status/1631326064306692100) | 125 Me Gusta | 39 Retweets

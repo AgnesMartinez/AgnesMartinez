@@ -1,27 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 13:02:04
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 21:19:29
 *****
-RT @rafitarg: Ya me llegaron mis libros! 🥳
-Muchas gracias @fernandeznorona y al @CE_MXdiputados por su trabajo y dedicación. 🤗
-[Permalink](https://twitter.com/fernandeznorona/status/1631037107035680770) | 0 Me Gusta | 15 Retweets
+RT @Mx_Diputados: 📚El presidente del Consejo Editorial, el diputado @fernandeznorona participó en la Feria Internacional del Libro del Pala…
+[Permalink](https://twitter.com/fernandeznorona/status/1631162286327885829) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 12:57:57
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 21:08:22
 *****
-Yo.
-[Permalink](https://twitter.com/fernandeznorona/status/1631036072619540482) | 197 Me Gusta | 22 Retweets
+Pues no se quedó con nada.
+[Permalink](https://twitter.com/fernandeznorona/status/1631159491034066944) | 50 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 12:56:43
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 20:30:33
 *****
-RT @lopezobrador_: Hace poco, en el carnaval de Hecelchakán, Campeche, hicieron una representación de lo mismo. El pueblo del sureste se ap…
-[Permalink](https://twitter.com/fernandeznorona/status/1631035762933202946) | 0 Me Gusta | 1,653 Retweets
+RT @FiscaliaCDMX: Ha sido localizada la menor de edad, Paulette Romero Uriostegui, agradecemos a la ciudadanía, medios de comunicación e in…
+[Permalink](https://twitter.com/fernandeznorona/status/1631149974942625793) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 12:55:21
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 20:30:16
 *****
-¡Qué chingón!
-[Permalink](https://twitter.com/fernandeznorona/status/1631035416169119745) | 67 Me Gusta | 15 Retweets
+RT @FiscaliaCDMX: Ha sido localizado el menor de edad, Ariel Santiago Romero Uriostegui, agradecemos a la ciudadanía, medios de comunicació…
+[Permalink](https://twitter.com/fernandeznorona/status/1631149899881361408) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 12:53:13
+**Fernández Noroña** (**@fernandeznorona**) • 01-03-2023 a las 19:30:48
 *****
-Para que estén informados.
-[Permalink](https://twitter.com/fernandeznorona/status/1631034882817245185) | 48 Me Gusta | 16 Retweets
+RT @epigmenioibarra: Felipe Calderón necesitaba afianzarse en la presidencia que se había robado y el aval de una potencia extranjera.
+Por…
+[Permalink](https://twitter.com/fernandeznorona/status/1631134935871258624) | 0 Me Gusta | 690 Retweets

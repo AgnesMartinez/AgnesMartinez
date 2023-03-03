@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 21:46:47
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 08:44:53
 *****
-“Sabía calcular mentalmente porcentajes a gran velocidad, pero carecía de la imaginación para hacer trampas que debe poseer todo hombre de negocios”. Saul Bellow.
-[Permalink](https://twitter.com/fernandeznorona/status/1631531545453273090) | 63 Me Gusta | 9 Retweets
+RT @Sanx415: En @IndautorMexico están pidiendo cubrebocas para ingresar al inmueble pese a que es opcional el uso in interiores.  @GobCDMX
+[Permalink](https://twitter.com/fernandeznorona/status/1631697160180727831) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 21:23:21
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 08:30:55
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1631525648404561920) | 72 Me Gusta | 15 Retweets
+RT @SupsipS: Para que se den una idea, desde el 15 de enero de 2016 que el dólar no estaba en el valor que está hoy.
+Cuándo en la vida habí…
+[Permalink](https://twitter.com/fernandeznorona/status/1631693647732146180) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 21:22:48
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 08:09:33
 *****
-Qué chingona foto. En la línea de batalla.
-[Permalink](https://twitter.com/fernandeznorona/status/1631525511418585090) | 222 Me Gusta | 41 Retweets
+Explícame porque si la @SCJN tiene once ministros, solo uno de ellos decide, es lo que estás afirmando @Mzavalagc.
+[Permalink](https://twitter.com/fernandeznorona/status/1631688269522935811) | 109 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 21:20:16
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 08:01:47
 *****
-RT @LuciaAlvites: Así reprimieron hoy día en Plaza San Martín, madres con sus hijos que pacíficamente marchaban. ¿En qué país marchar te po…
-[Permalink](https://twitter.com/fernandeznorona/status/1631524873238376448) | 0 Me Gusta | 912 Retweets
+RT @Veoloquecreo: Para justificar un ataque contra Cuba, en 1962 el Pentágono intentó la aprobación de la Operación Northwoods para desenca…
+[Permalink](https://twitter.com/fernandeznorona/status/1631686315665240071) | 0 Me Gusta | 119 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 21:19:47
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 07:59:32
 *****
-RT @violetavr: La vocación democrática de quedarte 14 años en el cargo -y le faltaban otros tres-
-[Permalink](https://twitter.com/fernandeznorona/status/1631524751725285377) | 0 Me Gusta | 488 Retweets
+RT @Nacion321: El presidente López Obrador acusa que Edmundo Jacobo Molina lleva más de 30 años en el INE y en ese tiempo ser parte del gru…
+[Permalink](https://twitter.com/fernandeznorona/status/1631685749325066243) | 0 Me Gusta | 15 Retweets

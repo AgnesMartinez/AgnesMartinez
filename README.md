@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 18:29:15
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 21:46:47
 *****
-11,300 en Facebook y, 11,298 en YouTube. Hoy los números son más creíble, regularmente entra más gente a Facebook.
-[Permalink](https://twitter.com/fernandeznorona/status/1631481836579766272) | 38 Me Gusta | 4 Retweets
+“Sabía calcular mentalmente porcentajes a gran velocidad, pero carecía de la imaginación para hacer trampas que debe poseer todo hombre de negocios”. Saul Bellow.
+[Permalink](https://twitter.com/fernandeznorona/status/1631531545453273090) | 41 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 14:38:24
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 21:23:21
 *****
-Hoy la video charla será a las siete de la noche pues voy a una entrevista en capital 21.
-[Permalink](https://twitter.com/fernandeznorona/status/1631423740796870665) | 88 Me Gusta | 20 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1631525648404561920) | 52 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 13:07:18
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 21:22:48
 *****
-Pobre Edmundo Jacobo. Ha ganado 150,000 pesos mensuales por catorce años y quiere otro seis años. Es un atentado a la democracia su salida.
-[Permalink](https://twitter.com/fernandeznorona/status/1631400813389131777) | 717 Me Gusta | 241 Retweets
+Qué chingona foto. En la línea de batalla.
+[Permalink](https://twitter.com/fernandeznorona/status/1631525511418585090) | 105 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 13:00:10
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 21:20:16
 *****
-Dice que 14 años no le bastan, que quiere 20.
-[Permalink](https://twitter.com/fernandeznorona/status/1631399018772217856) | 161 Me Gusta | 60 Retweets
+RT @LuciaAlvites: Así reprimieron hoy día en Plaza San Martín, madres con sus hijos que pacíficamente marchaban. ¿En qué país marchar te po…
+[Permalink](https://twitter.com/fernandeznorona/status/1631524873238376448) | 0 Me Gusta | 711 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 12:36:24
+**Fernández Noroña** (**@fernandeznorona**) • 02-03-2023 a las 21:19:47
 *****
-RT @politicomx: Edmundo Jacobo ha percibido durante 15 años, de acuerdo con la información del @INEMexico, un monto mensual neto de más de…
-[Permalink](https://twitter.com/fernandeznorona/status/1631393038625808420) | 0 Me Gusta | 21 Retweets
+RT @violetavr: La vocación democrática de quedarte 14 años en el cargo -y le faltaban otros tres-
+[Permalink](https://twitter.com/fernandeznorona/status/1631524751725285377) | 0 Me Gusta | 478 Retweets

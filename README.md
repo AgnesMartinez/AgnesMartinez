@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 08:44:53
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 14:26:31
 *****
-RT @Sanx415: En @IndautorMexico están pidiendo cubrebocas para ingresar al inmueble pese a que es opcional el uso in interiores.  @GobCDMX
-[Permalink](https://twitter.com/fernandeznorona/status/1631697160180727831) | 0 Me Gusta | 8 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1631783136215416832) | 36 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 08:30:55
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 14:25:33
 *****
-RT @SupsipS: Para que se den una idea, desde el 15 de enero de 2016 que el dólar no estaba en el valor que está hoy.
-Cuándo en la vida habí…
-[Permalink](https://twitter.com/fernandeznorona/status/1631693647732146180) | 0 Me Gusta | 12 Retweets
+Llegamos 15 minutos antes desde el @aifaaero a Guadalajara. La mala: es posición remota @Aeromexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1631782893470076930) | 46 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 08:09:33
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 14:24:14
 *****
-Explícame porque si la @SCJN tiene once ministros, solo uno de ellos decide, es lo que estás afirmando @Mzavalagc.
-[Permalink](https://twitter.com/fernandeznorona/status/1631688269522935811) | 109 Me Gusta | 28 Retweets
+Cómo olvidar cuando enfrentabas al gobierno corrupto de @EPN; cómo combatías la usurpación del hoy #tomandanteborolas alias @FelipeCalderon o la farsa de Gobierno del cabeza hueca de @VicenteFoxQue. ¡Eres grande @ClaudioFlorero! ¿No serás primo del señorito X @ClaudioXGG?
+[Permalink](https://twitter.com/fernandeznorona/status/1631782563004948480) | 90 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 08:01:47
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 14:20:38
 *****
-RT @Veoloquecreo: Para justificar un ataque contra Cuba, en 1962 el Pentágono intentó la aprobación de la Operación Northwoods para desenca…
-[Permalink](https://twitter.com/fernandeznorona/status/1631686315665240071) | 0 Me Gusta | 119 Retweets
+Acabamos de aterrizar en Guadalajara.
+[Permalink](https://twitter.com/fernandeznorona/status/1631781656083177475) | 60 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 07:59:32
+**Fernández Noroña** (**@fernandeznorona**) • 03-03-2023 a las 13:26:52
 *****
-RT @Nacion321: El presidente López Obrador acusa que Edmundo Jacobo Molina lleva más de 30 años en el INE y en ese tiempo ser parte del gru…
-[Permalink](https://twitter.com/fernandeznorona/status/1631685749325066243) | 0 Me Gusta | 15 Retweets
+No sea quien seas @ClaudioFlorero, pero me consta la valentía con que enfrentabas a @GenaroGarciaL y a tantas injusticias como el despido de 44 mil trabajadores de Luz y Fuerza. ¡Eres grande!
+[Permalink](https://twitter.com/fernandeznorona/status/1631768126248435714) | 67 Me Gusta | 18 Retweets

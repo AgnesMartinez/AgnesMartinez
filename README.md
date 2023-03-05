@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 21:19:54
+*****
+Ya en el hotel. Leeré un poco y a dormir.
+[Permalink](https://twitter.com/fernandeznorona/status/1632249555696734208) | 63 Me Gusta | 1 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 19:58:22
+*****
+Apenas vamos camino a Colima.
+[Permalink](https://twitter.com/fernandeznorona/status/1632229036897230848) | 72 Me Gusta | 8 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 17:09:26
+*****
+4109 en Facebook, no les creo nada. 9912 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1632186523922710529) | 102 Me Gusta | 18 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 14:12:34
 *****
 RT @Navegaciones: ¿Y si traemos a un monje budista para que les de clases de desapego a @lorenzocordovav y @ciromurayama, que están tan afl…
-[Permalink](https://twitter.com/fernandeznorona/status/1632142015554105346) | 0 Me Gusta | 333 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1632142015554105346) | 0 Me Gusta | 579 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 14:08:35
 *****
 Muchas felicidades a @ramon_flores_. Que la pases súper en tu cumpleaños
-[Permalink](https://twitter.com/fernandeznorona/status/1632141012020649991) | 24 Me Gusta | 6 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 14:06:22
-*****
-Naa, no declines.
-[Permalink](https://twitter.com/fernandeznorona/status/1632140453972770816) | 211 Me Gusta | 18 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 14:05:17
-*****
-Definición simple de fascismo, para que se entienda cuando decimos que la derecha es fascista.
-[Permalink](https://twitter.com/fernandeznorona/status/1632140179233292289) | 196 Me Gusta | 53 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 13:29:08
-*****
-RT @Marilu86053: 😭😭😭💕🐕💕
-Nunca dejes de buscarlos.
-[Permalink](https://twitter.com/fernandeznorona/status/1632131083729874950) | 0 Me Gusta | 24 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1632141012020649991) | 54 Me Gusta | 11 Retweets

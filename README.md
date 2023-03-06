@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 07:38:03
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 14:46:59
 *****
-“No hay tesoro que no guarden dragones”. Bellow.
-[Permalink](https://twitter.com/fernandeznorona/status/1632405119986810891) | 55 Me Gusta | 15 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1632513061549404160) | 115 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 21:19:54
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 14:44:22
 *****
-Ya en el hotel. Leeré un poco y a dormir.
-[Permalink](https://twitter.com/fernandeznorona/status/1632249555696734208) | 123 Me Gusta | 4 Retweets
+Colima.
+[Permalink](https://twitter.com/fernandeznorona/status/1632512403093979142) | 121 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 19:58:22
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 14:44:06
 *****
-Apenas vamos camino a Colima.
-[Permalink](https://twitter.com/fernandeznorona/status/1632229036897230848) | 103 Me Gusta | 9 Retweets
+Muy bien cerrando en Colima.
+[Permalink](https://twitter.com/fernandeznorona/status/1632512336664616966) | 75 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 17:09:26
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 14:37:55
 *****
-4109 en Facebook, no les creo nada. 9912 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1632186523922710529) | 141 Me Gusta | 23 Retweets
+Colima, Colima.
+[Permalink](https://twitter.com/fernandeznorona/status/1632510779885748230) | 100 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-03-2023 a las 14:12:34
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 13:16:21
 *****
-RT @Navegaciones: ¿Y si traemos a un monje budista para que les de clases de desapego a @lorenzocordovav y @ciromurayama, que están tan afl…
-[Permalink](https://twitter.com/fernandeznorona/status/1632142015554105346) | 0 Me Gusta | 751 Retweets
+Pues hubieras llevado ese reportaje para defender a tu socio y amigo @GenaroGarciaL en el juicio a que fue sometido en Nueva York, #tomandanteborolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1632490254287482884) | 944 Me Gusta | 244 Retweets

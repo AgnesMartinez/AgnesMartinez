@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 14:46:59
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 18:22:49
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1632513061549404160) | 115 Me Gusta | 34 Retweets
+Muy cálido a la gente en Comala.
+[Permalink](https://twitter.com/fernandeznorona/status/1632567380839747590) | 178 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 14:44:22
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 17:58:56
 *****
-Colima.
-[Permalink](https://twitter.com/fernandeznorona/status/1632512403093979142) | 121 Me Gusta | 20 Retweets
+Comala.
+[Permalink](https://twitter.com/fernandeznorona/status/1632561370376945665) | 135 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 14:44:06
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 17:49:18
 *****
-Muy bien cerrando en Colima.
-[Permalink](https://twitter.com/fernandeznorona/status/1632512336664616966) | 75 Me Gusta | 18 Retweets
+La luna desde Comala.
+[Permalink](https://twitter.com/fernandeznorona/status/1632558946425749504) | 179 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 14:37:55
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 17:18:22
 *****
-Colima, Colima.
-[Permalink](https://twitter.com/fernandeznorona/status/1632510779885748230) | 100 Me Gusta | 19 Retweets
+RT @rosendomarind: Así el sondeo en las plazas de Nuevo León 
+De carpita en carpita va a ganar ⁦@fernandeznorona⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1632551161793323009) | 0 Me Gusta | 59 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 13:16:21
+**Fernández Noroña** (**@fernandeznorona**) • 05-03-2023 a las 17:15:04
 *****
-Pues hubieras llevado ese reportaje para defender a tu socio y amigo @GenaroGarciaL en el juicio a que fue sometido en Nueva York, #tomandanteborolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1632490254287482884) | 944 Me Gusta | 244 Retweets
+RT @cristinalennon: Mi papá, el + Noroñista.
+La neta que ni le digo nada, porque me emociona que lo motiva seguir impulsando la 4T a su man…
+[Permalink](https://twitter.com/fernandeznorona/status/1632550328489877510) | 0 Me Gusta | 36 Retweets

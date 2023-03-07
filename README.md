@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 13:18:58
+*****
+RT @NachoMierV: Mañana es el examen en el salón de Plenos de la Cámara para l@s aspirantes a ocupar 4 consejerías del INE,  A tod@s les des…
+[Permalink](https://twitter.com/fernandeznorona/status/1632853301388615682) | 0 Me Gusta | 27 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 12:51:08
+*****
+RT @jgnaredo: Papa Krauze escribe: "Hoy la SCJN tiene la oportunidad de la Historia. Solo necesita salvaguardar, con la Constitución en la…
+[Permalink](https://twitter.com/fernandeznorona/status/1632846294757658624) | 0 Me Gusta | 835 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 12:32:58
+*****
+RT @Gabriele_Corno: The empathetic penguin
+[Permalink](https://twitter.com/fernandeznorona/status/1632841722584547331) | 0 Me Gusta | 3,274 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 12:29:13
+*****
+RT @Macarena006: @FelipeCalderon @Cuauhtemoc_1521 @TwitterSeguro Mas preocupante lo que pasa contigo #CalderonEsNarco andas juiiooiido y aq…
+[Permalink](https://twitter.com/fernandeznorona/status/1632840778954276866) | 0 Me Gusta | 33 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 09:51:26
 *****
 No doy crédito que esa porquería de espectáculo que es @ShenYun se presente del 4 al 7 de mayo. Cada año regresa, no me lo creo que haya quien los recomiende. Es caro, malo, un insulto a la inteligencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1632801072673636357) | 47 Me Gusta | 10 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 09:07:14
-*****
-Fe de erratas: donde dice una, debe decir un.
-[Permalink](https://twitter.com/fernandeznorona/status/1632789950717472768) | 42 Me Gusta | 12 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 09:03:29
-*****
-Y luego hay subnormales que dicen que el cabeza hueca de @VicenteFoxQue no es una analfabeta funcional: “mallor”.  Bruto, brutísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1632789006600531972) | 141 Me Gusta | 40 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 09:02:02
-*****
-RT @losangelespress: En 2022, el gobernador de #NuevoLeón decidió bombardear las nubes ☁️ para "provocar lluvia".
-La periodista @GingerGloo…
-[Permalink](https://twitter.com/fernandeznorona/status/1632788641977081856) | 0 Me Gusta | 5 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 08:53:19
-*****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1632786449325076482) | 44 Me Gusta | 10 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1632801072673636357) | 123 Me Gusta | 30 Retweets

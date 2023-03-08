@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-03-2023 a las 06:29:38
+**Fernández Noroña** (**@fernandeznorona**) • 07-03-2023 a las 15:51:03
 *****
-Sólo falta Nieve, pero ayer andaba aquí.
-[Permalink](https://twitter.com/fernandeznorona/status/1633112677210882049) | 170 Me Gusta | 20 Retweets
+RT @GeraldinePonceM: ⚠️ Jorge Enrique es un gran periodista que apreciamos mucho en todo Nayarit.
+
+
+A mis amigas y amigos de todo el país, l…
+[Permalink](https://twitter.com/fernandeznorona/status/1633253960231395328) | 0 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 18:26:17
+**Fernández Noroña** (**@fernandeznorona**) • 07-03-2023 a las 15:50:51
 *****
-RT @cesarfaz: Si Denise Dresser no quiere que la acusen de que es informante de EEUU debería dejar de ser informante de EEUU.
-[Permalink](https://twitter.com/fernandeznorona/status/1632930639706988545) | 0 Me Gusta | 123 Retweets
+Haz un hilo, por favor. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1633253911573176324) | 39 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 18:24:41
+**Fernández Noroña** (**@fernandeznorona**) • 07-03-2023 a las 15:49:22
 *****
-Si desaparece al @PRI_Nacional será una alegre recuerdo.
-[Permalink](https://twitter.com/fernandeznorona/status/1632930235061530631) | 136 Me Gusta | 29 Retweets
+RT @AAACESA_AF: ¡Ya estamos operando! Descubra cerca de 9,600 m² de área de almacenaje para el resguardo confiable de su carga de #Importac…
+[Permalink](https://twitter.com/fernandeznorona/status/1633253536434647042) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 18:23:29
+**Fernández Noroña** (**@fernandeznorona**) • 07-03-2023 a las 15:48:12
 *****
-Nadie, pero el peneque del año se la disputan una legión de la cual formas parte.
-[Permalink](https://twitter.com/fernandeznorona/status/1632929933222707204) | 124 Me Gusta | 33 Retweets
+Qué cosas, ahora sólo falta que me incluyan. Caballo que no incluyen, gana.
+[Permalink](https://twitter.com/fernandeznorona/status/1633253242439192579) | 71 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-03-2023 a las 18:21:49
+**Fernández Noroña** (**@fernandeznorona**) • 07-03-2023 a las 15:32:55
 *****
-Pues que habrá la suya.
-[Permalink](https://twitter.com/fernandeznorona/status/1632929516866641920) | 241 Me Gusta | 47 Retweets
+Encima, es malísimo. Ni sus bailables, ni la vestimenta, ni el espectáculo, ni el guion. Cuesta lo que el Circo del Sol y no le llega ni a los talones. @ShenYun #esunaporqueria.
+[Permalink](https://twitter.com/fernandeznorona/status/1633249397763891201) | 29 Me Gusta | 10 Retweets

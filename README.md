@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 19:41:32
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 09:53:18
 *****
-RT @ndurancoronado: Mientras tanto en NL...‼️
-[Permalink](https://twitter.com/fernandeznorona/status/1633674352536219650) | 0 Me Gusta | 44 Retweets
+Me apareció esta foto con mi hermanito Balfre Vargas.
+[Permalink](https://twitter.com/fernandeznorona/status/1633888706795905024) | 51 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 19:41:16
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 09:52:25
 *****
-Ese libro ni yo lo tengo.
-[Permalink](https://twitter.com/fernandeznorona/status/1633674286031425537) | 35 Me Gusta | 10 Retweets
+Los terminé. Bien construido pero prescindible. Irritante personaje, aunque el tema financiero creo que está bien planteado. De cualquier manera no la recomendaría.
+[Permalink](https://twitter.com/fernandeznorona/status/1633888485042995221) | 14 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 19:08:16
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 09:03:22
 *****
-Llegará cuando menos lo pienses. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1633665979719794689) | 52 Me Gusta | 4 Retweets
+RT @alvaro_delgado: No tardan el narcotraficante ⁦@FelipeCalderon⁩, la diputada del PRIAN ⁦@Mzavalagc⁩ y su hijo ⁦@Luisfecalderonz⁩ en llam…
+[Permalink](https://twitter.com/fernandeznorona/status/1633876141852196879) | 0 Me Gusta | 1,952 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 19:00:55
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 09:03:01
 *****
-Igual y es sorpresa doble.
-[Permalink](https://twitter.com/fernandeznorona/status/1633664130526658560) | 38 Me Gusta | 3 Retweets
+Ahí les hablan pandilla de canallas del @TEPJF_informa.
+[Permalink](https://twitter.com/fernandeznorona/status/1633876051729457152) | 85 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 17:08:14
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 08:59:03
 *****
-6767 en Facebook y, 7122 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1633635773084827650) | 99 Me Gusta | 15 Retweets
+RT @danielmterres: La oposición en México:
+[Permalink](https://twitter.com/fernandeznorona/status/1633875053044731905) | 0 Me Gusta | 22 Retweets

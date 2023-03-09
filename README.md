@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 09:46:59
+**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 15:51:27
 *****
-RT @salazar_octavio: @aran_tirado aporta luz, sensatez y compromiso en el #Gabinete de @Juliaenlaonda al insistir en que el feminismo no pu…
-[Permalink](https://twitter.com/fernandeznorona/status/1633524731029643271) | 0 Me Gusta | 11 Retweets
+¡Parte de las estrategias de la izquierda!
+[Permalink](https://twitter.com/fernandeznorona/status/1633616450257666048) | 34 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-03-2023 a las 20:01:01
+**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 15:50:04
 *****
-RT @hamlet_almaguer: Hoy la Suprema Corte determinó que el Tribunal Electoral no puede despojar de derechos políticos electorales a los ciu…
-[Permalink](https://twitter.com/fernandeznorona/status/1633316867447111680) | 0 Me Gusta | 102 Retweets
+Muchas felicidades a mi compañera y amiga @AndreaChavezTre en su cumpleaños.
+[Permalink](https://twitter.com/fernandeznorona/status/1633616101564203010) | 65 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-03-2023 a las 20:00:32
+**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 15:22:58
 *****
-RT @hamlet_almaguer: En los últimos años el INE y el TEPJF idearon un sistema tramposo para despojar de candidaturas a Morena (incluyendo a…
-[Permalink](https://twitter.com/fernandeznorona/status/1633316744872833025) | 0 Me Gusta | 116 Retweets
+De Carolina a Matamoros - Una cirugía estética trajo a los 4 de EU a México. Sabían del riesgo... y lo tomaron - SinEmbargo MX. El linchamiento a ⁦⁦@alvaro_delgado⁩ fue totalmente injustificado. El título desafortunado es de AP.
+[Permalink](https://twitter.com/fernandeznorona/status/1633609282502692864) | 101 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-03-2023 a las 19:45:52
+**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 15:17:47
 *****
-Ay Pasquín @beltrandelrio, hace seis años le hicieron la tarea sucia al @PRI_Nacional para ayudar al fraude contra @delfinagomeza. Hoy lo vuelven a hacer. Se te olvida el pequeño detalle que también se retiraron en Coahuila. Te haces que no entiendes.
-[Permalink](https://twitter.com/fernandeznorona/status/1633313054690533376) | 117 Me Gusta | 31 Retweets
+RT @jgnaredo: Qué fuerte el cartón de @fisgonmonero. 
+
+
+Y qué fuerte que sea terrible, indignante y dolorosamente verdadero.
+[Permalink](https://twitter.com/fernandeznorona/status/1633607979126644736) | 0 Me Gusta | 435 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-03-2023 a las 19:42:15
+**Fernández Noroña** (**@fernandeznorona**) • 08-03-2023 a las 15:16:55
 *****
-Lo terminé. Bellow es un espléndido escritor, y este es un libro estupendo. A riesgo de ser malinterpretado, es un escritor para lectores lectores.
-[Permalink](https://twitter.com/fernandeznorona/status/1633312146963456000) | 64 Me Gusta | 16 Retweets
+@ndurancoronado Zas.
+[Permalink](https://twitter.com/fernandeznorona/status/1633607761039618048) | 1 Me Gusta | 1 Retweets

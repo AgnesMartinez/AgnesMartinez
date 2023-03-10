@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 14:35:13
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 21:07:10
 *****
-“Al límite”, falta que salga a decir @RubenAguilar lo que el cabeza hueca quiso decir es “haz fraude”.
-[Permalink](https://twitter.com/fernandeznorona/status/1633959652152033281) | 99 Me Gusta | 26 Retweets
+RT @kpitan92: Uyy, le van a quitar la credencial de feminista a Ángela Davis.
+Luego se van a moder las axilas porque no van a saber procesa…
+[Permalink](https://twitter.com/fernandeznorona/status/1634058290542919680) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 14:34:04
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 20:23:59
 *****
-Lo dice el traidor a la democracia del cabeza hueca @VicenteFoxQue. Son de una desvergüenza inconmensurable estos paniaguados
-[Permalink](https://twitter.com/fernandeznorona/status/1633959363235794945) | 156 Me Gusta | 36 Retweets
+Hogar del niño campesino.
+[Permalink](https://twitter.com/fernandeznorona/status/1634047424086900736) | 79 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 14:29:48
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 20:23:13
 *****
-“Bamos” -sic-, en verdad cada vez está más bruto el cabeza hueca @VicenteFoxQue. Madtita debería meterlo a un curso urgente de ortografía básica. Vamos, escribe una plana de vamos, antes de ir a la cárcel.
-[Permalink](https://twitter.com/fernandeznorona/status/1633958290622226434) | 149 Me Gusta | 34 Retweets
+Seguimos con la Luna.
+[Permalink](https://twitter.com/fernandeznorona/status/1634047229420863490) | 61 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 14:14:47
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 20:22:34
 *****
-RT @temoc: Lo que el diputado @fernandeznorona ha preguntado siempre en sus asambleas informativas #InternationalWomensDay #DiaInternaciona…
-[Permalink](https://twitter.com/fernandeznorona/status/1633954509788520448) | 0 Me Gusta | 11 Retweets
+La luna desde Cholula.
+[Permalink](https://twitter.com/fernandeznorona/status/1634047065700409344) | 135 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 12:48:45
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 20:22:01
 *****
-Apantalla-bobos.
-[Permalink](https://twitter.com/fernandeznorona/status/1633932859172954112) | 95 Me Gusta | 18 Retweets
+Cholula.
+[Permalink](https://twitter.com/fernandeznorona/status/1634046928089391104) | 79 Me Gusta | 9 Retweets

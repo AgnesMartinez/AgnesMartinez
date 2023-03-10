@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 09:53:18
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 14:35:13
 *****
-Me apareció esta foto con mi hermanito Balfre Vargas.
-[Permalink](https://twitter.com/fernandeznorona/status/1633888706795905024) | 51 Me Gusta | 5 Retweets
+“Al límite”, falta que salga a decir @RubenAguilar lo que el cabeza hueca quiso decir es “haz fraude”.
+[Permalink](https://twitter.com/fernandeznorona/status/1633959652152033281) | 99 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 09:52:25
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 14:34:04
 *****
-Los terminé. Bien construido pero prescindible. Irritante personaje, aunque el tema financiero creo que está bien planteado. De cualquier manera no la recomendaría.
-[Permalink](https://twitter.com/fernandeznorona/status/1633888485042995221) | 14 Me Gusta | 3 Retweets
+Lo dice el traidor a la democracia del cabeza hueca @VicenteFoxQue. Son de una desvergüenza inconmensurable estos paniaguados
+[Permalink](https://twitter.com/fernandeznorona/status/1633959363235794945) | 156 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 09:03:22
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 14:29:48
 *****
-RT @alvaro_delgado: No tardan el narcotraficante ⁦@FelipeCalderon⁩, la diputada del PRIAN ⁦@Mzavalagc⁩ y su hijo ⁦@Luisfecalderonz⁩ en llam…
-[Permalink](https://twitter.com/fernandeznorona/status/1633876141852196879) | 0 Me Gusta | 1,952 Retweets
+“Bamos” -sic-, en verdad cada vez está más bruto el cabeza hueca @VicenteFoxQue. Madtita debería meterlo a un curso urgente de ortografía básica. Vamos, escribe una plana de vamos, antes de ir a la cárcel.
+[Permalink](https://twitter.com/fernandeznorona/status/1633958290622226434) | 149 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 09:03:01
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 14:14:47
 *****
-Ahí les hablan pandilla de canallas del @TEPJF_informa.
-[Permalink](https://twitter.com/fernandeznorona/status/1633876051729457152) | 85 Me Gusta | 25 Retweets
+RT @temoc: Lo que el diputado @fernandeznorona ha preguntado siempre en sus asambleas informativas #InternationalWomensDay #DiaInternaciona…
+[Permalink](https://twitter.com/fernandeznorona/status/1633954509788520448) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 08:59:03
+**Fernández Noroña** (**@fernandeznorona**) • 09-03-2023 a las 12:48:45
 *****
-RT @danielmterres: La oposición en México:
-[Permalink](https://twitter.com/fernandeznorona/status/1633875053044731905) | 0 Me Gusta | 22 Retweets
+Apantalla-bobos.
+[Permalink](https://twitter.com/fernandeznorona/status/1633932859172954112) | 95 Me Gusta | 18 Retweets

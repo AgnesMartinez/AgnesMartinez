@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2023 a las 15:36:02
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2023 a las 21:57:56
 *****
-Ajalpan.
-[Permalink](https://twitter.com/fernandeznorona/status/1634699735142649858) | 54 Me Gusta | 5 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1634795841008418816) | 21 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2023 a las 14:48:36
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2023 a las 21:55:43
 *****
-Ajalpan.
-[Permalink](https://twitter.com/fernandeznorona/status/1634687798077980672) | 73 Me Gusta | 20 Retweets
+Lamento el fallecimiento de Ignacio López Tarso, un grande del cine mexicano. Mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1634795282822057985) | 64 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2023 a las 12:32:03
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2023 a las 19:10:00
 *****
-Eres un subnormal, no está pidiendo aborto. ¿Te haces o así eres?
-[Permalink](https://twitter.com/fernandeznorona/status/1634653433318744064) | 287 Me Gusta | 40 Retweets
+Miren el detallazo de ⁦@NellyMaceda⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1634753580044550145) | 342 Me Gusta | 60 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2023 a las 12:31:00
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2023 a las 19:01:10
 *****
-Salimos de Puebla capital rumbo a Ajalpan y ya casi llegamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1634653168385806336) | 78 Me Gusta | 14 Retweets
+A pesar de qué estaban regalando fertilizante ahorita en la noche, a la hora de nuestra asamblea.
+[Permalink](https://twitter.com/fernandeznorona/status/1634751355968700417) | 80 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-03-2023 a las 12:11:42
+**Fernández Noroña** (**@fernandeznorona**) • 11-03-2023 a las 19:00:34
 *****
-RT @Arquithierry: Tute😆
-[Permalink](https://twitter.com/fernandeznorona/status/1634648312799449093) | 0 Me Gusta | 11 Retweets
+Cerramos muy bien la jornada de hoy en Puebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1634751207045742592) | 73 Me Gusta | 14 Retweets

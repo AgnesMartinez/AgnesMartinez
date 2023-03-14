@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 15:40:33
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 20:33:23
 *****
-Caray, #AziNoAnlo.
-[Permalink](https://twitter.com/fernandeznorona/status/1635425644619223041) | 64 Me Gusta | 20 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1635499342374027264) | 50 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 15:26:23
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 20:32:28
 *****
-RT @LJyDMX: El día de hoy nuestro Diputado Gerardo @fernandeznorona asistió como invitado a la celebración del 4° Aniversario de la Confede…
-[Permalink](https://twitter.com/fernandeznorona/status/1635422082904522753) | 0 Me Gusta | 22 Retweets
+Siempre me queda París o Londres. Roma, Venecia, Estambul y un largo etc.
+[Permalink](https://twitter.com/fernandeznorona/status/1635499108524859393) | 37 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 15:25:53
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 19:16:42
 *****
-Están en Cuauhtémoc dos: Arturo X LuceroX y Alan X. Sostienen haber sido agredidos por la policía y, a pesar de ello, se les enviará al reclusorio acusados de robo. No robaron nada, pero la Policia dice que intentaron robar un radio de ellos @UCS_GCDMX y @FiscaliaCDMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1635421953933848576) | 51 Me Gusta | 30 Retweets
+Mira #tomandanteborolas alias @FelipeCalderon, para que se aclaren tus dudas.
+[Permalink](https://twitter.com/fernandeznorona/status/1635480043593023491) | 84 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 15:21:43
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 19:02:33
 *****
-Uno ciudadanos están en Cuauhtémoc dos, alcaldía Cuauhtémoc. Se duelen de haber sido agredidos por la policía y que ahora pretenden voltear las cosas acusándolos de intento de robo de un radio de un policía. Atención ahí @UCS_GCDMX y @FiscaliaCDMX. Hay videos.
-[Permalink](https://twitter.com/fernandeznorona/status/1635420905240428546) | 59 Me Gusta | 26 Retweets
+El Oscar al #tomandanteborolas alias @FelipeCalderon por su actuación en “Pinocho”.
+[Permalink](https://twitter.com/fernandeznorona/status/1635476482289205248) | 189 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 13:50:04
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 19:01:11
 *****
-Mira señorito X @ClaudioXGG, tal cual.
-[Permalink](https://twitter.com/fernandeznorona/status/1635397842696298496) | 103 Me Gusta | 36 Retweets
+RT @MoneroTeta:
+[Permalink](https://twitter.com/fernandeznorona/status/1635476137848762368) | 0 Me Gusta | 438 Retweets

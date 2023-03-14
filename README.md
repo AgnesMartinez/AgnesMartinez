@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2023 a las 22:00:23
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 15:40:33
 *****
-Ya en Pueblo quieto. Mañana debo salir temprano rumbo al DF.
-[Permalink](https://twitter.com/fernandeznorona/status/1635158845067767808) | 128 Me Gusta | 9 Retweets
+Caray, #AziNoAnlo.
+[Permalink](https://twitter.com/fernandeznorona/status/1635425644619223041) | 64 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2023 a las 18:25:15
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 15:26:23
 *****
-No dispararon contra siete jóvenes, los ejecutaron.
-[Permalink](https://twitter.com/fernandeznorona/status/1635104706556223490) | 259 Me Gusta | 54 Retweets
+RT @LJyDMX: El día de hoy nuestro Diputado Gerardo @fernandeznorona asistió como invitado a la celebración del 4° Aniversario de la Confede…
+[Permalink](https://twitter.com/fernandeznorona/status/1635422082904522753) | 0 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2023 a las 18:24:06
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 15:25:53
 *****
-Ambas aseveraciones son equivocadas.
-[Permalink](https://twitter.com/fernandeznorona/status/1635104415698026498) | 72 Me Gusta | 14 Retweets
+Están en Cuauhtémoc dos: Arturo X LuceroX y Alan X. Sostienen haber sido agredidos por la policía y, a pesar de ello, se les enviará al reclusorio acusados de robo. No robaron nada, pero la Policia dice que intentaron robar un radio de ellos @UCS_GCDMX y @FiscaliaCDMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1635421953933848576) | 51 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2023 a las 18:20:40
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 15:21:43
 *****
-¿Es ironía?
-[Permalink](https://twitter.com/fernandeznorona/status/1635103554523516930) | 76 Me Gusta | 14 Retweets
+Uno ciudadanos están en Cuauhtémoc dos, alcaldía Cuauhtémoc. Se duelen de haber sido agredidos por la policía y que ahora pretenden voltear las cosas acusándolos de intento de robo de un radio de un policía. Atención ahí @UCS_GCDMX y @FiscaliaCDMX. Hay videos.
+[Permalink](https://twitter.com/fernandeznorona/status/1635420905240428546) | 59 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-03-2023 a las 18:19:09
+**Fernández Noroña** (**@fernandeznorona**) • 13-03-2023 a las 13:50:04
 *****
-Mejor como homenaje a López Tarso habla con verdad por una vez en tu vida, monaguillo @CiroMurayamaINE.
-[Permalink](https://twitter.com/fernandeznorona/status/1635103170245566464) | 313 Me Gusta | 61 Retweets
+Mira señorito X @ClaudioXGG, tal cual.
+[Permalink](https://twitter.com/fernandeznorona/status/1635397842696298496) | 103 Me Gusta | 36 Retweets

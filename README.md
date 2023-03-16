@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2023 a las 14:57:04
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2023 a las 21:13:49
 *****
-De las cosas valiosas que hace el gobierno de mi compañera y amiga ⁦@Claudiashein⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1636139481169313792) | 220 Me Gusta | 30 Retweets
+RT @buitengebieden: He just needs some privacy.. 😅
+[Permalink](https://twitter.com/fernandeznorona/status/1636234292232593409) | 0 Me Gusta | 2,094 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2023 a las 14:02:31
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2023 a las 21:10:04
 *****
-Pensé que lo había escrito el #tomandanteborolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1636125752016896002) | 62 Me Gusta | 10 Retweets
+¡Qué bien que estás bien! Un abrazote solidario.
+[Permalink](https://twitter.com/fernandeznorona/status/1636233346698100738) | 25 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2023 a las 14:00:57
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2023 a las 21:08:07
 *****
-No había reelección. El @TEPJF_informa es indefendible, pero a veces hace justicia, aunque no sea su pretensión.
-[Permalink](https://twitter.com/fernandeznorona/status/1636125357471408135) | 26 Me Gusta | 2 Retweets
+Hasta yo me puse nervioso nada más de verla. ¡Qué nervios, tanta tensión! ¡Y la cara del subnormal de @JLozanoA, no tiene desperdicio!
+[Permalink](https://twitter.com/fernandeznorona/status/1636232858472706050) | 92 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2023 a las 13:59:12
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2023 a las 19:47:54
 *****
-Pásame los datos con Mónica, @adela_bicha.
-[Permalink](https://twitter.com/fernandeznorona/status/1636124918042570752) | 21 Me Gusta | 6 Retweets
+RT @HNoticiasMX: Así se ve "la mujer dormida" a la luz de la luna.
+[Permalink](https://twitter.com/fernandeznorona/status/1636212668599005184) | 0 Me Gusta | 46 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-03-2023 a las 13:56:41
+**Fernández Noroña** (**@fernandeznorona**) • 15-03-2023 a las 19:46:59
 *****
-Aquí vemos a @jorgeberry hablándose al espejo. Aunque sigue con la subestima alta, porque se asume periodista, lo cual nunca ha sido.
-[Permalink](https://twitter.com/fernandeznorona/status/1636124284966805507) | 90 Me Gusta | 13 Retweets
+RT @Marilu86053: Aplausos para el pequeño 👏🏽👏🏽👏🏽
+[Permalink](https://twitter.com/fernandeznorona/status/1636212437652217857) | 0 Me Gusta | 12 Retweets

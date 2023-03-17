@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 13:32:46
+**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 19:09:16
 *****
-Ayer la policía de Guadalajara agredió a los compañeros que instalaban un módulo de afiliación del ⁦@PTnacionalMX⁩. Muy grave el hecho ⁦@EnriqueAlfaroR⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1636480650361356288) | 336 Me Gusta | 211 Retweets
+RT @jenarovillamil: #Informativo14. Impone Macron la reforma de jubilaciones, a pesar del descontento del 70 por ciento de la población fra…
+[Permalink](https://twitter.com/fernandeznorona/status/1636565334206435328) | 0 Me Gusta | 133 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 12:27:45
+**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 19:06:56
 *****
-Ahíta
-[Permalink](https://twitter.com/fernandeznorona/status/1636464291514814464) | 484 Me Gusta | 83 Retweets
+RT @AristeguiOnline: Protesta contra reforma de pensiones de Macron acaba con 120 detenidos en París
+[Permalink](https://twitter.com/fernandeznorona/status/1636564749348421633) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 09:41:55
+**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 19:05:49
 *****
-RT @fisgonmonero: En vez de revisar la política de seguridad pública que impulsó en sus gobiernos, el Partido @AccionNacional busca minimiz…
-[Permalink](https://twitter.com/fernandeznorona/status/1636422555572510721) | 0 Me Gusta | 1,175 Retweets
+RT @us_thelastof: Esto @CNNEE no le da cobertura porque está en la lista de países democráticos
+[Permalink](https://twitter.com/fernandeznorona/status/1636564467944157185) | 0 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 09:34:43
+**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 19:05:25
 *****
-Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1636420745260613647) | 36 Me Gusta | 3 Retweets
+RT @FonsiLoaiza: Francia está ardiendo. Estallido social con barricadas en casi todas las ciudades del país. Hoy, el neoliberal de Macron h…
+[Permalink](https://twitter.com/fernandeznorona/status/1636564364789424129) | 0 Me Gusta | 2,269 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 09:26:13
+**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 17:11:46
 *****
-RT @Foro_TV: En París, Francia, se intensifican las protestas contra el proyecto de reforma a la ley de pensiones impulsado por el presiden…
-[Permalink](https://twitter.com/fernandeznorona/status/1636418606782369792) | 0 Me Gusta | 24 Retweets
+8505 en Facebook y, 8388 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1636535766271553541) | 101 Me Gusta | 21 Retweets

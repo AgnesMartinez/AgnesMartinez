@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 19:09:16
+**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 13:52:57
 *****
-RT @jenarovillamil: #Informativo14. Impone Macron la reforma de jubilaciones, a pesar del descontento del 70 por ciento de la población fra…
-[Permalink](https://twitter.com/fernandeznorona/status/1636565334206435328) | 0 Me Gusta | 195 Retweets
+Pregúntale a @SinEmbargoMX, tú que les crees.
+[Permalink](https://twitter.com/fernandeznorona/status/1636848120758763522) | 23 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 19:06:56
+**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 13:45:45
 *****
-RT @AristeguiOnline: Protesta contra reforma de pensiones de Macron acaba con 120 detenidos en París
-[Permalink](https://twitter.com/fernandeznorona/status/1636564749348421633) | 0 Me Gusta | 12 Retweets
+No encontrarás nada de eso, incluidas las doraditas.
+[Permalink](https://twitter.com/fernandeznorona/status/1636846307535978497) | 35 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 19:05:49
+**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 13:45:07
 *****
-RT @us_thelastof: Esto @CNNEE no le da cobertura porque está en la lista de países democráticos
-[Permalink](https://twitter.com/fernandeznorona/status/1636564467944157185) | 0 Me Gusta | 41 Retweets
+Perdóname pero eres un imbécil. Tan existe el pueblo que por eso somos gobierno y por eso ustedes están en el basurero de la historia @CiroMurayamaINE @CiroMurayamaExIne.
+[Permalink](https://twitter.com/fernandeznorona/status/1636846149343608836) | 956 Me Gusta | 371 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 19:05:25
+**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 13:41:06
 *****
-RT @FonsiLoaiza: Francia está ardiendo. Estallido social con barricadas en casi todas las ciudades del país. Hoy, el neoliberal de Macron h…
-[Permalink](https://twitter.com/fernandeznorona/status/1636564364789424129) | 0 Me Gusta | 3,104 Retweets
+Por mi. ¡Qué bueno que eres obradorista! Ya superen el sectarismo, sean decentes.
+[Permalink](https://twitter.com/fernandeznorona/status/1636845136326844418) | 54 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-03-2023 a las 17:11:46
+**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 13:38:41
 *****
-8505 en Facebook y, 8388 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1636535766271553541) | 149 Me Gusta | 31 Retweets
+Toda mi solidaridad por el fallecimiento de tu hermana Nora. Un abrazo familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1636844528337387524) | 27 Me Gusta | 4 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 13:52:57
+**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 19:17:45
 *****
-Pregúntale a @SinEmbargoMX, tú que les crees.
-[Permalink](https://twitter.com/fernandeznorona/status/1636848120758763522) | 23 Me Gusta | 6 Retweets
+Muy bien. Ya sólo falta que me incluyan.
+[Permalink](https://twitter.com/fernandeznorona/status/1636929858168147969) | 128 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 13:45:45
+**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 19:11:13
 *****
-No encontrarás nada de eso, incluidas las doraditas.
-[Permalink](https://twitter.com/fernandeznorona/status/1636846307535978497) | 35 Me Gusta | 6 Retweets
+RT @lajornadaonline: El periodista y escritor #CarlosPayán Velver, director fundador de La Jornada falleció este viernes a la edad de 94 añ…
+[Permalink](https://twitter.com/fernandeznorona/status/1636928213271101443) | 0 Me Gusta | 186 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 13:45:07
+**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 19:08:14
 *****
-Perdóname pero eres un imbécil. Tan existe el pueblo que por eso somos gobierno y por eso ustedes están en el basurero de la historia @CiroMurayamaINE @CiroMurayamaExIne.
-[Permalink](https://twitter.com/fernandeznorona/status/1636846149343608836) | 956 Me Gusta | 371 Retweets
+Lamento el fallecimiento de Carlos Payán Velver. Periodista y compañero de lucha. Hombre izquierda de toda la vida. Mi solidaridad a familiares y amigos y, particularmente, a los integrantes de @lajornadaonline por tan lamentable pérdida.
+[Permalink](https://twitter.com/fernandeznorona/status/1636927462281019399) | 277 Me Gusta | 67 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 13:41:06
+**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 19:05:31
 *****
-Por mi. ¡Qué bueno que eres obradorista! Ya superen el sectarismo, sean decentes.
-[Permalink](https://twitter.com/fernandeznorona/status/1636845136326844418) | 54 Me Gusta | 14 Retweets
+@Arman_doCA @jorgeramosnews @DefenceU @LJyDMX A través…
+[Permalink](https://twitter.com/fernandeznorona/status/1636926779897020421) | 13 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 13:38:41
+**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 18:31:18
 *****
-Toda mi solidaridad por el fallecimiento de tu hermana Nora. Un abrazo familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1636844528337387524) | 27 Me Gusta | 4 Retweets
+Bueno, eso de especial…jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1636918166512082944) | 58 Me Gusta | 10 Retweets

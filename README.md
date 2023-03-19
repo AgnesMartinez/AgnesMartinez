@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 09:55:17
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 13:02:25
 *****
-RT @ZazuetaMarcela: Ya 29 horas de camino desde Hermosillo, Sonora.
-Nos faltan 3 horas aproximadamente, para llegar al zócalo con nuestro P…
-[Permalink](https://twitter.com/fernandeznorona/status/1637150695135617025) | 0 Me Gusta | 433 Retweets
+Listos para enfrentar la lluvia.
+[Permalink](https://twitter.com/fernandeznorona/status/1637197788474687488) | 481 Me Gusta | 103 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 09:52:35
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 12:55:40
 *****
-Voy saliendo rumbo al Zócalo desde Pueblo quieto, a la cita con mi destino.
-[Permalink](https://twitter.com/fernandeznorona/status/1637150015813476354) | 79 Me Gusta | 15 Retweets
+No saldré de mi casa y voy caminando desde la @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1637196091266330626) | 143 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 09:36:44
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 12:05:49
 *****
-Eso quiere decir que una de cada tres carreteras, una de cada tres escuelas, uno de cada tres hospitales se construyeron con dinero del petróleo, cretino @VicenteFoxQue.
-[Permalink](https://twitter.com/fernandeznorona/status/1637146029282717703) | 54 Me Gusta | 8 Retweets
+En verdad eres un ser deleznable. Tus niveles de vileza no tienen límites @PedroFerriz. Deberías sumarte a la lista de inútiles que quieren ser candidatos de la derecha a la presidencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1637183545700384769) | 640 Me Gusta | 192 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 09:36:44
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 12:04:17
 *****
-¿De qué nos ha servido?, escribe bien cabeza hueca @VicenteFoxQue. Tú disfrutaste excedentes petroleros brutales ¿qué les hiciste? El petróleo le dio a la patria 40% del presupuesto nacional por décadas, babieca…
-[Permalink](https://twitter.com/fernandeznorona/status/1637146026850107392) | 161 Me Gusta | 53 Retweets
+Lamento profundamente el fallecimiento de @ChemoPonce. Mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1637183160831148032) | 67 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-03-2023 a las 19:17:45
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 11:50:51
 *****
-Muy bien. Ya sólo falta que me incluyan.
-[Permalink](https://twitter.com/fernandeznorona/status/1636929858168147969) | 239 Me Gusta | 42 Retweets
+Los asesora @GenaroGarciaL y el #tomandanteborolas alias @FelipeCalderon. #honestidadgarantizada.
+[Permalink](https://twitter.com/fernandeznorona/status/1637179781350301702) | 52 Me Gusta | 17 Retweets

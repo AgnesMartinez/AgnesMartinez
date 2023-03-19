@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 13:02:25
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 22:09:47
 *****
-Listos para enfrentar la lluvia.
-[Permalink](https://twitter.com/fernandeznorona/status/1637197788474687488) | 481 Me Gusta | 103 Retweets
+RT @Sanx415: Así la plancha del Zócalo una hora antes del mitin #AziNoAnlo
+[Permalink](https://twitter.com/fernandeznorona/status/1637335538758721536) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 12:55:40
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 22:09:38
 *****
-No saldré de mi casa y voy caminando desde la @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1637196091266330626) | 143 Me Gusta | 26 Retweets
+RT @rosendomarind: De Nuevo León #NoroñaEsPueblo en la plancha de Zócalo @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1637335500527640584) | 0 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 12:05:49
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 22:01:42
 *****
-En verdad eres un ser deleznable. Tus niveles de vileza no tienen límites @PedroFerriz. Deberías sumarte a la lista de inútiles que quieren ser candidatos de la derecha a la presidencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1637183545700384769) | 640 Me Gusta | 192 Retweets
+Apenas llegando a pueblo quieto.
+[Permalink](https://twitter.com/fernandeznorona/status/1637333506727743490) | 22 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 12:04:17
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 19:30:33
 *****
-Lamento profundamente el fallecimiento de @ChemoPonce. Mi solidaridad para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1637183160831148032) | 67 Me Gusta | 27 Retweets
+Esta caricatura me la regalaron hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1637295466345029632) | 185 Me Gusta | 50 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 11:50:51
+**Fernández Noroña** (**@fernandeznorona**) • 18-03-2023 a las 19:21:05
 *****
-Los asesora @GenaroGarciaL y el #tomandanteborolas alias @FelipeCalderon. #honestidadgarantizada.
-[Permalink](https://twitter.com/fernandeznorona/status/1637179781350301702) | 52 Me Gusta | 17 Retweets
+15,888 en Facebook y, 18,513 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1637293085423173633) | 103 Me Gusta | 20 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 09:56:08
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 13:01:15
 *****
-Muchas gracias. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1637513297040748548) | 47 Me Gusta | 12 Retweets
+Saldrá en breve en coedición de @CE_DiputadosMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1637559882785202177) | 35 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 09:30:41
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 13:00:11
 *****
-No le enseñen esta foto a @ChicChillon @ChicShion, pues se morirá de rabia.
-[Permalink](https://twitter.com/fernandeznorona/status/1637506893223456769) | 124 Me Gusta | 32 Retweets
+Este mensaje era para ti @jon_aleman7.
+[Permalink](https://twitter.com/fernandeznorona/status/1637559617189212163) | 26 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 09:04:31
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 12:59:25
 *****
-RT @FonsiLoaiza: París sigue ardiendo por tercera noche consecutiva contra la reforma de las pensiones del neoliberal de Macron. Enormes lo…
-[Permalink](https://twitter.com/fernandeznorona/status/1637500309399302144) | 0 Me Gusta | 3,278 Retweets
+Solo escribió dos. Tentación y éste. Ambos geniales.
+[Permalink](https://twitter.com/fernandeznorona/status/1637559422523174917) | 41 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 09:02:47
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 12:57:16
 *****
-Llenó. Tiene razón @EmilioAlvarezI, no se llenó, se desbordó.
-[Permalink](https://twitter.com/fernandeznorona/status/1637499871417577476) | 103 Me Gusta | 30 Retweets
+Ese es de lo mejor que he leído.
+[Permalink](https://twitter.com/fernandeznorona/status/1637558882770796552) | 33 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 09:00:08
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 12:46:05
 *****
-Muchas gracias a quienes me han felicitado el día de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1637499204783185921) | 163 Me Gusta | 27 Retweets
+Lee de él “Patagonia Express”.
+[Permalink](https://twitter.com/fernandeznorona/status/1637556066287230981) | 35 Me Gusta | 9 Retweets

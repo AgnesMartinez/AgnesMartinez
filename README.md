@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 13:01:15
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 21:53:20
 *****
-Saldrá en breve en coedición de @CE_DiputadosMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1637559882785202177) | 35 Me Gusta | 9 Retweets
+RT @pabloaldaco: Hoy es el cumpleaños del buen @fernandeznorona 
+
+
+Como cumplido y como regalo a él y a ustedes, les paso la entrevista que…
+[Permalink](https://twitter.com/fernandeznorona/status/1637693789610360832) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 13:00:11
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 21:53:18
 *****
-Este mensaje era para ti @jon_aleman7.
-[Permalink](https://twitter.com/fernandeznorona/status/1637559617189212163) | 26 Me Gusta | 5 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1637693779854389250) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 12:59:25
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 21:51:54
 *****
-Solo escribió dos. Tentación y éste. Ambos geniales.
-[Permalink](https://twitter.com/fernandeznorona/status/1637559422523174917) | 41 Me Gusta | 7 Retweets
+Ayer @m_ebrard estuvo en el templete, eres un farsante Pasquín @beltrandelrio.
+[Permalink](https://twitter.com/fernandeznorona/status/1637693428682072064) | 24 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 12:57:16
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 21:49:44
 *****
-Ese es de lo mejor que he leído.
-[Permalink](https://twitter.com/fernandeznorona/status/1637558882770796552) | 33 Me Gusta | 8 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1637692883066028032) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 12:46:05
+**Fernández Noroña** (**@fernandeznorona**) • 19-03-2023 a las 21:49:01
 *****
-Lee de él “Patagonia Express”.
-[Permalink](https://twitter.com/fernandeznorona/status/1637556066287230981) | 35 Me Gusta | 9 Retweets
+Abrazote mi querido hermanito.
+[Permalink](https://twitter.com/fernandeznorona/status/1637692702966833153) | 11 Me Gusta | 0 Retweets

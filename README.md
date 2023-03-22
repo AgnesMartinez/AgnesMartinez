@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 14:07:52
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 20:18:53
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1638301423363403780) | 34 Me Gusta | 10 Retweets
+Agenda de estos días.
+[Permalink](https://twitter.com/fernandeznorona/status/1638394792546652160) | 42 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 13:33:01
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 20:05:25
 *****
-“Si induces a la tentación, la mitad de la culpa es tuya”, Erri de Luca.
-[Permalink](https://twitter.com/fernandeznorona/status/1638292652574535680) | 61 Me Gusta | 21 Retweets
+Me retiro a digerir la noticia. Demasiado pesar me causa. Descanse en paz Martha Nava.
+[Permalink](https://twitter.com/fernandeznorona/status/1638391405159620608) | 133 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 13:20:57
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 20:01:36
 *****
-RT @_MistWolf_: 🤣🤣🤣
-[Permalink](https://twitter.com/fernandeznorona/status/1638289615961354241) | 0 Me Gusta | 112 Retweets
+Naa, Chavela Vargas decía: los mexicanos nacemos donde nos da nuestra chingada gana.
+[Permalink](https://twitter.com/fernandeznorona/status/1638390444815011840) | 96 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 12:51:51
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 19:59:10
 *****
-No se pierdan, hoy a las 11 de la noche la entrevista en @ElFinanciero_Mx con René Avilés.
-[Permalink](https://twitter.com/fernandeznorona/status/1638282294015283223) | 74 Me Gusta | 16 Retweets
+La comparto con profundo pesar. Mi solidaridad para familiares y amigos, en especial, para sus hijos.
+[Permalink](https://twitter.com/fernandeznorona/status/1638389830924095489) | 50 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 12:50:45
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 19:59:09
 *****
-RT @CE_MXdiputados: Hoy es la presentación del libro "El voto particular de 1847 de Mariano Otero. Implicaciones en el Estado de Derecho".…
-[Permalink](https://twitter.com/fernandeznorona/status/1638282018797637644) | 0 Me Gusta | 17 Retweets
+Me entero de la muerte de Martha Nava. Lo lamento profundamente. Una mujer excepcional. Muy generosa, espléndido ser humano. La quise mucho y me pesa enormemente su fallecimiento. No sabía que estuviera delicada de salud. Me ha tomado por sorpresa la noticia y…
+[Permalink](https://twitter.com/fernandeznorona/status/1638389829476950018) | 151 Me Gusta | 27 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 08:16:53
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 14:07:52
 *****
-RT @lucy_pagoada: Un saludo departe del presidente AMLO desde la plaza de Unión Square en NY. Es un honor estar con Obrador♥️👊🏽! https://t.…
-[Permalink](https://twitter.com/fernandeznorona/status/1638213098925432834) | 0 Me Gusta | 357 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1638301423363403780) | 34 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2023 a las 17:21:10
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 13:33:01
 *****
-13,534 en Facebook y, 9796 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1637987681698304002) | 158 Me Gusta | 25 Retweets
+“Si induces a la tentación, la mitad de la culpa es tuya”, Erri de Luca.
+[Permalink](https://twitter.com/fernandeznorona/status/1638292652574535680) | 61 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2023 a las 15:20:34
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 13:20:57
 *****
-RT @Mary_Luisa_AG: Me da mucho gusto compartir nuestro documental “Lago de Texcoco: la lucha por la defensa de la vida”, que refleja la his…
-[Permalink](https://twitter.com/fernandeznorona/status/1637957332456943618) | 0 Me Gusta | 225 Retweets
+RT @_MistWolf_: 🤣🤣🤣
+[Permalink](https://twitter.com/fernandeznorona/status/1638289615961354241) | 0 Me Gusta | 112 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2023 a las 15:19:39
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 12:51:51
 *****
-¡500!
-[Permalink](https://twitter.com/fernandeznorona/status/1637957103233925121) | 43 Me Gusta | 5 Retweets
+No se pierdan, hoy a las 11 de la noche la entrevista en @ElFinanciero_Mx con René Avilés.
+[Permalink](https://twitter.com/fernandeznorona/status/1638282294015283223) | 74 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-03-2023 a las 13:59:12
+**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 12:50:45
 *****
-@juarezpumafer @Marblanca3 Presidente. Corrompa.
-[Permalink](https://twitter.com/fernandeznorona/status/1637936856905162752) | 1 Me Gusta | 0 Retweets
+RT @CE_MXdiputados: Hoy es la presentación del libro "El voto particular de 1847 de Mariano Otero. Implicaciones en el Estado de Derecho".…
+[Permalink](https://twitter.com/fernandeznorona/status/1638282018797637644) | 0 Me Gusta | 17 Retweets

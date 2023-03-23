@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2023 a las 15:43:09
-*****
-RT @Sanx415: La jefa cumpliría 83 primaveras. Fotografía: @manuela_ac (1998)
-[Permalink](https://twitter.com/fernandeznorona/status/1638687792195678208) | 0 Me Gusta | 18 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2023 a las 15:34:55
-*****
-Al término de la instalación de la Comisión Bicameral para dar seguimiento a la participación de las fuerzas armadas en materia de seguridad pública.
-[Permalink](https://twitter.com/fernandeznorona/status/1638685720801058818) | 70 Me Gusta | 24 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2023 a las 06:34:02
-*****
-¿Qué hizo?
-[Permalink](https://twitter.com/fernandeznorona/status/1638549601488715779) | 37 Me Gusta | 6 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-03-2023 a las 06:32:21
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2023 a las 21:01:47
 *****
 Besitos.
-[Permalink](https://twitter.com/fernandeznorona/status/1638549178845474819) | 24 Me Gusta | 3 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1638767976945000450) | 103 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-03-2023 a las 20:18:53
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2023 a las 20:33:50
 *****
-Agenda de estos días.
-[Permalink](https://twitter.com/fernandeznorona/status/1638394792546652160) | 101 Me Gusta | 24 Retweets
+RT @maresthe2: Por favor amigos, pueden compartir... es hija de una amiga y temen lo peor 😔 @epigmenioibarra @rcanudasg @san_yorch @sophie_…
+[Permalink](https://twitter.com/fernandeznorona/status/1638760944237961217) | 0 Me Gusta | 195 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2023 a las 20:23:33
+*****
+RT @ndurancoronado: PARA EL PUEBLO NO HAY JUSTICIA.‼️
+[Permalink](https://twitter.com/fernandeznorona/status/1638758356763516928) | 0 Me Gusta | 19 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2023 a las 20:06:49
+*****
+Tengan para que aprendan.
+[Permalink](https://twitter.com/fernandeznorona/status/1638754145107873793) | 305 Me Gusta | 91 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 22-03-2023 a las 19:10:11
+*****
+No dejó la coordinación, lo removieron.
+[Permalink](https://twitter.com/fernandeznorona/status/1638739895102439425) | 236 Me Gusta | 63 Retweets

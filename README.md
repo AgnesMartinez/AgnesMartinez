@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2023 a las 18:27:14
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 10:05:35
 *****
-RT @Renherrerac: Esta perrita de 3 años la abandonaron desde bebé y apenas le conseguí un hogar, pero cuando la entregué al final me dijero…
-[Permalink](https://twitter.com/fernandeznorona/status/1639091473026015233) | 0 Me Gusta | 101 Retweets
+Ni a mí me han molestado en el Costco. Donde se creen elegantes es en City Market Cuernavaca, Del Valle y Polanco. Y yo comprando en galerías Lafayette y “Le Bon Marché” sin que nadie me molestara.
+[Permalink](https://twitter.com/fernandeznorona/status/1639327615927320578) | 15 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2023 a las 17:49:03
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 10:02:12
 *****
-@Mike28dev Apenas.
-[Permalink](https://twitter.com/fernandeznorona/status/1639081863477338118) | 13 Me Gusta | 3 Retweets
+¿Ah qué no es? Sobre todo si es de paca gringa.
+[Permalink](https://twitter.com/fernandeznorona/status/1639326763577745411) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2023 a las 17:48:49
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 09:59:23
 *****
-Pues resulta inexacto. La JUCOPO no cedió, el @TEPJF_informa dio el mandato del comité técnico de evaluación, según me informan y éste, integró una quinteta sólo de mujeres cumpliéndole el capricho al tribunal.
-[Permalink](https://twitter.com/fernandeznorona/status/1639081805444796416) | 94 Me Gusta | 38 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1639326056678330368) | 12 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2023 a las 17:23:23
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 09:58:50
 *****
-9593 en Facebook y, 9147 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1639075404328873984) | 223 Me Gusta | 42 Retweets
+Ahora tú mandamos un amanecer desde Nueva York #TomandanteBorolas alias @FelipeCalderon. Están presentando en Broadway un musical donde canta @genarogarcial, me comentan que es buenísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1639325919209725955) | 56 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-03-2023 a las 15:45:26
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 09:57:41
 *****
-¿Cuándo te tocará ir a Nueva York #TomandanteBorolas alias @FelipeCalderon?
-[Permalink](https://twitter.com/fernandeznorona/status/1639050753833566209) | 691 Me Gusta | 181 Retweets
+RT @AnaMendoza1989: Excelente querido Sebas 😊
+[Permalink](https://twitter.com/fernandeznorona/status/1639325628645113875) | 0 Me Gusta | 3 Retweets

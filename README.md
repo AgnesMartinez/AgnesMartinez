@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 10:05:35
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 15:26:29
 *****
-Ni a mí me han molestado en el Costco. Donde se creen elegantes es en City Market Cuernavaca, Del Valle y Polanco. Y yo comprando en galerías Lafayette y “Le Bon Marché” sin que nadie me molestara.
-[Permalink](https://twitter.com/fernandeznorona/status/1639327615927320578) | 15 Me Gusta | 2 Retweets
+Te vamos a extrañar, monaguillo @ciromurayamaExIne. Por cierto, ¿por qué no fuiste a cargarle las maletas a @lorenzocordovav, @CiroMurayamaINE?
+[Permalink](https://twitter.com/fernandeznorona/status/1639408374394617858) | 102 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 10:02:12
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 15:24:56
 *****
-¿Ah qué no es? Sobre todo si es de paca gringa.
-[Permalink](https://twitter.com/fernandeznorona/status/1639326763577745411) | 8 Me Gusta | 0 Retweets
+Ese es plus, demasiado fifí.
+[Permalink](https://twitter.com/fernandeznorona/status/1639407983648989184) | 36 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 09:59:23
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 15:23:52
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1639326056678330368) | 12 Me Gusta | 6 Retweets
+RT @buitengebieden: Having his own fun.. 😊
+[Permalink](https://twitter.com/fernandeznorona/status/1639407716400607233) | 0 Me Gusta | 1,808 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 09:58:50
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 15:21:43
 *****
-Ahora tú mandamos un amanecer desde Nueva York #TomandanteBorolas alias @FelipeCalderon. Están presentando en Broadway un musical donde canta @genarogarcial, me comentan que es buenísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1639325919209725955) | 56 Me Gusta | 19 Retweets
+RT @adrisaa05: 🚨Ojo aquí 🚨
+Traileros de Bachoco denuncian cobros fantasmas e ilegales de combustible y otros. Es un gran paso que los traba…
+[Permalink](https://twitter.com/fernandeznorona/status/1639407172109959168) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 09:57:41
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 15:20:56
 *****
-RT @AnaMendoza1989: Excelente querido Sebas 😊
-[Permalink](https://twitter.com/fernandeznorona/status/1639325628645113875) | 0 Me Gusta | 3 Retweets
+¡Estás a dieta! Abrazote y que disfrutes, se ve delicioso todo.
+[Permalink](https://twitter.com/fernandeznorona/status/1639406977326493700) | 26 Me Gusta | 5 Retweets

@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 15:26:29
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 21:17:14
 *****
-Te vamos a extrañar, monaguillo @ciromurayamaExIne. Por cierto, ¿por qué no fuiste a cargarle las maletas a @lorenzocordovav, @CiroMurayamaINE?
-[Permalink](https://twitter.com/fernandeznorona/status/1639408374394617858) | 102 Me Gusta | 36 Retweets
+RT @hamlet_almaguer: @JulietaRamirezP Laynez fue Procurador Fiscal de Calderón y Peña, trabaja para la derecha.
+[Permalink](https://twitter.com/fernandeznorona/status/1639496643434233856) | 0 Me Gusta | 56 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 15:24:56
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 20:37:11
 *****
-Ese es plus, demasiado fifí.
-[Permalink](https://twitter.com/fernandeznorona/status/1639407983648989184) | 36 Me Gusta | 6 Retweets
+Paré a comer unos tacos en las Pintitas, cerca del aeropuerto. Además de qué estaban buenísimos y nos trataron muy cariñosamente, el taquero me dio un consejo de oro: no caigas en provocaciones, no contestes, te van a llover de aquí en adelante. Debí verlo antes de contestar…
+[Permalink](https://twitter.com/fernandeznorona/status/1639486561849835521) | 226 Me Gusta | 46 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 15:23:52
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 19:52:29
 *****
-RT @buitengebieden: Having his own fun.. 😊
-[Permalink](https://twitter.com/fernandeznorona/status/1639407716400607233) | 0 Me Gusta | 1,808 Retweets
+22,873 en Facebook y, 4643 en YouTube. Raras las cifras de YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1639475312621764608) | 67 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 15:21:43
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 19:45:42
 *****
-RT @adrisaa05: 🚨Ojo aquí 🚨
-Traileros de Bachoco denuncian cobros fantasmas e ilegales de combustible y otros. Es un gran paso que los traba…
-[Permalink](https://twitter.com/fernandeznorona/status/1639407172109959168) | 0 Me Gusta | 16 Retweets
+Posición frente a la resolución de la ⁦@SCJN⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1639473606886592513) | 1,025 Me Gusta | 422 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 15:20:56
+**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 19:25:07
 *****
-¡Estás a dieta! Abrazote y que disfrutes, se ve delicioso todo.
-[Permalink](https://twitter.com/fernandeznorona/status/1639406977326493700) | 26 Me Gusta | 5 Retweets
+Estamos en posición remota, ya en el aeropuerto de Guadalajara. Apenas esté en la terminal fijaré mi posición frente a la resolución de la @SCJN.
+[Permalink](https://twitter.com/fernandeznorona/status/1639468426501451780) | 159 Me Gusta | 38 Retweets

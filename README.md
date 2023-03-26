@@ -1,33 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 14:04:11
+**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 20:39:53
 *****
-Ameca, Jalisco.
-[Permalink](https://twitter.com/fernandeznorona/status/1639750048115306498) | 165 Me Gusta | 29 Retweets
+Están espléndidos.
+[Permalink](https://twitter.com/fernandeznorona/status/1639849628534177793) | 27 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 13:00:13
+**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 20:31:00
 *****
-RT @aifaaero: Salas de Última Espera. 
-
-
-\#Aeropuerto #AeropuertoInternacionalFelipeÁngeles #FelipeÁngeles #NLU #VuelaAIFA #AIFA
-[Permalink](https://twitter.com/fernandeznorona/status/1639733951781646338) | 0 Me Gusta | 44 Retweets
+No debe haber ningún problema.
+[Permalink](https://twitter.com/fernandeznorona/status/1639847393955807233) | 36 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 12:58:06
+**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 20:26:28
 *****
-RT @SupsipS: Así quedaron mis bocadillitos...
-Fueron de perejil, de arándanos, mini brocheta de ate con queso, de uva con queso, volovanes…
-[Permalink](https://twitter.com/fernandeznorona/status/1639733420082311169) | 0 Me Gusta | 12 Retweets
+Ya en el hotel Morales. No me gustó nada que llegué a mi habitación y estaba abierta de par en par.
+[Permalink](https://twitter.com/fernandeznorona/status/1639846254573150214) | 89 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 12:57:49
+**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 19:09:06
 *****
-Y en la parte trasera de las camisetas, en la espalda, portan letrero: “El pueblo decide, Noroña es el que sigue”.
-[Permalink](https://twitter.com/fernandeznorona/status/1639733348015783936) | 68 Me Gusta | 24 Retweets
+Oye cabeza hueca y traidora la democracia @VicenteFoxQue, hiciste fraude electoral en 2006 para imponer al #TomandanteBorolas alias @FelipeCalderon. Si tuvieras un poco de vergüenza mantendrías el pico cerrado.
+[Permalink](https://twitter.com/fernandeznorona/status/1639826782978277376) | 463 Me Gusta | 149 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 12:35:36
+**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 19:02:53
 *****
-RT @AkalMx: ✨📖El 25 de marzo de 1942 nace en #Memphis #ArethaFranklin. 
-
-
-Con “Historia de la música negra norteamericana”, de Eileen Southe…
-[Permalink](https://twitter.com/fernandeznorona/status/1639727757532725251) | 0 Me Gusta | 6 Retweets
+RT @Marblanca3: Y quién está condenado a Macron por esta represion? Nadie!! A ver panistas salgan a desaprobar esta violencia hacia los fra…
+[Permalink](https://twitter.com/fernandeznorona/status/1639825218544738307) | 0 Me Gusta | 32 Retweets

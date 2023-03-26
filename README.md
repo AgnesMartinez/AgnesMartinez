@@ -1,26 +1,33 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 21:17:14
+**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 14:04:11
 *****
-RT @hamlet_almaguer: @JulietaRamirezP Laynez fue Procurador Fiscal de Calderón y Peña, trabaja para la derecha.
-[Permalink](https://twitter.com/fernandeznorona/status/1639496643434233856) | 0 Me Gusta | 82 Retweets
+Ameca, Jalisco.
+[Permalink](https://twitter.com/fernandeznorona/status/1639750048115306498) | 165 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 20:37:11
+**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 13:00:13
 *****
-Paré a comer unos tacos en las Pintitas, cerca del aeropuerto. Además de qué estaban buenísimos y nos trataron muy cariñosamente, el taquero me dio un consejo de oro: no caigas en provocaciones, no contestes, te van a llover de aquí en adelante. Debí verlo antes de contestar…
-[Permalink](https://twitter.com/fernandeznorona/status/1639486561849835521) | 583 Me Gusta | 98 Retweets
+RT @aifaaero: Salas de Última Espera. 
+
+
+\#Aeropuerto #AeropuertoInternacionalFelipeÁngeles #FelipeÁngeles #NLU #VuelaAIFA #AIFA
+[Permalink](https://twitter.com/fernandeznorona/status/1639733951781646338) | 0 Me Gusta | 44 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 19:52:29
+**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 12:58:06
 *****
-22,873 en Facebook y, 4643 en YouTube. Raras las cifras de YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1639475312621764608) | 115 Me Gusta | 20 Retweets
+RT @SupsipS: Así quedaron mis bocadillitos...
+Fueron de perejil, de arándanos, mini brocheta de ate con queso, de uva con queso, volovanes…
+[Permalink](https://twitter.com/fernandeznorona/status/1639733420082311169) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 19:45:42
+**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 12:57:49
 *****
-Posición frente a la resolución de la ⁦@SCJN⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1639473606886592513) | 2,319 Me Gusta | 970 Retweets
+Y en la parte trasera de las camisetas, en la espalda, portan letrero: “El pueblo decide, Noroña es el que sigue”.
+[Permalink](https://twitter.com/fernandeznorona/status/1639733348015783936) | 68 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-03-2023 a las 19:25:07
+**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 12:35:36
 *****
-Estamos en posición remota, ya en el aeropuerto de Guadalajara. Apenas esté en la terminal fijaré mi posición frente a la resolución de la @SCJN.
-[Permalink](https://twitter.com/fernandeznorona/status/1639468426501451780) | 219 Me Gusta | 53 Retweets
+RT @AkalMx: ✨📖El 25 de marzo de 1942 nace en #Memphis #ArethaFranklin. 
+
+
+Con “Historia de la música negra norteamericana”, de Eileen Southe…
+[Permalink](https://twitter.com/fernandeznorona/status/1639727757532725251) | 0 Me Gusta | 6 Retweets

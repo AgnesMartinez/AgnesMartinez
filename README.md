@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 08:05:30
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 15:15:45
 *****
-@ndurancoronado ¡Zas!
-[Permalink](https://twitter.com/fernandeznorona/status/1640022173552132097) | 1 Me Gusta | 0 Retweets
+Ahíta.
+[Permalink](https://twitter.com/fernandeznorona/status/1640130445714116608) | 569 Me Gusta | 117 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 20:39:53
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 15:01:37
 *****
-Están espléndidos.
-[Permalink](https://twitter.com/fernandeznorona/status/1639849628534177793) | 52 Me Gusta | 6 Retweets
+Así va Guadalajara.
+[Permalink](https://twitter.com/fernandeznorona/status/1640126892798795776) | 206 Me Gusta | 52 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 20:31:00
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 14:45:53
 *****
-No debe haber ningún problema.
-[Permalink](https://twitter.com/fernandeznorona/status/1639847393955807233) | 55 Me Gusta | 16 Retweets
+Guadalajara, Jal.
+[Permalink](https://twitter.com/fernandeznorona/status/1640122933367435268) | 259 Me Gusta | 51 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 20:26:28
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 11:15:43
 *****
-Ya en el hotel Morales. No me gustó nada que llegué a mi habitación y estaba abierta de par en par.
-[Permalink](https://twitter.com/fernandeznorona/status/1639846254573150214) | 192 Me Gusta | 36 Retweets
+Se parece a mi amigo ⁦@EnriqueIbarraP⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1640070043252686848) | 60 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-03-2023 a las 19:09:06
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 10:39:17
 *****
-Oye cabeza hueca y traidora la democracia @VicenteFoxQue, hiciste fraude electoral en 2006 para imponer al #TomandanteBorolas alias @FelipeCalderon. Si tuvieras un poco de vergüenza mantendrías el pico cerrado.
-[Permalink](https://twitter.com/fernandeznorona/status/1639826782978277376) | 1,176 Me Gusta | 350 Retweets
+Simple, porque es el primer paso a la imposición de una religión que difícilmente podrás quitarte de encima.
+[Permalink](https://twitter.com/fernandeznorona/status/1640060871048085504) | 80 Me Gusta | 24 Retweets

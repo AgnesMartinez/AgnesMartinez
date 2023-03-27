@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 15:15:45
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 20:02:16
 *****
-Ahíta.
-[Permalink](https://twitter.com/fernandeznorona/status/1640130445714116608) | 569 Me Gusta | 117 Retweets
+Ya en el hotel. Mañana saldré rumbo a Monterrey.
+[Permalink](https://twitter.com/fernandeznorona/status/1640202553328644097) | 90 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 15:01:37
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 19:56:58
 *****
-Así va Guadalajara.
-[Permalink](https://twitter.com/fernandeznorona/status/1640126892798795776) | 206 Me Gusta | 52 Retweets
+Jejeje. Seguiré de carpita en carpita…
+[Permalink](https://twitter.com/fernandeznorona/status/1640201219883843584) | 323 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 14:45:53
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 19:55:54
 *****
-Guadalajara, Jal.
-[Permalink](https://twitter.com/fernandeznorona/status/1640122933367435268) | 259 Me Gusta | 51 Retweets
+El ⁦@ptjalisco⁩ le metió galleta.
+[Permalink](https://twitter.com/fernandeznorona/status/1640200948898230272) | 103 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 11:15:43
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 19:55:21
 *****
-Se parece a mi amigo ⁦@EnriqueIbarraP⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1640070043252686848) | 60 Me Gusta | 10 Retweets
+Buena asamblea.
+[Permalink](https://twitter.com/fernandeznorona/status/1640200813141164037) | 103 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 10:39:17
+**Fernández Noroña** (**@fernandeznorona**) • 26-03-2023 a las 19:54:43
 *****
-Simple, porque es el primer paso a la imposición de una religión que difícilmente podrás quitarte de encima.
-[Permalink](https://twitter.com/fernandeznorona/status/1640060871048085504) | 80 Me Gusta | 24 Retweets
+Hoy en Guadalajara.
+[Permalink](https://twitter.com/fernandeznorona/status/1640200651572379650) | 116 Me Gusta | 16 Retweets

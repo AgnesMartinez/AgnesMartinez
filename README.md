@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-03-2023 a las 10:03:56
+**Fernández Noroña** (**@fernandeznorona**) • 27-03-2023 a las 12:56:53
 *****
-Cuando…
-[Permalink](https://twitter.com/fernandeznorona/status/1640414362933559296) | 7 Me Gusta | 1 Retweets
+El plan C es arrasarlos en las urnas en 2024, con una avasalladora participación popular. No somos iguales, no queremos consejeros a modo. Les ganamos con el @INEMexico encabezado por @lorenzocordovav en 2018, les ganaremos con quien quiera que esté en ese espacio en 2024.
+[Permalink](https://twitter.com/fernandeznorona/status/1640457890447196163) | 645 Me Gusta | 220 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-03-2023 a las 10:02:57
+**Fernández Noroña** (**@fernandeznorona**) • 27-03-2023 a las 12:51:07
 *****
-RT @contralinea: #Noticia #PeriodismodeInvestigación  
-
-
-La multa impuesta al @PartidoMorenaMx equivale a 84.4% del monto global que se impo…
-[Permalink](https://twitter.com/fernandeznorona/status/1640414114982838284) | 0 Me Gusta | 5 Retweets
+Acabamos de aterrizar en Monterrey.
+[Permalink](https://twitter.com/fernandeznorona/status/1640456439083724800) | 85 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-03-2023 a las 09:12:43
+**Fernández Noroña** (**@fernandeznorona**) • 27-03-2023 a las 11:42:28
 *****
-Debemos arbolar las calles de todas las poblaciones del país.
-[Permalink](https://twitter.com/fernandeznorona/status/1640401475531685893) | 128 Me Gusta | 19 Retweets
+Dr. Chapatín @JesusMartinMx, explícanos cómo va a imponer a nadie el compañero presidente, si se necesitan 2/3 de los votos de los legisladores y, por otra parte, ¿dónde está el nepotismo? ¿Qué familiar que trabaja en el @INEMexico y decide los consejeros quiere imponerla?
+[Permalink](https://twitter.com/fernandeznorona/status/1640439160400912405) | 421 Me Gusta | 137 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-03-2023 a las 09:12:23
+**Fernández Noroña** (**@fernandeznorona**) • 27-03-2023 a las 11:38:39
 *****
-En cambio vean este horror, todo gris.
-[Permalink](https://twitter.com/fernandeznorona/status/1640401392308305927) | 82 Me Gusta | 11 Retweets
+Listos para salir de Guadalajara a Monterrey con @VivaAerobus.
+[Permalink](https://twitter.com/fernandeznorona/status/1640438200043974656) | 76 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-03-2023 a las 09:11:57
+**Fernández Noroña** (**@fernandeznorona**) • 27-03-2023 a las 10:27:43
 *****
-Además de bella, una calle arbolada genera oxígeno, absorbe bióxido de carbono y promueve la lluvia.
-[Permalink](https://twitter.com/fernandeznorona/status/1640401281457045516) | 71 Me Gusta | 18 Retweets
+RT @Helioflores_mex: Gira del adiós.
+[Permalink](https://twitter.com/fernandeznorona/status/1640420349463478273) | 0 Me Gusta | 1,340 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 15:34:50
+**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 20:47:58
 *****
-@AliteyU Comiencen.
-[Permalink](https://twitter.com/fernandeznorona/status/1640860026456907777) | 8 Me Gusta | 2 Retweets
+La mayoría de los mexicanos exige que España pida perdón por la conquista.
+[Permalink](https://twitter.com/fernandeznorona/status/1640938826544578563) | 146 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 15:33:32
+**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 19:46:44
 *****
-¿Y para cuándo das tu muestra de valentía, #TomandanteBorolas alias @felipecalderon?
-[Permalink](https://twitter.com/fernandeznorona/status/1640859696532803585) | 129 Me Gusta | 34 Retweets
+Hoy en Monterrey. Con Lupita Rodriguez y ⁦@AlbertoAnayaGt⁩. Ahí está también Pedro Vázquez y Ramón .
+[Permalink](https://twitter.com/fernandeznorona/status/1640923419142225925) | 91 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 12:58:52
+**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 19:42:11
 *****
-Edmundo Jacobo renuncia como secretario ejecutivo del INE Grupo Milenio. Puej ji, se va el padre de la democracia. ¿Ahora qué haremos?
-[Permalink](https://twitter.com/fernandeznorona/status/1640820777292275714) | 680 Me Gusta | 183 Retweets
+En Tierra y Libertad, estrenando botas porque se me inundaron los zapatos.
+[Permalink](https://twitter.com/fernandeznorona/status/1640922275456090113) | 332 Me Gusta | 55 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 12:17:38
+**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 19:41:33
 *****
-“No dejes para mañana las ganas que te tengo hoy”, anuncio en un motel de Monterrey. Francamente creo que tienes razón.
-[Permalink](https://twitter.com/fernandeznorona/status/1640810400248746007) | 120 Me Gusta | 30 Retweets
+Aquí la “pólvora” en Tierra y Libertad.
+[Permalink](https://twitter.com/fernandeznorona/status/1640922116034789376) | 175 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 09:16:30
+**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 19:41:01
 *****
-Les digo que soy Tlaloc, está cayendo un diluvio en Monterrey.
-[Permalink](https://twitter.com/fernandeznorona/status/1640764813646200845) | 382 Me Gusta | 55 Retweets
+Hace una hora.
+[Permalink](https://twitter.com/fernandeznorona/status/1640921978025410562) | 70 Me Gusta | 18 Retweets

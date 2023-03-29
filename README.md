@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 20:47:58
+**Fernández Noroña** (**@fernandeznorona**) • 29-03-2023 a las 06:41:20
 *****
-La mayoría de los mexicanos exige que España pida perdón por la conquista.
-[Permalink](https://twitter.com/fernandeznorona/status/1640938826544578563) | 267 Me Gusta | 69 Retweets
+Muchas felicidades. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1641088152893784066) | 45 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 19:46:44
+**Fernández Noroña** (**@fernandeznorona**) • 29-03-2023 a las 06:40:30
 *****
-Hoy en Monterrey. Con Lupita Rodriguez y ⁦@AlbertoAnayaGt⁩. Ahí está también Pedro Vázquez y Ramón .
-[Permalink](https://twitter.com/fernandeznorona/status/1640923419142225925) | 127 Me Gusta | 35 Retweets
+RT @sandradamara1: Así los leo 🐈✨
+[Permalink](https://twitter.com/fernandeznorona/status/1641087942297780224) | 0 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 19:42:11
+**Fernández Noroña** (**@fernandeznorona**) • 29-03-2023 a las 06:39:23
 *****
-En Tierra y Libertad, estrenando botas porque se me inundaron los zapatos.
-[Permalink](https://twitter.com/fernandeznorona/status/1640922275456090113) | 429 Me Gusta | 74 Retweets
+RT @LJyDMX: ‼️ No, bueno‼️🤪
+[Permalink](https://twitter.com/fernandeznorona/status/1641087661170360320) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 19:41:33
+**Fernández Noroña** (**@fernandeznorona**) • 29-03-2023 a las 06:36:54
 *****
-Aquí la “pólvora” en Tierra y Libertad.
-[Permalink](https://twitter.com/fernandeznorona/status/1640922116034789376) | 227 Me Gusta | 28 Retweets
+Ah, es la primera vez que estando en posición remota, llego al avión caminando cerca de quinientos metros.
+[Permalink](https://twitter.com/fernandeznorona/status/1641087038140063744) | 25 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-03-2023 a las 19:41:01
+**Fernández Noroña** (**@fernandeznorona**) • 29-03-2023 a las 06:34:26
 *****
-Hace una hora.
-[Permalink](https://twitter.com/fernandeznorona/status/1640921978025410562) | 83 Me Gusta | 19 Retweets
+RT @lximenezsarro: ÚLTIMA HORA
+
+
+Me llegó esta imagen de José Ramón López Beltrán, arriba de un Ferrari.
+
+
+¡Ya basta!
+[Permalink](https://twitter.com/fernandeznorona/status/1641086417139892224) | 0 Me Gusta | 109 Retweets

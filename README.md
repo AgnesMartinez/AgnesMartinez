@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-03-2023 a las 21:14:26
+**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 08:20:50
 *****
-5654 en Facebook y, 4842 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1641307875472465921) | 82 Me Gusta | 16 Retweets
+Continúa: si las corcholatas no lo dejan pasar, lo necesitan para gobernar. Lo necesita México. Así las cosas esta mañana.
+[Permalink](https://twitter.com/fernandeznorona/status/1641475582926921729) | 57 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-03-2023 a las 19:02:30
+**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 08:20:50
 *****
-A las nueve de la noche no va a ser la video charla. Todavía estoy en @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1641274675757023235) | 151 Me Gusta | 22 Retweets
+Una docena de personas como mínimo me pidió fotografía de la mañana de hoy, en el camino a desayunar y en el restaurante del Hotel Catedral. Ya para salir, un hombre me dice: “usted ya ganó”.
+[Permalink](https://twitter.com/fernandeznorona/status/1641475581471490048) | 228 Me Gusta | 46 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-03-2023 a las 15:04:22
+**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 08:15:23
 *****
-Mi solidaridad con mi amiga y compañera Diputada ⁦@CamachoCirce⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1641214745683558402) | 88 Me Gusta | 32 Retweets
+“… combatir la imposición actual que se prepara, en estos momentos el imperativo de la conciencia nacional”. General Pablo González frente al intento de imposición del ingeniero Bonillas por parte del Presidente Carranza.
+[Permalink](https://twitter.com/fernandeznorona/status/1641474211704176640) | 20 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-03-2023 a las 14:33:07
+**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 08:15:21
 *****
-“Si nosotros combatiéramos algún culto, no tendríamos el derecho de llamarnos liberales, porque para ser liberal, en toda la amplitud del concepto, se necesita, ante todo, respetar la libertad de conciencia, la libertad de religión, la libertad política”. Obregón citado por Ávila
-[Permalink](https://twitter.com/fernandeznorona/status/1641206881774632961) | 132 Me Gusta | 30 Retweets
+“… sería resignarnos ignominiosamente al más vergonzoso retroceso político y permitir que por muchos años, sin posibilidad de redención, la nación entera quedara sometida como un rebaño despreciable al dominio exclusivista de esa camarilla corrompida…”
+[Permalink](https://twitter.com/fernandeznorona/status/1641474201340059648) | 24 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-03-2023 a las 14:07:22
+**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 08:15:20
 *****
-La video charla será hacia las nueve de la noche. Tenemos reunión de JUCOPO justo a las seis de la tarde.
-[Permalink](https://twitter.com/fernandeznorona/status/1641200402107596802) | 148 Me Gusta | 40 Retweets
+“Aceptar la imposición hoy, después de las vidas, destrucción y conflictos que han costado al país sus luchas contra las imposiciones, sería renegar de todos nuestros sacrificios, de todos nuestros principios, de todos nuestros ideales y todas nuestras esperanzas…”
+[Permalink](https://twitter.com/fernandeznorona/status/1641474199402233857) | 73 Me Gusta | 21 Retweets

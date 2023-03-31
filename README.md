@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 16:40:53
+**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 20:39:09
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1641601422658531330) | 4 Me Gusta | 0 Retweets
+RT @SupsipS: Ya es un clásico, que @fernandeznorona les advierte sobre algo, se le echan encima, lo atacan y al rato les toca poner su caro…
+[Permalink](https://twitter.com/fernandeznorona/status/1641661384373985283) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 13:16:48
+**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 20:38:55
 *****
-@lauralun03 @LJyDMX Vez.
-[Permalink](https://twitter.com/fernandeznorona/status/1641550065792630789) | 3 Me Gusta | 0 Retweets
+@HNoticiasMX Ha ido.
+[Permalink](https://twitter.com/fernandeznorona/status/1641661326043885571) | 29 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 13:14:27
+**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 20:08:23
 *****
-Me acaban de regalar esta playera.
-[Permalink](https://twitter.com/fernandeznorona/status/1641549473943003142) | 334 Me Gusta | 35 Retweets
+RT @Nubia_SCG: @SupsipS @fernandeznorona Claro. Hablan totalmente desde su privilegio, y le quitan a las mujeres de a pie, a las que un día…
+[Permalink](https://twitter.com/fernandeznorona/status/1641653642817150976) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 11:27:15
+**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 17:44:22
 *****
-En apoyo a Gerardo Fernández Noroña. Agradezco a Rodrigo Sánchez Villa
-[Permalink](https://twitter.com/fernandeznorona/status/1641522494652776448) | 119 Me Gusta | 29 Retweets
+Hoy estuvo fallando la plataforma de YouTube y sólo estamos transmitiendo en Facebook.
+[Permalink](https://twitter.com/fernandeznorona/status/1641617397516738563) | 83 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 08:20:50
+**Fernández Noroña** (**@fernandeznorona**) • 30-03-2023 a las 16:50:43
 *****
-Continúa: si las corcholatas no lo dejan pasar, lo necesitan para gobernar. Lo necesita México. Así las cosas esta mañana.
-[Permalink](https://twitter.com/fernandeznorona/status/1641475582926921729) | 120 Me Gusta | 23 Retweets
+Por sí alguna duda tienen de que quieren hacer uso perverso del tema -compañeros y compañeras del movimiento. En cuanto a usted, investigue un poco los alcances de la iniciativa persona periodista. Es sobre sanciones por delitos, no por faltas administrativas.
+[Permalink](https://twitter.com/fernandeznorona/status/1641603896064856064) | 125 Me Gusta | 49 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 23:30:36
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 09:13:53
 *****
-Apenas en el hotel y mañana hay que iniciar 6:30 de la mañana.
-[Permalink](https://twitter.com/fernandeznorona/status/1642066921137795072) | 40 Me Gusta | 5 Retweets
+Los tres.
+[Permalink](https://twitter.com/fernandeznorona/status/1642213708603506690) | 24 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 22:39:26
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 09:13:34
 *****
-Están haciendo campaña, pánfilo. Ay Pasquín @beltrandelrio.
-[Permalink](https://twitter.com/fernandeznorona/status/1642054042246610944) | 21 Me Gusta | 4 Retweets
+¡Qué chingón!
+[Permalink](https://twitter.com/fernandeznorona/status/1642213627246641157) | 37 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 22:37:08
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 09:13:14
 *****
-Olvidé mi libro en el asiento del avión. Qué tontería y lo llevo muy avanzado, además de subrayado. Lo bueno, es que el personal de @Aeromexico se portó de primera, lo recuperaron y ya me lo van a entregar.
-[Permalink](https://twitter.com/fernandeznorona/status/1642053465731108869) | 94 Me Gusta | 5 Retweets
+RT @JesusMartinMx: Les presento a mi hijo. Así como hay quienes tienen perrijos, yo tengo un arbolijo.
+[Permalink](https://twitter.com/fernandeznorona/status/1642213545570967553) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 22:11:20
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 09:13:07
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1642046973594279938) | 16 Me Gusta | 3 Retweets
+No, en realidad aún yendo en coalición, los emblemas aparecen separados. De hecho, los partidos aliados compiten entre sí mismos por la votación de la misma base electoral.
+[Permalink](https://twitter.com/fernandeznorona/status/1642213516336586752) | 10 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 22:08:28
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 09:11:24
 *****
-Apenas aterrizamos en Monterrey.
-[Permalink](https://twitter.com/fernandeznorona/status/1642046248524869635) | 52 Me Gusta | 5 Retweets
+Ya llegamos a Ciudad Victoria.
+[Permalink](https://twitter.com/fernandeznorona/status/1642213082171580421) | 37 Me Gusta | 9 Retweets

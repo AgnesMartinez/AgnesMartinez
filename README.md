@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 09:31:23
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 15:31:58
 *****
-En plenas vacaciones ¿de quién?
-[Permalink](https://twitter.com/fernandeznorona/status/1641855722190262272) | 63 Me Gusta | 5 Retweets
+Se les olvida que “el que por otro pide, por sí abogada”. Para mayor rabia de la derecha, el compañero presidente @lopezobrador_ terminará su mandato sano y pleno. Con un enorme respaldo popular.
+[Permalink](https://twitter.com/fernandeznorona/status/1641946467475795968) | 127 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 07:55:27
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 15:31:58
 *****
-RT @politicomx: El INE desechó las investigaciones sobre el presunto financiamiento ilícito a las campañas del PRI, relacionados al caso Od…
-[Permalink](https://twitter.com/fernandeznorona/status/1641831583048142849) | 0 Me Gusta | 18 Retweets
+La madrugada de hoy, previo a la insaculación de las personas que se integrarían al Consejo electoral del @INEMexico, soltaron el rumor de qué al compañero presidente le habían dado dos infartos e iba camino al hospital militar. ¡Quisieran! Se les olvida que el que por otro pide
+[Permalink](https://twitter.com/fernandeznorona/status/1641946466251055104) | 255 Me Gusta | 52 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 07:54:27
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 15:24:25
 *****
-Nosotros estamos convocando a un sondeo callejero el 30 de abril en las plazas públicas de todo el país. Mínimo en las capitales. Estarán las fotos y nombres de los cinco aspirantes. Ahí la gente será invitada a votar libremente.
-[Permalink](https://twitter.com/fernandeznorona/status/1641831329062092804) | 130 Me Gusta | 42 Retweets
+Muy bien. Te pido mantenernos informados de lo que pasó al final con esos policías.
+[Permalink](https://twitter.com/fernandeznorona/status/1641944566646595584) | 30 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 07:51:43
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 15:23:36
 *****
-RT @HernanGomezB: Más de 50 mil universitarios se pronunciaron ayer: 
-
-
-Clara ventaja para @Claudiashein entre la comunidad.
-
-
-Muy lejos de e…
-[Permalink](https://twitter.com/fernandeznorona/status/1641830640202153985) | 0 Me Gusta | 82 Retweets
+¡Qué miserable y cobarde policia! @PabloLemusN eso no debe quedar impune.
+[Permalink](https://twitter.com/fernandeznorona/status/1641944363055063040) | 7 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 07:36:46
+**Fernández Noroña** (**@fernandeznorona**) • 31-03-2023 a las 15:18:32
 *****
-RT @biologacarmen: @fernandeznorona Dejaré esto por aquí... Y no, no es del año de la cacharpa, como la supuesta #ViolenciaPolíticadeGenero…
-[Permalink](https://twitter.com/fernandeznorona/status/1641826880381935618) | 0 Me Gusta | 11 Retweets
+“Larga vida al @INEMexico”, dijo en su despedida @lorenzocordovav. Debería cobrar derechos de autor. Por otra parte, el buen Lorenzo pasará por su larga vida -asumo mi código postal-.
+[Permalink](https://twitter.com/fernandeznorona/status/1641943086292172800) | 46 Me Gusta | 10 Retweets

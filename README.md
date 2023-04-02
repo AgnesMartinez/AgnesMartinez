@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 15:12:11
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 20:43:26
 *****
-Nuevo Padilla, Tamaulipas.
-[Permalink](https://twitter.com/fernandeznorona/status/1642303877583175683) | 64 Me Gusta | 27 Retweets
+No.
+[Permalink](https://twitter.com/fernandeznorona/status/1642387240990003202) | 27 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 15:03:52
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 20:43:13
 *****
-En Jiménez.
-[Permalink](https://twitter.com/fernandeznorona/status/1642301782280880128) | 39 Me Gusta | 10 Retweets
+Eso sería suicida y muy irresponsable.
+[Permalink](https://twitter.com/fernandeznorona/status/1642387183192403968) | 35 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 13:19:42
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 20:25:59
 *****
-Eres un sectario disfrazado de crítico.
-[Permalink](https://twitter.com/fernandeznorona/status/1642275569562796037) | 48 Me Gusta | 13 Retweets
+“Jesucristo, quien, con toda justicia, está siendo considerado como el más grande socialista que haya conocido la humanidad”. Obregón en respuesta a la jerarquía católica mexicana.
+[Permalink](https://twitter.com/fernandeznorona/status/1642382846961635328) | 48 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 13:17:56
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 20:08:48
 *****
-Nuevo Padilla, Tamps.
-[Permalink](https://twitter.com/fernandeznorona/status/1642275123741818880) | 39 Me Gusta | 15 Retweets
+RT @Navegaciones: La oposición en México es democrática, feminista, ambientalista, animalista, defensora de los derechos humanos, promigran…
+[Permalink](https://twitter.com/fernandeznorona/status/1642378523053629441) | 0 Me Gusta | 587 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 12:14:19
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 20:03:31
 *****
-Nuevo Padilla, Tamps.
-[Permalink](https://twitter.com/fernandeznorona/status/1642259114154762241) | 97 Me Gusta | 25 Retweets
+RT @adrisaa05: Así las cosas 👇
+[Permalink](https://twitter.com/fernandeznorona/status/1642377191987052547) | 0 Me Gusta | 9 Retweets

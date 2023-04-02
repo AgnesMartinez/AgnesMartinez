@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 09:13:53
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 15:12:11
 *****
-Los tres.
-[Permalink](https://twitter.com/fernandeznorona/status/1642213708603506690) | 24 Me Gusta | 4 Retweets
+Nuevo Padilla, Tamaulipas.
+[Permalink](https://twitter.com/fernandeznorona/status/1642303877583175683) | 64 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 09:13:34
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 15:03:52
 *****
-¡Qué chingón!
-[Permalink](https://twitter.com/fernandeznorona/status/1642213627246641157) | 37 Me Gusta | 3 Retweets
+En Jiménez.
+[Permalink](https://twitter.com/fernandeznorona/status/1642301782280880128) | 39 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 09:13:14
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 13:19:42
 *****
-RT @JesusMartinMx: Les presento a mi hijo. Así como hay quienes tienen perrijos, yo tengo un arbolijo.
-[Permalink](https://twitter.com/fernandeznorona/status/1642213545570967553) | 0 Me Gusta | 9 Retweets
+Eres un sectario disfrazado de crítico.
+[Permalink](https://twitter.com/fernandeznorona/status/1642275569562796037) | 48 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 09:13:07
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 13:17:56
 *****
-No, en realidad aún yendo en coalición, los emblemas aparecen separados. De hecho, los partidos aliados compiten entre sí mismos por la votación de la misma base electoral.
-[Permalink](https://twitter.com/fernandeznorona/status/1642213516336586752) | 10 Me Gusta | 3 Retweets
+Nuevo Padilla, Tamps.
+[Permalink](https://twitter.com/fernandeznorona/status/1642275123741818880) | 39 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 09:11:24
+**Fernández Noroña** (**@fernandeznorona**) • 01-04-2023 a las 12:14:19
 *****
-Ya llegamos a Ciudad Victoria.
-[Permalink](https://twitter.com/fernandeznorona/status/1642213082171580421) | 37 Me Gusta | 9 Retweets
+Nuevo Padilla, Tamps.
+[Permalink](https://twitter.com/fernandeznorona/status/1642259114154762241) | 97 Me Gusta | 25 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-04-2023 a las 15:32:37
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2023 a las 20:20:25
 *****
-Xacto. ¡Genial!
-[Permalink](https://twitter.com/fernandeznorona/status/1642671406877126656) | 58 Me Gusta | 6 Retweets
+Cené en “La Cocherita Bien Brasa”, en Ciudad Victoria. Qué buen lugar. Toda su comida es espectacular, los postres de primera, el servicio espléndido y encima, todos los trabajadores simpatizaban conmigo. Mejor, imposible.
+[Permalink](https://twitter.com/fernandeznorona/status/1642743833665388545) | 145 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-04-2023 a las 15:30:09
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2023 a las 18:19:11
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1642670787420372993) | 65 Me Gusta | 14 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1642713324348383233) | 37 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-04-2023 a las 14:51:40
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2023 a las 17:44:43
 *****
-San Fernando, Tamps.
-[Permalink](https://twitter.com/fernandeznorona/status/1642661102164008960) | 110 Me Gusta | 32 Retweets
+Soto la Marina.
+[Permalink](https://twitter.com/fernandeznorona/status/1642704650427047938) | 150 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-04-2023 a las 14:38:26
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2023 a las 17:44:13
 *****
-Vamos de Soto la Marina rumbo a Ciudad Victoria.
-[Permalink](https://twitter.com/fernandeznorona/status/1642657770808700930) | 59 Me Gusta | 13 Retweets
+Con compañeras de Aldama.
+[Permalink](https://twitter.com/fernandeznorona/status/1642704526724440067) | 98 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-04-2023 a las 13:15:46
+**Fernández Noroña** (**@fernandeznorona**) • 02-04-2023 a las 17:43:45
 *****
-En Soto la Marina.
-[Permalink](https://twitter.com/fernandeznorona/status/1642636968323416067) | 151 Me Gusta | 32 Retweets
+Al final de la asamblea en Soto la Marina.
+[Permalink](https://twitter.com/fernandeznorona/status/1642704406406656001) | 87 Me Gusta | 27 Retweets

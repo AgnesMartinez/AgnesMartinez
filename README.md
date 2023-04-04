@@ -1,30 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-04-2023 a las 20:59:36
+**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 10:00:38
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1643116084524883968) | 18 Me Gusta | 0 Retweets
+RT @rodrigo_dector: La indignación también es selectiva. Ella es Valeria, desde el martes fue asesinad@ y violæd@ en una comunidad de San R…
+[Permalink](https://twitter.com/fernandeznorona/status/1643312634639400960) | 0 Me Gusta | 172 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-04-2023 a las 20:53:01
+**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 09:39:59
 *****
-No ha cambiado @CiroMurayamaINE a @CiroMurayamaExIne
-[Permalink](https://twitter.com/fernandeznorona/status/1643114427485495296) | 119 Me Gusta | 16 Retweets
+“No sois dios, pero no hay nadie que se acerque tanto a él como vosotros”.  Philip Roth.
+[Permalink](https://twitter.com/fernandeznorona/status/1643307440044138643) | 17 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-04-2023 a las 20:46:14
+**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 07:24:01
 *****
-RT @HNoticiasMX: Una extraña y a la vez hermosa Historia de Amor.
-
-
-La bella lomito es la mamá de los tigres y observen como la tratan. http…
-[Permalink](https://twitter.com/fernandeznorona/status/1643112718247817216) | 0 Me Gusta | 45 Retweets
+Ya sé a quien apoya. Es su derecho.
+[Permalink](https://twitter.com/fernandeznorona/status/1643273220777205760) | 30 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-04-2023 a las 20:38:12
+**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 07:18:31
 *****
-@Nezahualcollotl @RuizMSolecito Zánganos. Aprende por lo menos a escribir, zángano.
-[Permalink](https://twitter.com/fernandeznorona/status/1643110696370991106) | 116 Me Gusta | 7 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1643271837827072000) | 26 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-04-2023 a las 20:35:57
+**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 07:13:50
 *****
-RT @catrina_nortena: #PresidentaDelINE 
-No vayan a darle RT a está imagen de Guadalupe Taddei que le puede dar mucho ARDOR a la fachiza...…
-[Permalink](https://twitter.com/fernandeznorona/status/1643110130135826432) | 0 Me Gusta | 3,529 Retweets
+Jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1643270659676438528) | 15 Me Gusta | 4 Retweets

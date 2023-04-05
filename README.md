@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 10:00:38
+**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 15:54:09
 *****
-RT @rodrigo_dector: La indignación también es selectiva. Ella es Valeria, desde el martes fue asesinad@ y violæd@ en una comunidad de San R…
-[Permalink](https://twitter.com/fernandeznorona/status/1643312634639400960) | 0 Me Gusta | 172 Retweets
+RT @rosendomarind: En las casas de Tlalnepantla #Changoleón presente  @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1643401602672349186) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 09:39:59
+**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 15:20:31
 *****
-“No sois dios, pero no hay nadie que se acerque tanto a él como vosotros”.  Philip Roth.
-[Permalink](https://twitter.com/fernandeznorona/status/1643307440044138643) | 17 Me Gusta | 4 Retweets
+Lamento el fallecimiento de Andrés García. Mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1643393136574570497) | 109 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 07:24:01
+**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 13:39:56
 *****
-Ya sé a quien apoya. Es su derecho.
-[Permalink](https://twitter.com/fernandeznorona/status/1643273220777205760) | 30 Me Gusta | 3 Retweets
+RT @RuizMSolecito: Tú si sabías, por eso no tendrás perdón
+[Permalink](https://twitter.com/fernandeznorona/status/1643367824381947904) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 07:18:31
+**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 13:33:15
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1643271837827072000) | 26 Me Gusta | 8 Retweets
+Cerca del kilómetro 37 de la carretera México Cuernavaca, en realidad en el tramo Cuernavaca México, hay un incendio.
+[Permalink](https://twitter.com/fernandeznorona/status/1643366141408968706) | 44 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 07:13:50
+**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 13:03:37
 *****
-Jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1643270659676438528) | 15 Me Gusta | 4 Retweets
+Ya voy camino a Pueblo quieto.
+[Permalink](https://twitter.com/fernandeznorona/status/1643358685094109185) | 60 Me Gusta | 8 Retweets

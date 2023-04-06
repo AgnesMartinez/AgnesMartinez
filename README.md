@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 15:54:15
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 19:21:19
 *****
-Oye a éste gaznápiro. Su entreguismo es vomitivo @SergioSarmiento.
-[Permalink](https://twitter.com/fernandeznorona/status/1643764013635960832) | 69 Me Gusta | 11 Retweets
+Abrazote y gracias por lo que mí respecta.
+[Permalink](https://twitter.com/fernandeznorona/status/1643816123631116289) | 98 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 15:53:10
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 17:58:39
 *****
-@ndurancoronado Zas.
-[Permalink](https://twitter.com/fernandeznorona/status/1643763743321473025) | 4 Me Gusta | 0 Retweets
+La Luna en Tepoztlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1643795322391482369) | 174 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 15:52:47
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 17:03:50
 *****
-Te diré, que es mala idea salir por carretera, o ya puestos, por cualquier medio, en estos días. Como decía Kalimán: serenidad y paciencia. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1643763647150211072) | 19 Me Gusta | 4 Retweets
+Miren qué belleza de Luna.
+[Permalink](https://twitter.com/fernandeznorona/status/1643781526910566407) | 66 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 13:43:59
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 17:03:11
 *****
-RT @rubengluengas: El gobierno de la República Checa pretende elevar la edad de jubilación de 64 a 68 años. Esta semana se han celebrado ma…
-[Permalink](https://twitter.com/fernandeznorona/status/1643731230527979530) | 0 Me Gusta | 30 Retweets
+La luna desde Tepoztlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1643781362695143424) | 108 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 13:43:47
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 17:01:04
 *****
-La patriota.
-[Permalink](https://twitter.com/fernandeznorona/status/1643731180007698432) | 71 Me Gusta | 11 Retweets
+7300 en Facebook y, 7780 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1643780831633088513) | 71 Me Gusta | 16 Retweets

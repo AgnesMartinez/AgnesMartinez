@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 08:03:54
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 15:54:15
 *****
-Ahora ya no sólo es violencia política contra las mujeres, sino violencia política a secas. Vamos mejorando, qué duda cabe.
-[Permalink](https://twitter.com/fernandeznorona/status/1643645648766369795) | 32 Me Gusta | 6 Retweets
+Oye a éste gaznápiro. Su entreguismo es vomitivo @SergioSarmiento.
+[Permalink](https://twitter.com/fernandeznorona/status/1643764013635960832) | 69 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 07:48:29
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 15:53:10
 *****
-La Manuela, el Tigre Silvestra y Eleno.
-[Permalink](https://twitter.com/fernandeznorona/status/1643641765889490945) | 81 Me Gusta | 5 Retweets
+@ndurancoronado Zas.
+[Permalink](https://twitter.com/fernandeznorona/status/1643763743321473025) | 4 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 19:20:28
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 15:52:47
 *****
-La luna desde Tepoztlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1643453524607467522) | 215 Me Gusta | 12 Retweets
+Te diré, que es mala idea salir por carretera, o ya puestos, por cualquier medio, en estos días. Como decía Kalimán: serenidad y paciencia. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1643763647150211072) | 19 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 18:45:53
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 13:43:59
 *****
-RT @juanbaaq: Ahora resulta que las plantas Iberdorla son puro fierro viejo…
-
-
-Ah, pero hace un año, cuando se defendía la soberanía energét…
-[Permalink](https://twitter.com/fernandeznorona/status/1643444818197065729) | 0 Me Gusta | 1,143 Retweets
+RT @rubengluengas: El gobierno de la República Checa pretende elevar la edad de jubilación de 64 a 68 años. Esta semana se han celebrado ma…
+[Permalink](https://twitter.com/fernandeznorona/status/1643731230527979530) | 0 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-04-2023 a las 18:11:09
+**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 13:43:47
 *****
-Para que se den una idea. #NoronaNiPinta.
-[Permalink](https://twitter.com/fernandeznorona/status/1643436079226429442) | 385 Me Gusta | 88 Retweets
+La patriota.
+[Permalink](https://twitter.com/fernandeznorona/status/1643731180007698432) | 71 Me Gusta | 11 Retweets

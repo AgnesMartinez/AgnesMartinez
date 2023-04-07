@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 15:11:41
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 21:38:15
 *****
-RT @DOGDEGA: 🇷🇺🇮🇳 Rusia ganó la licitación para suministrar a la India 120 locomotoras eléctricas y 1920 vagones. Se trata del mayor contra…
-[Permalink](https://twitter.com/fernandeznorona/status/1644115690041888769) | 0 Me Gusta | 512 Retweets
+RT @Reforma: #LoMásVisto Un tribunal federal invalidó la orden de aprehensión contra Inés Gómez Mont por fraude fiscal de 12 mdp, y ordenó…
+[Permalink](https://twitter.com/fernandeznorona/status/1644212971508314114) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 15:10:38
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 20:26:26
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1644115426236944385) | 204 Me Gusta | 32 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1644194902174228480) | 58 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 15:10:26
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 18:35:48
 *****
-Toda mi solidaridad. Un abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1644115374852526080) | 17 Me Gusta | 2 Retweets
+Luna tepozteca
+[Permalink](https://twitter.com/fernandeznorona/status/1644167058295500801) | 97 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 15:09:07
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 17:08:10
 *****
-¿Dónde es?
-[Permalink](https://twitter.com/fernandeznorona/status/1644115045847015424) | 22 Me Gusta | 3 Retweets
+Y antes de que empiecen a decir tonterías, el que tengas los rudimentos de lectura y escritura no te hace menos en tu capacidad e inteligencia. La enorme creatividad de nuestro pueblo lo demuestra.
+[Permalink](https://twitter.com/fernandeznorona/status/1644145005173542913) | 248 Me Gusta | 55 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 14:39:17
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 17:07:10
 *****
-RT @paz_jardines: 🚨🚨🚨🚨🚨 ALERTA!!
-Estan  talando arboles dentro del predio del gran san rafael que se ubica en calle HISTORIADORES Y MANUEL…
-[Permalink](https://twitter.com/fernandeznorona/status/1644107534859476992) | 0 Me Gusta | 134 Retweets
+Hoy en la montaña. Ahí no critico la ortografía, parte de nuestro pueblo con dificultades sabe leer y escribir. Por eso es muy importante promover la lectura. Pero el amor a la montaña y a la naturaleza es indiscutible. No les pagan nada.
+[Permalink](https://twitter.com/fernandeznorona/status/1644144751497867264) | 205 Me Gusta | 46 Retweets

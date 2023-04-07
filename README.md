@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 05:50:04
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 15:11:41
 *****
-Nieve y el cartel.
-[Permalink](https://twitter.com/fernandeznorona/status/1643974356702498816) | 88 Me Gusta | 13 Retweets
+RT @DOGDEGA: 🇷🇺🇮🇳 Rusia ganó la licitación para suministrar a la India 120 locomotoras eléctricas y 1920 vagones. Se trata del mayor contra…
+[Permalink](https://twitter.com/fernandeznorona/status/1644115690041888769) | 0 Me Gusta | 512 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 19:21:19
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 15:10:38
 *****
-Abrazote y gracias por lo que mí respecta.
-[Permalink](https://twitter.com/fernandeznorona/status/1643816123631116289) | 159 Me Gusta | 20 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1644115426236944385) | 204 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 17:58:39
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 15:10:26
 *****
-La Luna en Tepoztlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1643795322391482369) | 234 Me Gusta | 13 Retweets
+Toda mi solidaridad. Un abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1644115374852526080) | 17 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 17:03:50
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 15:09:07
 *****
-Miren qué belleza de Luna.
-[Permalink](https://twitter.com/fernandeznorona/status/1643781526910566407) | 87 Me Gusta | 9 Retweets
+¿Dónde es?
+[Permalink](https://twitter.com/fernandeznorona/status/1644115045847015424) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-04-2023 a las 17:03:11
+**Fernández Noroña** (**@fernandeznorona**) • 06-04-2023 a las 14:39:17
 *****
-La luna desde Tepoztlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1643781362695143424) | 128 Me Gusta | 19 Retweets
+RT @paz_jardines: 🚨🚨🚨🚨🚨 ALERTA!!
+Estan  talando arboles dentro del predio del gran san rafael que se ubica en calle HISTORIADORES Y MANUEL…
+[Permalink](https://twitter.com/fernandeznorona/status/1644107534859476992) | 0 Me Gusta | 134 Retweets

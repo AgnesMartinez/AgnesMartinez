@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2023 a las 19:36:12
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2023 a las 13:45:08
 *****
-¡Qué tipo más cobarde y miserable!
-[Permalink](https://twitter.com/fernandeznorona/status/1644544646339772419) | 402 Me Gusta | 182 Retweets
+RT @lajornadaonline: Murió 'El Cuate'; dio el yate para la revolución cubana.
+
+
+Antonio del Conde se encargó de comprar el #Granma, clave en…
+[Permalink](https://twitter.com/fernandeznorona/status/1644818685025198080) | 0 Me Gusta | 107 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2023 a las 19:08:46
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2023 a las 13:42:12
 *****
-RT @LaChiquisYareli: Imagínate comprar unos "fierros viejos" cuyos principales clientes serán OXXO, CEMEX, APASCO, Bayer, Cervecería Cuauht…
-[Permalink](https://twitter.com/fernandeznorona/status/1644537744129916928) | 0 Me Gusta | 1,316 Retweets
+Grave el tema 
+@GN_MEXICO_ @CNPC_MX.
+[Permalink](https://twitter.com/fernandeznorona/status/1644817945477144576) | 50 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2023 a las 15:09:32
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2023 a las 13:41:32
 *****
-@RAMD690529 @Macarena006 @LillyTellez Zas.
-[Permalink](https://twitter.com/fernandeznorona/status/1644477535936462848) | 3 Me Gusta | 0 Retweets
+RT @_MistWolf_: ¿Porque a nadie le importa que se este quemando el bosque de la primavera? Digo que le importe con poder de ayudar, algún d…
+[Permalink](https://twitter.com/fernandeznorona/status/1644817777977610240) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2023 a las 13:12:12
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2023 a las 13:41:14
 *****
-Así o más miserable esta cuenta.
-[Permalink](https://twitter.com/fernandeznorona/status/1644448011005890569) | 374 Me Gusta | 93 Retweets
+RT @rosendomarind: El próximo Viernes 14 de abril a las 18 hrs los esperamos en Libertad 145, Barrio San Lucas, Iztapalapa, CDMX a la prese…
+[Permalink](https://twitter.com/fernandeznorona/status/1644817702517874688) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-04-2023 a las 11:59:28
+**Fernández Noroña** (**@fernandeznorona**) • 08-04-2023 a las 13:39:37
 *****
-Ahí les hablan paniaguados.
-[Permalink](https://twitter.com/fernandeznorona/status/1644429704043065349) | 608 Me Gusta | 203 Retweets
+Ahora sí te pasaste.
+[Permalink](https://twitter.com/fernandeznorona/status/1644817297620746241) | 25 Me Gusta | 3 Retweets

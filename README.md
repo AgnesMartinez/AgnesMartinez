@@ -1,30 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2023 a las 19:04:37
+**Fernández Noroña** (**@fernandeznorona**) • 09-04-2023 a las 15:56:16
 *****
-RT @jibarra889: Que chulada…conduciendo hacia mi casa me encuentro con este compañero y su calcomanía de AMLO en su camioneta de trabajo…as…
-[Permalink](https://twitter.com/fernandeznorona/status/1644899086544302080) | 0 Me Gusta | 56 Retweets
+RT @HistoryToLearn: Helena Vlahos performing her Nine Quarters belly dance act, 1979.
+[Permalink](https://twitter.com/fernandeznorona/status/1645214074282622977) | 0 Me Gusta | 73 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2023 a las 17:13:28
+**Fernández Noroña** (**@fernandeznorona**) • 09-04-2023 a las 13:51:03
 *****
-Hoy en la montaña.
-[Permalink](https://twitter.com/fernandeznorona/status/1644871114290786304) | 1,010 Me Gusta | 84 Retweets
+Me hubiera gustado ir.
+[Permalink](https://twitter.com/fernandeznorona/status/1645182563173150720) | 28 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2023 a las 17:13:05
+**Fernández Noroña** (**@fernandeznorona**) • 09-04-2023 a las 13:06:29
 *****
-6382 en Facebook y, 6394 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1644871017314287618) | 166 Me Gusta | 26 Retweets
+333 es mayoría calificada.
+[Permalink](https://twitter.com/fernandeznorona/status/1645171347067228166) | 39 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2023 a las 13:45:08
+**Fernández Noroña** (**@fernandeznorona**) • 09-04-2023 a las 11:23:33
 *****
-RT @lajornadaonline: Murió 'El Cuate'; dio el yate para la revolución cubana.
-
-
-Antonio del Conde se encargó de comprar el #Granma, clave en…
-[Permalink](https://twitter.com/fernandeznorona/status/1644818685025198080) | 0 Me Gusta | 185 Retweets
+Y @FedericoArreola la revictimiza.
+[Permalink](https://twitter.com/fernandeznorona/status/1645145440982122499) | 45 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-04-2023 a las 13:42:12
+**Fernández Noroña** (**@fernandeznorona**) • 09-04-2023 a las 11:14:47
 *****
-Grave el tema 
-@GN_MEXICO_ @CNPC_MX.
-[Permalink](https://twitter.com/fernandeznorona/status/1644817945477144576) | 101 Me Gusta | 25 Retweets
+RT @rosendomarind: Una extraordinaria presentación de #NoroñaEsPuebloEnPuebla, con los medios de comunicación de la entidad 
+Gran participa…
+[Permalink](https://twitter.com/fernandeznorona/status/1645143237777145858) | 0 Me Gusta | 19 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 21:08:54
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 09:58:13
 *****
-RT @RocoAlbarrn2: 👍❤️
-[Permalink](https://twitter.com/fernandeznorona/status/1645655137103364100) | 0 Me Gusta | 9 Retweets
+Atención urgente @FiscaliaCDMX y @ErnestinaGodoy_.
+[Permalink](https://twitter.com/fernandeznorona/status/1645848744485703688) | 9 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 21:05:49
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 08:32:44
 *****
-RT @rosendomarind: Dip. Gerardo Fernández Noroña (@fernandeznorona) en la Plaza Cándido Mayo, Eje Central, entre Boturini y José T. Cuellar…
-[Permalink](https://twitter.com/fernandeznorona/status/1645654363140964352) | 0 Me Gusta | 33 Retweets
+A partir de mañana se puede registrar quien quiera integrarse a cualquiera de estas instituciones para el órgano interno de control. La ⁦@Mx_Diputados⁩ deberá elegirse por dos tercios.
+[Permalink](https://twitter.com/fernandeznorona/status/1645827232135360512) | 43 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 21:04:51
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 07:50:39
 *****
-Ya en el DF regresando de pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1645654120026570752) | 51 Me Gusta | 4 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1645816640376848385) | 13 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 17:10:53
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 07:40:54
 *****
-8191 en Facebook y, 8488 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1645595241066508289) | 89 Me Gusta | 15 Retweets
+Ahí te hablan cabeza hueca @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1645814186616946689) | 191 Me Gusta | 55 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 14:48:46
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 07:29:33
 *****
-Las dos opciones.
-[Permalink](https://twitter.com/fernandeznorona/status/1645559473715519488) | 29 Me Gusta | 1 Retweets
+Otro que confunde la plaza de Leandro Valle con estacionamiento ⁦@UCS_GCDMX⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1645811330757296129) | 75 Me Gusta | 16 Retweets

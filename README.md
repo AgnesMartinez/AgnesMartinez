@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 08:15:14
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 14:48:46
 *****
-104 años del asesinato del general Emiliano Zapata Salazar. Larga vida al general.
-[Permalink](https://twitter.com/fernandeznorona/status/1645460438132604929) | 143 Me Gusta | 38 Retweets
+Las dos opciones.
+[Permalink](https://twitter.com/fernandeznorona/status/1645559473715519488) | 17 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 08:07:07
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 13:44:06
 *****
-RT @julioastillero: Columna #Astillero: La Mañanera es un acto de legítima defensa política y mediática de un Presidente de la República qu…
-[Permalink](https://twitter.com/fernandeznorona/status/1645458396941008898) | 0 Me Gusta | 495 Retweets
+Buen camino.
+[Permalink](https://twitter.com/fernandeznorona/status/1645543203024805889) | 50 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 08:04:03
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 13:41:33
 *****
-“Y si no cobran, mejor”. No entendía lo que ustedes pusieron.
-[Permalink](https://twitter.com/fernandeznorona/status/1645457623486181376) | 36 Me Gusta | 3 Retweets
+RT @epigmenioibarra: Brincos dieran
+Cartón de @monerojerge
+[Permalink](https://twitter.com/fernandeznorona/status/1645542560717488128) | 0 Me Gusta | 381 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 07:52:06
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 13:39:16
 *****
-Defendiendo la reforma energética que entregó a las empresas extranjeras nuestra soberanía en la materia.
-[Permalink](https://twitter.com/fernandeznorona/status/1645454615897608192) | 288 Me Gusta | 151 Retweets
+¡Mira, qué cosas! Nos parecemosGeaue y yo; también me presento como doctor, el doctor Noroña. Literalmente, consta en actas del congreso mexicano.
+[Permalink](https://twitter.com/fernandeznorona/status/1645541983350579202) | 60 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-04-2023 a las 20:44:32
+**Fernández Noroña** (**@fernandeznorona**) • 10-04-2023 a las 13:36:21
 *****
-RT @alvaro_delgado: Hoy hace 18 años, el 7 de abril de 2005, una confabulación de Estado  le quitó el fuero a @lopezobrador_: El Poder Legi…
-[Permalink](https://twitter.com/fernandeznorona/status/1645286616703827968) | 0 Me Gusta | 3,527 Retweets
+RT @sevillacritico: Asombra ver la cantidad de malabares que la @UNAM_MX tuvo que hacer para, al final, tener que aceptar que Graue no es d…
+[Permalink](https://twitter.com/fernandeznorona/status/1645541252744777728) | 0 Me Gusta | 175 Retweets

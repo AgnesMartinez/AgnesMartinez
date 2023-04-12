@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 17:14:41
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 09:23:33
 *****
-5990 en Facebook y, 6 578 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1645958582872190978) | 103 Me Gusta | 17 Retweets
+Un abrazote solidario.
+[Permalink](https://twitter.com/fernandeznorona/status/1646202407725023235) | 30 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 15:12:29
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 09:15:06
 *****
-Ya solo le falta ganarme. Para cuando me incluyan, ¡vaya sorpresa que se llevarán!
-[Permalink](https://twitter.com/fernandeznorona/status/1645927833389203459) | 195 Me Gusta | 47 Retweets
+RT @jon_aleman7: Mientras la cúpula sigue haciendo política a la antigüita esto es, haciendo campaña entre ellos, entre la cúpula relegando…
+[Permalink](https://twitter.com/fernandeznorona/status/1646200281460293632) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 13:07:30
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 09:12:04
 *****
-Bellísimo.
-[Permalink](https://twitter.com/fernandeznorona/status/1645896379670347777) | 41 Me Gusta | 1 Retweets
+Mejor todavía. Es un proyecto unitario.
+[Permalink](https://twitter.com/fernandeznorona/status/1646199516800991233) | 74 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 11:54:52
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 09:11:18
 *****
-Hoy en ⁦@Mx_Diputados⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1645878097378410496) | 242 Me Gusta | 37 Retweets
+RT @aura_fdez: En defensa de la 4T: Unidad.
+Proyecto Johya.
+[Permalink](https://twitter.com/fernandeznorona/status/1646199324123054084) | 0 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 10:28:42
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 08:47:47
 *****
-Resistí y gané. No me vacuné y ya puedo viajar por el mundo y sus alrededores.
-[Permalink](https://twitter.com/fernandeznorona/status/1645856413183365124) | 455 Me Gusta | 72 Retweets
+¿Dónde es eso? Estoy muy agradecido.
+[Permalink](https://twitter.com/fernandeznorona/status/1646193407230984195) | 224 Me Gusta | 41 Retweets

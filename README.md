@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 09:58:13
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 15:12:29
 *****
-Atención urgente @FiscaliaCDMX y @ErnestinaGodoy_.
-[Permalink](https://twitter.com/fernandeznorona/status/1645848744485703688) | 9 Me Gusta | 4 Retweets
+Ya solo le falta ganarme. Para cuando me incluyan, ¡vaya sorpresa que se llevarán!
+[Permalink](https://twitter.com/fernandeznorona/status/1645927833389203459) | 80 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 08:32:44
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 13:07:30
 *****
-A partir de mañana se puede registrar quien quiera integrarse a cualquiera de estas instituciones para el órgano interno de control. La ⁦@Mx_Diputados⁩ deberá elegirse por dos tercios.
-[Permalink](https://twitter.com/fernandeznorona/status/1645827232135360512) | 43 Me Gusta | 11 Retweets
+Bellísimo.
+[Permalink](https://twitter.com/fernandeznorona/status/1645896379670347777) | 27 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 07:50:39
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 11:54:52
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1645816640376848385) | 13 Me Gusta | 1 Retweets
+Hoy en ⁦@Mx_Diputados⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1645878097378410496) | 170 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 07:40:54
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 10:28:42
 *****
-Ahí te hablan cabeza hueca @VicenteFoxQue.
-[Permalink](https://twitter.com/fernandeznorona/status/1645814186616946689) | 191 Me Gusta | 55 Retweets
+Resistí y gané. No me vacuné y ya puedo viajar por el mundo y sus alrededores.
+[Permalink](https://twitter.com/fernandeznorona/status/1645856413183365124) | 327 Me Gusta | 50 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 07:29:33
+**Fernández Noroña** (**@fernandeznorona**) • 11-04-2023 a las 10:27:29
 *****
-Otro que confunde la plaza de Leandro Valle con estacionamiento ⁦@UCS_GCDMX⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1645811330757296129) | 75 Me Gusta | 16 Retweets
+RT @Breaking_4_News: #BREAKING: President Biden signs bill terminating national emergency related to the COVID-19 pandemic. -White House #B…
+[Permalink](https://twitter.com/fernandeznorona/status/1645856110119735314) | 0 Me Gusta | 17 Retweets

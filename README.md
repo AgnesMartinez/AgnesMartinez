@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 13:58:46
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 21:15:20
 *****
-Y mucho menos para pedir requisitos superiores a una identificación oficial para entregarte tu dinero. Es evidente que hacen todo lo posible por quedarse con el dinero de la gente. En este caso no podrán, pero en cuantos casos no acabarán saliéndose con la suya.
-[Permalink](https://twitter.com/fernandeznorona/status/1646271667700744194) | 88 Me Gusta | 31 Retweets
+Muchas felicidades @1jonatan2 en tu cumpleaños.
+[Permalink](https://twitter.com/fernandeznorona/status/1646381531815088129) | 25 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 13:58:46
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 21:06:38
 *****
-No quieren entregarle el saldo de su cuenta, se identifica con la credencial de elector y le exigen una segunda identificación para entregarle su dinero. @HSBC_MX no tiene facultades para cancelar una cuenta sin autorización de su titular y mucho menos, para pedir requisitos…
-[Permalink](https://twitter.com/fernandeznorona/status/1646271666190708738) | 102 Me Gusta | 33 Retweets
+RT @cuauhpeluche: Muy creativos...😂🤣😏😌😎
+[Permalink](https://twitter.com/fernandeznorona/status/1646379343030124545) | 0 Me Gusta | 85 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 13:58:45
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 21:04:14
 *****
-Los abusos de los bancos son permanentes. @HSBC_MX canceló de manera unilateral una cuenta bancaria de @Ascension528Hz. La cuenta fue abierta en la colonia Roma y la hicieron ir a una sucursal en Santa Lucía en la alcaldía Álvaro Obregón. Ya estando ahí, no quieren entregarle…
-[Permalink](https://twitter.com/fernandeznorona/status/1646271664706170880) | 208 Me Gusta | 83 Retweets
+@ndurancoronado Transa.
+[Permalink](https://twitter.com/fernandeznorona/status/1646378741617270784) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 12:34:04
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 21:01:28
 *****
-RT @HernanGomezB: En un operativo del gobierno de la ciudad, acaban de derribar el muro que intentaba poner @SandraCuevas_ en la plaza Gior…
-[Permalink](https://twitter.com/fernandeznorona/status/1646250354361659393) | 0 Me Gusta | 554 Retweets
+Mientes el decir qué es una propuesta regresiva. Estás obligado a demostrar tu dicho. Todo lo que dices es falso. Respeto entre poderes y que el @TEPJF_informa resuelva lo que es de su competencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1646378043253075972) | 26 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 12:32:44
+**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 20:59:11
 *****
-Toda mi solidaridad con @HernanGomezB frente a la agresión de que fue objeto por personal de la @AlcCuauhtemocMx que encabeza @SandraCuevas_.
-[Permalink](https://twitter.com/fernandeznorona/status/1646250015898181636) | 329 Me Gusta | 142 Retweets
+Mira, me volvió a excluir @sdpnoticias. Después de qué en su última encuesta sostuvo que estaba casi empatado con @m_ebrard. Curioso.
+[Permalink](https://twitter.com/fernandeznorona/status/1646377470420226050) | 70 Me Gusta | 17 Retweets

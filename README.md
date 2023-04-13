@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 09:36:25
+*****
+RT @HernanGomezB: La autoridad debe investigar lo ocurrido ayer en la plaza Giordano Bruno, donde al menos tres trabajadores de servicios u…
+[Permalink](https://twitter.com/fernandeznorona/status/1646568033761087488) | 0 Me Gusta | 366 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 07:53:48
+*****
+Ayer mandé dos video columnas a @sdpnoticias”Algo huele mal en Dinamarca”. Hoy, acabo de enviar una nueva: “Respeto a la división de poderes”.
+[Permalink](https://twitter.com/fernandeznorona/status/1646542210119106560) | 44 Me Gusta | 18 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 07:35:26
+*****
+RT @AndreaChavezTre: Hace un año me inventaron un rancho con caballos, ahora salieron con que una camioneta blindada, que formaba parte del…
+[Permalink](https://twitter.com/fernandeznorona/status/1646537587841019904) | 0 Me Gusta | 399 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 07:17:43
+*****
+RT @Beatriz84981597: Lo dice el diputado  @ReginaldoSF_PT, pero lo sabe México el que mejor lleva los valores y la coherencia política por…
+[Permalink](https://twitter.com/fernandeznorona/status/1646533129312632832) | 0 Me Gusta | 29 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 21:15:20
 *****
 Muchas felicidades @1jonatan2 en tu cumpleaños.
-[Permalink](https://twitter.com/fernandeznorona/status/1646381531815088129) | 37 Me Gusta | 11 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 21:06:38
-*****
-RT @cuauhpeluche: Muy creativos...😂🤣😏😌😎
-[Permalink](https://twitter.com/fernandeznorona/status/1646379343030124545) | 0 Me Gusta | 93 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 21:04:14
-*****
-@ndurancoronado Transa.
-[Permalink](https://twitter.com/fernandeznorona/status/1646378741617270784) | 34 Me Gusta | 0 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 21:01:28
-*****
-Mientes el decir qué es una propuesta regresiva. Estás obligado a demostrar tu dicho. Todo lo que dices es falso. Respeto entre poderes y que el @TEPJF_informa resuelva lo que es de su competencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1646378043253075972) | 48 Me Gusta | 18 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 20:59:11
-*****
-Mira, me volvió a excluir @sdpnoticias. Después de qué en su última encuesta sostuvo que estaba casi empatado con @m_ebrard. Curioso.
-[Permalink](https://twitter.com/fernandeznorona/status/1646377470420226050) | 110 Me Gusta | 23 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1646381531815088129) | 47 Me Gusta | 17 Retweets

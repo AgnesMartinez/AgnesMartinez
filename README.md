@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 09:36:25
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 19:40:57
 *****
-RT @HernanGomezB: La autoridad debe investigar lo ocurrido ayer en la plaza Giordano Bruno, donde al menos tres trabajadores de servicios u…
-[Permalink](https://twitter.com/fernandeznorona/status/1646568033761087488) | 0 Me Gusta | 1,090 Retweets
+Muy grave que @SantiagoCreelM defienda al Poder Judicial frente a la majadera intromisión del @TEPJF_informa y que, reproduzca el discurso mentiroso contra la @Mx_Diputados que él preside. Su partido @AccionNacional redactó la iniciativa y su líder parlamentario firmó la misma.
+[Permalink](https://twitter.com/fernandeznorona/status/1646720168876441606) | 87 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 07:53:48
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 19:36:57
 *****
-Ayer mandé dos video columnas a @sdpnoticias”Algo huele mal en Dinamarca”. Hoy, acabo de enviar una nueva: “Respeto a la división de poderes”.
-[Permalink](https://twitter.com/fernandeznorona/status/1646542210119106560) | 68 Me Gusta | 22 Retweets
+Espero las críticas puntuales a la iniciativa redactada por @AccionNacional. Plantear respeto a la división de poderes no es una ley a modo. ¿Es mucho pedir que el @TEPJF_informa intervenga en su materia y la @SCJN ejerza el control constitucional?
+[Permalink](https://twitter.com/fernandeznorona/status/1646719162796986368) | 62 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 07:35:26
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 19:05:11
 *****
-RT @AndreaChavezTre: Hace un año me inventaron un rancho con caballos, ahora salieron con que una camioneta blindada, que formaba parte del…
-[Permalink](https://twitter.com/fernandeznorona/status/1646537587841019904) | 0 Me Gusta | 781 Retweets
+Pues es igualito a su padre.
+[Permalink](https://twitter.com/fernandeznorona/status/1646711169867218945) | 56 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 07:17:43
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 18:55:42
 *****
-RT @Beatriz84981597: Lo dice el diputado  @ReginaldoSF_PT, pero lo sabe México el que mejor lleva los valores y la coherencia política por…
-[Permalink](https://twitter.com/fernandeznorona/status/1646533129312632832) | 0 Me Gusta | 38 Retweets
+RT @FonsiLoaiza: Hoy Pablo Hasel cumple 26 meses en prisión por rapear que los Borbones son unos ladrones. Mientras, Juan Carlos I está en…
+[Permalink](https://twitter.com/fernandeznorona/status/1646708779608686592) | 0 Me Gusta | 2,168 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-04-2023 a las 21:15:20
+**Fernández Noroña** (**@fernandeznorona**) • 13-04-2023 a las 18:51:58
 *****
-Muchas felicidades @1jonatan2 en tu cumpleaños.
-[Permalink](https://twitter.com/fernandeznorona/status/1646381531815088129) | 49 Me Gusta | 17 Retweets
+RT @FonsiLoaiza: Hoy, el periodista vasco Pablo González cumple 410 días secuestrado en Polonia con la complicidad del gobierno de España y…
+[Permalink](https://twitter.com/fernandeznorona/status/1646707843062542339) | 0 Me Gusta | 1,593 Retweets

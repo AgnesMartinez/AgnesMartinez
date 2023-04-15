@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2023 a las 18:38:35
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 09:07:03
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1647066860439973890) | 34 Me Gusta | 2 Retweets
+RT @RelatocuriosoK: - En 1996, una niña recién nacida fue dejada en un bote de basura cerca de la ciudad de Kolkata, en India. Tres perros…
+[Permalink](https://twitter.com/fernandeznorona/status/1647285419896078337) | 0 Me Gusta | 2,182 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2023 a las 18:38:28
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 08:50:22
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1647066831088132096) | 26 Me Gusta | 2 Retweets
+¡Ta cabrón! “Clase media”, es decir, desclasado.
+[Permalink](https://twitter.com/fernandeznorona/status/1647281219929767941) | 23 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2023 a las 18:34:57
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 08:33:50
 *****
-Lo terminé. De lo mejor que he leído en la vida. Quizás lo mejor que haya escrito Philip Roth. Un libro muy fuerte. Muy poderoso, profundamente provocador. Bello. Con todo, un canto al amor y a la vida. Trágico.
-[Permalink](https://twitter.com/fernandeznorona/status/1647065946215833600) | 132 Me Gusta | 28 Retweets
+No se entiende nada de lo que dices.
+[Permalink](https://twitter.com/fernandeznorona/status/1647277060258402304) | 19 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2023 a las 17:11:44
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 08:31:27
 *****
-7653 en Facebook y, 7479 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1647045006232805379) | 95 Me Gusta | 14 Retweets
+Eso sería más preciso.
+[Permalink](https://twitter.com/fernandeznorona/status/1647276459998715905) | 16 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-04-2023 a las 15:06:56
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 08:22:02
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1647013599703883778) | 21 Me Gusta | 1 Retweets
+Es incorrecto decir que MORENA no me apoya. Seré candidato de los tres partidos y, hay compañeros de MORENA y compañeras que me apoyan. Ese mensaje parece hecho como si fuera a ser candidato del PT.
+[Permalink](https://twitter.com/fernandeznorona/status/1647274087989796864) | 87 Me Gusta | 15 Retweets

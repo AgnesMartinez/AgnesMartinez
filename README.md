@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 19:40:56
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 09:21:42
 *****
-¡Qué chingón! Muy agradecido.
-[Permalink](https://twitter.com/fernandeznorona/status/1647444941130301440) | 148 Me Gusta | 33 Retweets
+“Alamán ¿Y qué hizo?.,, mandó matar a Guerrero, mandó matar al presidente. Él y otros como él. Como si fueran basura. No era que le molestaran sus ideas: era que le molestaba ser mandado por la chusma. Eso es lo que son”.  Eso es la derecha, no se nos olvide.
+[Permalink](https://twitter.com/fernandeznorona/status/1647651494433267712) | 40 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 19:40:37
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 09:11:33
 *****
-RT @BenavidesRomie:
-[Permalink](https://twitter.com/fernandeznorona/status/1647444860654190595) | 0 Me Gusta | 13 Retweets
+Xacto. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1647648939632476163) | 9 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 19:35:21
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 09:10:18
 *****
-Al que rompa por pura ambición, se lo chupará la bruja, políticamente hablando. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1647443533425676290) | 63 Me Gusta | 10 Retweets
+¡Naa, es falso! ¿No? Es por mi casa, por cierto.
+[Permalink](https://twitter.com/fernandeznorona/status/1647648626204721153) | 11 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 17:08:22
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 09:07:36
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1647406545200611330) | 33 Me Gusta | 3 Retweets
+RT @fernandeznorona: Ahí el #TomandanteBorolas alias @FelipeCalderon, cuando era bebé.
+[Permalink](https://twitter.com/fernandeznorona/status/1647647945074851842) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 17:05:02
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 09:05:13
 *****
-La gira del próximo fin de semana en Guerrero.
-[Permalink](https://twitter.com/fernandeznorona/status/1647405705031294994) | 85 Me Gusta | 30 Retweets
+No se sumen a las descalificaciones sobre cosas superfluas. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1647647345054568451) | 24 Me Gusta | 4 Retweets

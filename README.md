@@ -1,30 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 15:13:41
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 19:40:56
 *****
-\#oila.
-[Permalink](https://twitter.com/fernandeznorona/status/1647377685318860800) | 37 Me Gusta | 8 Retweets
+¡Qué chingón! Muy agradecido.
+[Permalink](https://twitter.com/fernandeznorona/status/1647444941130301440) | 117 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 14:10:59
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 19:40:37
 *****
-RT @KurtHackbarth: Otra bonita dosis de libertad a la francesa. ¡Así se llega a las grandes ligas de democracias según las calificadoras in…
-[Permalink](https://twitter.com/fernandeznorona/status/1647361905508380680) | 0 Me Gusta | 420 Retweets
+RT @BenavidesRomie:
+[Permalink](https://twitter.com/fernandeznorona/status/1647444860654190595) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 14:07:27
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 19:35:21
 *****
-@AirSuplyy Transas.
-[Permalink](https://twitter.com/fernandeznorona/status/1647361018513727489) | 8 Me Gusta | 1 Retweets
+Al que rompa por pura ambición, se lo chupará la bruja, políticamente hablando. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1647443533425676290) | 49 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 14:06:16
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 17:08:22
 *****
-RT @epigmenioibarra: Que la alcaldesa de la Cuauhtémoc va a mandar a Francia a su grupo de golpeadores a cursar una maestría.
-Por favor con…
-[Permalink](https://twitter.com/fernandeznorona/status/1647360718944051202) | 0 Me Gusta | 547 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1647406545200611330) | 30 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 13:59:45
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 17:05:02
 *****
-RT @LetyVarela: Sucedió ahora en Guadalajara…. 
-
-
-Mal por todos lados esta señora. Increíble cómo intenta justificar que abandonó a sus dos…
-[Permalink](https://twitter.com/fernandeznorona/status/1647359077540941826) | 0 Me Gusta | 474 Retweets
+La gira del próximo fin de semana en Guerrero.
+[Permalink](https://twitter.com/fernandeznorona/status/1647405705031294994) | 74 Me Gusta | 26 Retweets

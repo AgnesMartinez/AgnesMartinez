@@ -1,26 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 09:07:03
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 15:13:41
 *****
-RT @RelatocuriosoK: - En 1996, una niña recién nacida fue dejada en un bote de basura cerca de la ciudad de Kolkata, en India. Tres perros…
-[Permalink](https://twitter.com/fernandeznorona/status/1647285419896078337) | 0 Me Gusta | 2,182 Retweets
+\#oila.
+[Permalink](https://twitter.com/fernandeznorona/status/1647377685318860800) | 37 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 08:50:22
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 14:10:59
 *****
-¡Ta cabrón! “Clase media”, es decir, desclasado.
-[Permalink](https://twitter.com/fernandeznorona/status/1647281219929767941) | 23 Me Gusta | 4 Retweets
+RT @KurtHackbarth: Otra bonita dosis de libertad a la francesa. ¡Así se llega a las grandes ligas de democracias según las calificadoras in…
+[Permalink](https://twitter.com/fernandeznorona/status/1647361905508380680) | 0 Me Gusta | 420 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 08:33:50
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 14:07:27
 *****
-No se entiende nada de lo que dices.
-[Permalink](https://twitter.com/fernandeznorona/status/1647277060258402304) | 19 Me Gusta | 3 Retweets
+@AirSuplyy Transas.
+[Permalink](https://twitter.com/fernandeznorona/status/1647361018513727489) | 8 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 08:31:27
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 14:06:16
 *****
-Eso sería más preciso.
-[Permalink](https://twitter.com/fernandeznorona/status/1647276459998715905) | 16 Me Gusta | 2 Retweets
+RT @epigmenioibarra: Que la alcaldesa de la Cuauhtémoc va a mandar a Francia a su grupo de golpeadores a cursar una maestría.
+Por favor con…
+[Permalink](https://twitter.com/fernandeznorona/status/1647360718944051202) | 0 Me Gusta | 547 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 08:22:02
+**Fernández Noroña** (**@fernandeznorona**) • 15-04-2023 a las 13:59:45
 *****
-Es incorrecto decir que MORENA no me apoya. Seré candidato de los tres partidos y, hay compañeros de MORENA y compañeras que me apoyan. Ese mensaje parece hecho como si fuera a ser candidato del PT.
-[Permalink](https://twitter.com/fernandeznorona/status/1647274087989796864) | 87 Me Gusta | 15 Retweets
+RT @LetyVarela: Sucedió ahora en Guadalajara…. 
+
+
+Mal por todos lados esta señora. Increíble cómo intenta justificar que abandonó a sus dos…
+[Permalink](https://twitter.com/fernandeznorona/status/1647359077540941826) | 0 Me Gusta | 474 Retweets

@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 20:40:28
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 09:05:37
 *****
-Pues le agradezco la alusión, pero yo no tengo problema en que sigan en su cargo. Lo único que pido es que respeten el resultado. Ya ni de la cargada me quejo.
-[Permalink](https://twitter.com/fernandeznorona/status/1647822308587732992) | 117 Me Gusta | 27 Retweets
+¡Quisieran!
+[Permalink](https://twitter.com/fernandeznorona/status/1648009833377832972) | 31 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 20:27:38
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 09:05:15
 *****
-Súper profesional. Gracias por difundir sabiendo tus simpatías. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1647819082660474883) | 104 Me Gusta | 24 Retweets
+RT @epigmenioibarra: A estas alturas…
+Cartón de @monerohernandez
+[Permalink](https://twitter.com/fernandeznorona/status/1648009740469805083) | 0 Me Gusta | 599 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 20:00:17
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 09:03:44
 *****
-RT @HNoticiasMX: #AMLO: "Hay relevo generacional, cualquiera de los que están hombres o mujeres, cualquiera es una garantía de que va haber…
-[Permalink](https://twitter.com/fernandeznorona/status/1647812197848952834) | 0 Me Gusta | 37 Retweets
+RT @RoiLopezRivas: Este niño de 16 años se llama Ralph Yarl y recibió 2 disparos en la cabeza por tocar el timbre de una casa equivocada mi…
+[Permalink](https://twitter.com/fernandeznorona/status/1648009358368710658) | 0 Me Gusta | 970 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 19:54:18
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 09:02:49
 *****
-No es correcto criticar por la apariencia y mucho menos a una compañera que sufre acoso permanente por su físico. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1647810692584538117) | 87 Me Gusta | 13 Retweets
+@AleCamph Dizque.
+[Permalink](https://twitter.com/fernandeznorona/status/1648009127233200128) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 19:53:29
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 08:57:17
 *****
-Ya se corrigió.
-[Permalink](https://twitter.com/fernandeznorona/status/1647810488250638337) | 25 Me Gusta | 3 Retweets
+RT @abrahamendieta: Algunos medios y personajes opositores como Álvarez Icaza, se indignan porque el Gobierno Federal restauró en Tepetitán…
+[Permalink](https://twitter.com/fernandeznorona/status/1648007737370918913) | 0 Me Gusta | 841 Retweets

@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 09:21:42
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 15:43:19
 *****
-“Alamán ¿Y qué hizo?.,, mandó matar a Guerrero, mandó matar al presidente. Él y otros como él. Como si fueran basura. No era que le molestaran sus ideas: era que le molestaba ser mandado por la chusma. Eso es lo que son”.  Eso es la derecha, no se nos olvide.
-[Permalink](https://twitter.com/fernandeznorona/status/1647651494433267712) | 40 Me Gusta | 10 Retweets
+“… lo hacen para proteger a sus manos de un mundo en el que no sabrían sobrevivir”.
+[Permalink](https://twitter.com/fernandeznorona/status/1647747528601812993) | 13 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 09:11:33
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 15:43:17
 *****
-Xacto. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1647648939632476163) | 9 Me Gusta | 0 Retweets
+“Pero ya no son tiempos de látigos. Y aquí también lo saben, por eso los dueños de las plantaciones dicen que mantienen el sistema no por negocio, sino porque las plantaciones son como una gran familia, que lo hacen para proteger a sus manos…”
+[Permalink](https://twitter.com/fernandeznorona/status/1647747521102467072) | 28 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 09:10:18
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 15:30:15
 *****
-¡Naa, es falso! ¿No? Es por mi casa, por cierto.
-[Permalink](https://twitter.com/fernandeznorona/status/1647648626204721153) | 11 Me Gusta | 0 Retweets
+Ya se tardaron.
+[Permalink](https://twitter.com/fernandeznorona/status/1647744242280701952) | 22 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 09:07:36
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 15:24:57
 *****
-RT @fernandeznorona: Ahí el #TomandanteBorolas alias @FelipeCalderon, cuando era bebé.
-[Permalink](https://twitter.com/fernandeznorona/status/1647647945074851842) | 0 Me Gusta | 18 Retweets
+RT @SinLinea_Mx: ¡Ya falta poco! ‼️
+
+
+Un puente grande y 12 km de pavimento para terminar la carretera Oaxaca-Puerto Escondido. 
+
+
+👉🏻En lugar…
+[Permalink](https://twitter.com/fernandeznorona/status/1647742907011551236) | 0 Me Gusta | 188 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 09:05:13
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 15:22:03
 *****
-No se sumen a las descalificaciones sobre cosas superfluas. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1647647345054568451) | 24 Me Gusta | 4 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1647742177907179521) | 20 Me Gusta | 2 Retweets

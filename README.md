@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 15:43:19
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 20:40:28
 *****
-“… lo hacen para proteger a sus manos de un mundo en el que no sabrían sobrevivir”.
-[Permalink](https://twitter.com/fernandeznorona/status/1647747528601812993) | 13 Me Gusta | 5 Retweets
+Pues le agradezco la alusión, pero yo no tengo problema en que sigan en su cargo. Lo único que pido es que respeten el resultado. Ya ni de la cargada me quejo.
+[Permalink](https://twitter.com/fernandeznorona/status/1647822308587732992) | 81 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 15:43:17
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 20:27:38
 *****
-“Pero ya no son tiempos de látigos. Y aquí también lo saben, por eso los dueños de las plantaciones dicen que mantienen el sistema no por negocio, sino porque las plantaciones son como una gran familia, que lo hacen para proteger a sus manos…”
-[Permalink](https://twitter.com/fernandeznorona/status/1647747521102467072) | 28 Me Gusta | 7 Retweets
+Súper profesional. Gracias por difundir sabiendo tus simpatías. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1647819082660474883) | 74 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 15:30:15
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 20:00:17
 *****
-Ya se tardaron.
-[Permalink](https://twitter.com/fernandeznorona/status/1647744242280701952) | 22 Me Gusta | 3 Retweets
+RT @HNoticiasMX: #AMLO: "Hay relevo generacional, cualquiera de los que están hombres o mujeres, cualquiera es una garantía de que va haber…
+[Permalink](https://twitter.com/fernandeznorona/status/1647812197848952834) | 0 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 15:24:57
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 19:54:18
 *****
-RT @SinLinea_Mx: ¡Ya falta poco! ‼️
-
-
-Un puente grande y 12 km de pavimento para terminar la carretera Oaxaca-Puerto Escondido. 
-
-
-👉🏻En lugar…
-[Permalink](https://twitter.com/fernandeznorona/status/1647742907011551236) | 0 Me Gusta | 188 Retweets
+No es correcto criticar por la apariencia y mucho menos a una compañera que sufre acoso permanente por su físico. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1647810692584538117) | 69 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 15:22:03
+**Fernández Noroña** (**@fernandeznorona**) • 16-04-2023 a las 19:53:29
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1647742177907179521) | 20 Me Gusta | 2 Retweets
+Ya se corrigió.
+[Permalink](https://twitter.com/fernandeznorona/status/1647810488250638337) | 19 Me Gusta | 3 Retweets

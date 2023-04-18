@@ -1,27 +1,30 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 15:33:47
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 19:48:42
 *****
-Pinto, no pinto. @Pintor que pintas Iglesias, píntame angelitos negros…”jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1648107517061332992) | 71 Me Gusta | 19 Retweets
+No te vi entre los candidatos de la derecha, señorito X @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1648171670106955776) | 51 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 15:26:52
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 19:47:20
 *****
-El Ayuntamiento de Huixquilucan bloqueando que acuda a apoyar a ⁦@delfinagomeza⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1648105778996207616) | 43 Me Gusta | 25 Retweets
+RT @Inconforme75: ¡Les superamos en número! […] ¡Y sobre todo nunca nos detendremos!”, gritan los manifestantes a los policías que los rode…
+[Permalink](https://twitter.com/fernandeznorona/status/1648171328099213312) | 0 Me Gusta | 235 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 12:39:41
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 19:42:54
 *****
-¿Te gustó el artículo #TomandanteBorolas alias @FelipeCalderon? Te reto a que regreses al país. Veremos quién es el delirante.
-[Permalink](https://twitter.com/fernandeznorona/status/1648063706411208704) | 191 Me Gusta | 57 Retweets
+RT @FernandoCruzFr7: ‼️ABUSO POLICIAL #CUAUTITLAN #EDOMEX‼️
+
+
+Policías de Cuautitlán México detuvieron y golpearon a dos peligrosos albañile…
+[Permalink](https://twitter.com/fernandeznorona/status/1648170211508633600) | 0 Me Gusta | 780 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 09:05:37
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 19:39:58
 *****
-¡Quisieran!
-[Permalink](https://twitter.com/fernandeznorona/status/1648009833377832972) | 70 Me Gusta | 7 Retweets
+Aquí la reiteré @EdySmol. Están intrigando. Saludos.
+[Permalink](https://twitter.com/fernandeznorona/status/1648169470849093632) | 35 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 09:05:15
+**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 19:38:21
 *****
-RT @epigmenioibarra: A estas alturas…
-Cartón de @monerohernandez
-[Permalink](https://twitter.com/fernandeznorona/status/1648009740469805083) | 0 Me Gusta | 958 Retweets
+RT @carolina_rocha_: Yo soy el bueno insiste Noroña. De los otros dice:
+Monreal está en el hoyo, Adán hermano, Marcelo eficacia y Claudia c…
+[Permalink](https://twitter.com/fernandeznorona/status/1648169067969388544) | 0 Me Gusta | 19 Retweets

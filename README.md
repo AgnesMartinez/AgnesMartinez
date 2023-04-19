@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2023 a las 11:47:00
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2023 a las 21:32:29
 *****
-La ofensiva que los conservadores realizan desde el poder judicial continúa. La determinación de declarar inconstitucional que la @GN_MEXICO_ pertenezca administrativamente a la @SEDENAmx va encaminada a lograr el desmantelamiento de la Guardia Nacional. No lo conseguirán.
-[Permalink](https://twitter.com/fernandeznorona/status/1648412833036550145) | 259 Me Gusta | 106 Retweets
+RT @Sanx415: Cargado  de libros que me regaló @fernandeznorona. Gran trabajo del equipo en el @CE_MXdiputados
+[Permalink](https://twitter.com/fernandeznorona/status/1648560177950408705) | 0 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2023 a las 11:18:08
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2023 a las 21:30:29
 *****
-Lo terminé. Es un libro singular. Buen libro. Saqué una joya de él, la reflexión de Ocampo sobre lo que es la derecha. Asesinos, esos son y no cambiarán. Es lo que son y es así, porque son racistas y clasistas. ¡Qué fuerte!
-[Permalink](https://twitter.com/fernandeznorona/status/1648405571333136386) | 95 Me Gusta | 33 Retweets
+Y sí.
+[Permalink](https://twitter.com/fernandeznorona/status/1648559674738851847) | 10 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-04-2023 a las 09:25:40
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2023 a las 21:23:22
 *****
-Agenda de la semana.
-[Permalink](https://twitter.com/fernandeznorona/status/1648377267091914754) | 58 Me Gusta | 17 Retweets
+RT @Luna_Tagg: 🔥 Ardan sectarios 🔥
+[Permalink](https://twitter.com/fernandeznorona/status/1648557880134578177) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 19:48:42
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2023 a las 21:23:08
 *****
-No te vi entre los candidatos de la derecha, señorito X @ClaudioXGG.
-[Permalink](https://twitter.com/fernandeznorona/status/1648171670106955776) | 92 Me Gusta | 12 Retweets
+Lo comenté en el pleno de @Mx_Diputados. Lo hago por este medio también, lamentando el fallecimiento de don Pablo González Casanova, quien murió hoy a los 101 años de edad. La Cámara quería hacerle un homenaje en vida y ya no fue posible. Mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1648557824610369536) | 61 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-04-2023 a las 19:47:20
+**Fernández Noroña** (**@fernandeznorona**) • 18-04-2023 a las 21:21:07
 *****
-RT @Inconforme75: ¡Les superamos en número! […] ¡Y sobre todo nunca nos detendremos!”, gritan los manifestantes a los policías que los rode…
-[Permalink](https://twitter.com/fernandeznorona/status/1648171328099213312) | 0 Me Gusta | 414 Retweets
+RT @SinLinea_Mx: AMLO revela que Claudio X. González recibe dinero de EU.
+
+
+Lo del pentágono y lo que hizo la SCJN no es casualidad.
+
+
+💥La ol…
+[Permalink](https://twitter.com/fernandeznorona/status/1648557315275083776) | 0 Me Gusta | 502 Retweets

@@ -1,27 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2023 a las 14:14:29
+**Fernández Noroña** (**@fernandeznorona**) • 20-04-2023 a las 20:58:45
 *****
-Con mi madre, en su cumpleaños, el 30 de marzo del 2017.
-[Permalink](https://twitter.com/fernandeznorona/status/1649174726516809731) | 293 Me Gusta | 27 Retweets
+Acabamos de aterrizar en Acapulco.
+[Permalink](https://twitter.com/fernandeznorona/status/1649276461356834816) | 43 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2023 a las 13:44:45
+**Fernández Noroña** (**@fernandeznorona**) • 20-04-2023 a las 20:14:05
 *****
-RT @LaListanews: AMLO enlistó a los personas que apoyó y que ahora considera un "error", como a los senadores @LillyTellez y Germán Martíne…
-[Permalink](https://twitter.com/fernandeznorona/status/1649167244906094593) | 0 Me Gusta | 126 Retweets
+No fue mensaje al Congreso de la Unión. Fue el mensaje a un puñado de legisladores paniaguados, lambiscones del fascismo. Recuerdo que al Congreso de la Unión la forma @Mx_Diputados y @senadomexicano. Ahí no había más que un puñado de irresponsables paniaguados
+[Permalink](https://twitter.com/fernandeznorona/status/1649265222761291776) | 202 Me Gusta | 95 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2023 a las 11:22:39
+**Fernández Noroña** (**@fernandeznorona**) • 20-04-2023 a las 20:08:13
 *****
-No lee ni las etiquetas de lo que se come tu compañera senadora; llegó en los hombros de un gigante al @senadomexicano y hoy, con absoluta ingratitud, lo injuria y abjura de él. Qué ser humano tan deleznable es. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1649131484639379456) | 621 Me Gusta | 174 Retweets
+RT @AndreaChavezTre: Duro golpe contra los PANistas corruptos en la Ciudad de México.
+
+
+Detienen al Coordinador de la bancada del PAN del Co…
+[Permalink](https://twitter.com/fernandeznorona/status/1649263747171532800) | 0 Me Gusta | 2,402 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2023 a las 11:19:57
+**Fernández Noroña** (**@fernandeznorona**) • 20-04-2023 a las 19:58:49
 *****
-RT @Sanx415: Próximo martes 25 a partir de las 11hrs, la Sociedad Geológica Mex. hará una sesión especial a María Fernanda Campa. Están inv…
-[Permalink](https://twitter.com/fernandeznorona/status/1649130802381303813) | 0 Me Gusta | 23 Retweets
+Tráguese sus palabras. Se vendió el avión en más de 1600 millones de pesos. #paqueseduquen.
+[Permalink](https://twitter.com/fernandeznorona/status/1649261380980154368) | 139 Me Gusta | 38 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-04-2023 a las 08:36:30
+**Fernández Noroña** (**@fernandeznorona**) • 20-04-2023 a las 19:52:11
 *****
-RT @KyleSkynet: Vaya, a esta Jr Salinas es especialista en acatar y obedecer.
-Es notorio, obedece a sus intereses, obedece a el asesino de…
-[Permalink](https://twitter.com/fernandeznorona/status/1649089667566911489) | 0 Me Gusta | 9 Retweets
+No se puede depreciar, lo que ningún valor tiene.
+[Permalink](https://twitter.com/fernandeznorona/status/1649259709034004480) | 161 Me Gusta | 51 Retweets

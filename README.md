@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 10:03:30
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 15:52:56
 *****
-Desayuné en Las Vigas, Guerrero.
-[Permalink](https://twitter.com/fernandeznorona/status/1649473950936870912) | 36 Me Gusta | 6 Retweets
+Así vamos.
+[Permalink](https://twitter.com/fernandeznorona/status/1649561888697745409) | 61 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 09:16:19
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 15:52:31
 *****
-RT @LetyVarela: Me reuní con vecin@s #BenitoJuárez para hablar sobre la detención de Christian Von Roehrich
-
-
-Coinciden en que el ex delegad…
-[Permalink](https://twitter.com/fernandeznorona/status/1649462078573539328) | 0 Me Gusta | 27 Retweets
+Caminamos a la plaza pública.
+[Permalink](https://twitter.com/fernandeznorona/status/1649561785861836800) | 53 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 09:14:28
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 15:51:47
 *****
-RT @poisonJadeVine: ¿Estos son los panistas fifís?
-[Permalink](https://twitter.com/fernandeznorona/status/1649461610455646208) | 0 Me Gusta | 24 Retweets
+Hoy la videocharla será después de las siete de la noche pues apenas vamos iniciando en San Luis Acatlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1649561602176479232) | 39 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 07:42:41
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 15:50:26
 *****
-Muy bien. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1649438513270755329) | 63 Me Gusta | 4 Retweets
+Muy bello encuentro en Xochistlahuaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1649561259476664320) | 27 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 07:40:36
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 15:48:14
 *****
-RT @EmbRusiaMexico: 🇲🇽 🇷🇺 Agradecemos a la Jucopo que haya manifestado claramente su postura sobre el discurso "entretenido".
-
-
-Una vez más,…
-[Permalink](https://twitter.com/fernandeznorona/status/1649437988466876416) | 0 Me Gusta | 1,557 Retweets
+En camino.
+[Permalink](https://twitter.com/fernandeznorona/status/1649560706180841472) | 69 Me Gusta | 11 Retweets

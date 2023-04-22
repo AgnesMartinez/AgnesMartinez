@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 15:52:56
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 22:02:52
 *****
-Así vamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1649561888697745409) | 61 Me Gusta | 17 Retweets
+RT @ccirior: Mensaje a @fernandeznorona desde la Primera Feria del Libro en Zacatelco, Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1649654985045725184) | 0 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 15:52:31
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 19:46:58
 *****
-Caminamos a la plaza pública.
-[Permalink](https://twitter.com/fernandeznorona/status/1649561785861836800) | 53 Me Gusta | 17 Retweets
+En Xochistlahuaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1649620785475252224) | 101 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 15:51:47
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 19:41:59
 *****
-Hoy la videocharla será después de las siete de la noche pues apenas vamos iniciando en San Luis Acatlán.
-[Permalink](https://twitter.com/fernandeznorona/status/1649561602176479232) | 39 Me Gusta | 9 Retweets
+En la tierra de Genaro Vázquez.
+[Permalink](https://twitter.com/fernandeznorona/status/1649619532837969921) | 62 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 15:50:26
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 19:41:03
 *****
-Muy bello encuentro en Xochistlahuaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1649561259476664320) | 27 Me Gusta | 7 Retweets
+San Luis Acatlán.
+[Permalink](https://twitter.com/fernandeznorona/status/1649619295805267969) | 55 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 15:48:14
+**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 17:52:58
 *****
-En camino.
-[Permalink](https://twitter.com/fernandeznorona/status/1649560706180841472) | 69 Me Gusta | 11 Retweets
+6480 en Facebook y, 6838 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1649592097186652160) | 48 Me Gusta | 6 Retweets

@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 14:45:52
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 19:23:43
 *****
-Chilpancingo.
-[Permalink](https://twitter.com/fernandeznorona/status/1649907398918930432) | 93 Me Gusta | 27 Retweets
+RT @TorrucoTurismo: Hace 67 años que mi adorado padre partió, cuando yo tenía 4 años, y mi madre nos guió a mi hermana Marisela y a mí por…
+[Permalink](https://twitter.com/fernandeznorona/status/1649977324702679040) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 14:14:07
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 19:22:34
 *****
-Eres de una desvergüenza inconmensurable #Chapo2 @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1649899411399659521) | 262 Me Gusta | 89 Retweets
+RT @rosendomarind: Continuación de la organización del #SondeoCallejero, con la IV y V Circunscripciones, celebrada en CDMX. Además de las…
+[Permalink](https://twitter.com/fernandeznorona/status/1649977033567645700) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 14:10:30
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 19:15:45
 *****
-¡Qué te la den!
-[Permalink](https://twitter.com/fernandeznorona/status/1649898497171402752) | 34 Me Gusta | 3 Retweets
+RT @lopezobrador_: La construcción de mil 554 km de Tren Maya significa desarrollo social, turístico y, sobre todo, mostrar al mundo el org…
+[Permalink](https://twitter.com/fernandeznorona/status/1649975317895983105) | 0 Me Gusta | 1,848 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 14:08:42
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 19:13:48
 *****
-RT @LJyDMX: Muy buenos días querida familia Noroñista 🔆🤗
-
-
-Donde te quieran como este compatriota a nuestro gallo @fernandeznorona ¡Ahí es!…
-[Permalink](https://twitter.com/fernandeznorona/status/1649898047302950912) | 0 Me Gusta | 18 Retweets
+En Chilpancingo.
+[Permalink](https://twitter.com/fernandeznorona/status/1649974828315873281) | 130 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 13:56:26
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 18:33:44
 *****
-RT @Beatriz84981597: Se burlaron y dijeron "de carpita en carpita no va a llegar", pues ya no cupo en las carpitas, ahora va, "de corazón e…
-[Permalink](https://twitter.com/fernandeznorona/status/1649894958328078336) | 0 Me Gusta | 37 Retweets
+RT @Martha00604946: Agradezco al diputado @fernandeznorona y al @CE_MXdiputados por los libros gratuitos que me dieron. Jamás había visto u…
+[Permalink](https://twitter.com/fernandeznorona/status/1649964742369492992) | 0 Me Gusta | 28 Retweets

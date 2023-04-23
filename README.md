@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 09:05:23
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 14:45:52
 *****
-Acapulco, Guerrero.
-[Permalink](https://twitter.com/fernandeznorona/status/1649821712400392192) | 59 Me Gusta | 15 Retweets
+Chilpancingo.
+[Permalink](https://twitter.com/fernandeznorona/status/1649907398918930432) | 93 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 08:40:04
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 14:14:07
 *****
-Ya rumbo a la asamblea en Acapulco.
-[Permalink](https://twitter.com/fernandeznorona/status/1649815342020190208) | 57 Me Gusta | 7 Retweets
+Eres de una desvergüenza inconmensurable #Chapo2 @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1649899411399659521) | 262 Me Gusta | 89 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 22:02:52
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 14:10:30
 *****
-RT @ccirior: Mensaje a @fernandeznorona desde la Primera Feria del Libro en Zacatelco, Tlaxcala.
-[Permalink](https://twitter.com/fernandeznorona/status/1649654985045725184) | 0 Me Gusta | 50 Retweets
+¡Qué te la den!
+[Permalink](https://twitter.com/fernandeznorona/status/1649898497171402752) | 34 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 19:46:58
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 14:08:42
 *****
-En Xochistlahuaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1649620785475252224) | 219 Me Gusta | 44 Retweets
+RT @LJyDMX: Muy buenos días querida familia Noroñista 🔆🤗
+
+
+Donde te quieran como este compatriota a nuestro gallo @fernandeznorona ¡Ahí es!…
+[Permalink](https://twitter.com/fernandeznorona/status/1649898047302950912) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-04-2023 a las 19:41:59
+**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 13:56:26
 *****
-En la tierra de Genaro Vázquez.
-[Permalink](https://twitter.com/fernandeznorona/status/1649619532837969921) | 106 Me Gusta | 25 Retweets
+RT @Beatriz84981597: Se burlaron y dijeron "de carpita en carpita no va a llegar", pues ya no cupo en las carpitas, ahora va, "de corazón e…
+[Permalink](https://twitter.com/fernandeznorona/status/1649894958328078336) | 0 Me Gusta | 37 Retweets

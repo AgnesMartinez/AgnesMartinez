@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 13:47:53
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 21:47:27
 *****
-Ya vamos saliendo de Tlapa rumbo a Pueblo quieto.
-[Permalink](https://twitter.com/fernandeznorona/status/1650255193362276353) | 84 Me Gusta | 7 Retweets
+@Zoroastro_2021 @CPJannyBarrera Pellizcando.
+[Permalink](https://twitter.com/fernandeznorona/status/1650375881183952898) | 8 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 12:11:58
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 21:47:05
 *****
-Soy feliz, soy un hombre feliz…
-[Permalink](https://twitter.com/fernandeznorona/status/1650231057189597186) | 180 Me Gusta | 37 Retweets
+A todos los carroñeros, que la vida les multiplique sus deseos.
+[Permalink](https://twitter.com/fernandeznorona/status/1650375790419116037) | 302 Me Gusta | 82 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 12:11:34
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 21:46:46
 *****
-Tlapa, Guerrero.
-[Permalink](https://twitter.com/fernandeznorona/status/1650230955515449345) | 61 Me Gusta | 14 Retweets
+A dormir, que mañana saldré temprano rumbo a @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1650375711289495555) | 34 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 12:10:52
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 21:44:17
 *****
-Tlapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1650230781451841536) | 78 Me Gusta | 18 Retweets
+Lo terminé. Bien a secas. Creo que se le fue el final.
+[Permalink](https://twitter.com/fernandeznorona/status/1650375086002827264) | 17 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 12:10:24
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 21:22:18
 *****
-Tlapa: el parteaguas.
-[Permalink](https://twitter.com/fernandeznorona/status/1650230664191672320) | 431 Me Gusta | 119 Retweets
+RT @Emmanuel_Zamu: Los que estaban ofendidos porque se quemó una piñata de la ministra, son los mismos que están deseándole la muerte al pr…
+[Permalink](https://twitter.com/fernandeznorona/status/1650369552901894146) | 0 Me Gusta | 100 Retweets

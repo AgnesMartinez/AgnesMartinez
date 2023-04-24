@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 07:46:07
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 13:47:53
 *****
-¡Qué exhibida te puso @julioastillero! No dejes de demostrar que eres un botijón acomplejado, que se cree Jr de Carlos Slim.  Desclasado a tal grado que eres facho. Lumpenproletario disfrazado de “clase media”.
-[Permalink](https://twitter.com/fernandeznorona/status/1650164155448721409) | 455 Me Gusta | 134 Retweets
+Ya vamos saliendo de Tlapa rumbo a Pueblo quieto.
+[Permalink](https://twitter.com/fernandeznorona/status/1650255193362276353) | 84 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 07:40:49
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 12:11:58
 *****
-RT @geronimo_beto: Ni a los mejores matematicos les cuadran los numeros del borolas.
-[Permalink](https://twitter.com/fernandeznorona/status/1650162817960677377) | 0 Me Gusta | 46 Retweets
+Soy feliz, soy un hombre feliz…
+[Permalink](https://twitter.com/fernandeznorona/status/1650231057189597186) | 180 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 07:37:34
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 12:11:34
 *****
-Ahí te hablan #TomandanteBorolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1650162003904978946) | 127 Me Gusta | 65 Retweets
+Tlapa, Guerrero.
+[Permalink](https://twitter.com/fernandeznorona/status/1650230955515449345) | 61 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 22:55:59
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 12:10:52
 *****
-Apenas llegando al hotel en Tlapa. Estuvo muy pesado.
-[Permalink](https://twitter.com/fernandeznorona/status/1650030739986038785) | 112 Me Gusta | 8 Retweets
+Tlapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1650230781451841536) | 78 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-04-2023 a las 19:23:43
+**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 12:10:24
 *****
-RT @TorrucoTurismo: Hace 67 años que mi adorado padre partió, cuando yo tenía 4 años, y mi madre nos guió a mi hermana Marisela y a mí por…
-[Permalink](https://twitter.com/fernandeznorona/status/1649977324702679040) | 0 Me Gusta | 23 Retweets
+Tlapa: el parteaguas.
+[Permalink](https://twitter.com/fernandeznorona/status/1650230664191672320) | 431 Me Gusta | 119 Retweets

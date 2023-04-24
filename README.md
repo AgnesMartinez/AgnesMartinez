@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 21:47:27
+**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 08:58:10
 *****
-@Zoroastro_2021 @CPJannyBarrera Pellizcando.
-[Permalink](https://twitter.com/fernandeznorona/status/1650375881183952898) | 26 Me Gusta | 0 Retweets
+RT @biologacarmen: Biologando... El vil ejemplo... ‼️ Comer solo ensalada 🥗 solo te engorda... Este #Panda 🐼 regordete es el Mejor ejemplo,…
+[Permalink](https://twitter.com/fernandeznorona/status/1650544671813251079) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 21:47:05
+**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 08:50:55
 *****
-A todos los carroñeros, que la vida les multiplique sus deseos.
-[Permalink](https://twitter.com/fernandeznorona/status/1650375790419116037) | 1,001 Me Gusta | 248 Retweets
+Tieso.
+[Permalink](https://twitter.com/fernandeznorona/status/1650542849681764386) | 15 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 21:46:46
+**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 08:50:01
 *****
-A dormir, que mañana saldré temprano rumbo a @Mx_Diputados.
-[Permalink](https://twitter.com/fernandeznorona/status/1650375711289495555) | 88 Me Gusta | 11 Retweets
+RT @Amikamarksisto: La afirmación de que Marx no trabajó en su vida es una falta de respeto a  su vida y obra. Esta idea se basa en la desi…
+[Permalink](https://twitter.com/fernandeznorona/status/1650542623583612957) | 0 Me Gusta | 481 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 21:44:17
+**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 08:44:02
 *****
-Lo terminé. Bien a secas. Creo que se le fue el final.
-[Permalink](https://twitter.com/fernandeznorona/status/1650375086002827264) | 35 Me Gusta | 3 Retweets
+RT @AkalMx: 📚#NovedadesAkal
+
+
+El "Discurso de la servidumbre voluntaria", de Étienne de La Boétie, es uno de los clásicos del pensamiento po…
+[Permalink](https://twitter.com/fernandeznorona/status/1650541115676798984) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-04-2023 a las 21:22:18
+**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 08:02:34
 *****
-RT @Emmanuel_Zamu: Los que estaban ofendidos porque se quemó una piñata de la ministra, son los mismos que están deseándole la muerte al pr…
-[Permalink](https://twitter.com/fernandeznorona/status/1650369552901894146) | 0 Me Gusta | 183 Retweets
+“El insomnio lo volvió erudito”.  Bellow. Creo que nunca seré erudito.
+[Permalink](https://twitter.com/fernandeznorona/status/1650530681070428162) | 49 Me Gusta | 5 Retweets

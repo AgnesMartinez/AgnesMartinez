@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 08:58:10
+**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 20:47:41
 *****
-RT @biologacarmen: Biologando... El vil ejemplo... ‼️ Comer solo ensalada 🥗 solo te engorda... Este #Panda 🐼 regordete es el Mejor ejemplo,…
-[Permalink](https://twitter.com/fernandeznorona/status/1650544671813251079) | 0 Me Gusta | 5 Retweets
+RT @julioastillero: ATENCIÓN: Estoy denunciando por suplantación de identidad a esta cuenta, @juilioastillero (con una “i” entre la u y la…
+[Permalink](https://twitter.com/fernandeznorona/status/1650723228707352576) | 0 Me Gusta | 412 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 08:50:55
+**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 20:36:06
 *****
-Tieso.
-[Permalink](https://twitter.com/fernandeznorona/status/1650542849681764386) | 15 Me Gusta | 5 Retweets
+RT @istanbulmu9: Adorable
+[Permalink](https://twitter.com/fernandeznorona/status/1650720313846661121) | 0 Me Gusta | 1,689 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 08:50:01
+**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 20:27:56
 *****
-RT @Amikamarksisto: La afirmación de que Marx no trabajó en su vida es una falta de respeto a  su vida y obra. Esta idea se basa en la desi…
-[Permalink](https://twitter.com/fernandeznorona/status/1650542623583612957) | 0 Me Gusta | 481 Retweets
+A 22 horas de su transmisión. Las otras entrevistas llevan cuatro semanas y cinco meses respectivamente.
+[Permalink](https://twitter.com/fernandeznorona/status/1650718259606614016) | 169 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 08:44:02
+**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 20:16:58
 *****
-RT @AkalMx: 📚#NovedadesAkal
-
-
-El "Discurso de la servidumbre voluntaria", de Étienne de La Boétie, es uno de los clásicos del pensamiento po…
-[Permalink](https://twitter.com/fernandeznorona/status/1650541115676798984) | 0 Me Gusta | 4 Retweets
+Hundieron.
+[Permalink](https://twitter.com/fernandeznorona/status/1650715500626997251) | 145 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 08:02:34
+**Fernández Noroña** (**@fernandeznorona**) • 24-04-2023 a las 18:49:56
 *****
-“El insomnio lo volvió erudito”.  Bellow. Creo que nunca seré erudito.
-[Permalink](https://twitter.com/fernandeznorona/status/1650530681070428162) | 49 Me Gusta | 5 Retweets
+Hay amenaza de reprimir a los mineros en Hércules, Coahuila. Se desplaza la policía estatal al lugar.
+[Permalink](https://twitter.com/fernandeznorona/status/1650693595152760844) | 83 Me Gusta | 44 Retweets

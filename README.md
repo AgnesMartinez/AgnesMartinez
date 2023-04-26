@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2023 a las 22:09:38
+**Fernández Noroña** (**@fernandeznorona**) • 26-04-2023 a las 09:54:35
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1651106238652903424) | 39 Me Gusta | 7 Retweets
+En dos minutos iré a tribuna.
+[Permalink](https://twitter.com/fernandeznorona/status/1651283647641825280) | 37 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2023 a las 22:06:27
+**Fernández Noroña** (**@fernandeznorona**) • 26-04-2023 a las 09:27:57
 *****
-Aunque en @Mx_Diputados ustedes propusieron una semana laboral de 40 días.
-[Permalink](https://twitter.com/fernandeznorona/status/1651105437880815616) | 44 Me Gusta | 12 Retweets
+Cerraré el debate de una larga jornada en unos minutos, en @Mx_Diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1651276944015605764) | 40 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2023 a las 22:04:26
+**Fernández Noroña** (**@fernandeznorona**) • 26-04-2023 a las 09:24:23
 *****
-RT @errantics: Enorme escándalo en el Reino Unido con el desmantelamiento de una vasta red de pedófilos que incluye a 76 políticos, 43 arti…
-[Permalink](https://twitter.com/fernandeznorona/status/1651104932232302593) | 0 Me Gusta | 11,264 Retweets
+Tú dijiste que era un día triste, le lloran al moche y al robo y despoblado del presupuesto nacional. Se les acabó @Mzavalagc.
+[Permalink](https://twitter.com/fernandeznorona/status/1651276046657028096) | 51 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2023 a las 22:01:52
+**Fernández Noroña** (**@fernandeznorona**) • 26-04-2023 a las 09:22:52
 *****
-@Arman_doCA @alvaro_delgado @ArmandoMonter1 @SinEmbargoMX Transa.
-[Permalink](https://twitter.com/fernandeznorona/status/1651104285667516422) | 3 Me Gusta | 1 Retweets
+Chingaron la Nación, por eso no volverán, cabeza hueca @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1651275664069373953) | 142 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-04-2023 a las 21:38:21
+**Fernández Noroña** (**@fernandeznorona**) • 26-04-2023 a las 09:21:51
 *****
-Y @MovCiudadanoMX #MovDesahuciado propone la semana laboral de 40 días.
-[Permalink](https://twitter.com/fernandeznorona/status/1651098367978766338) | 53 Me Gusta | 15 Retweets
+¡A dieta! ¡Qué envidia! Aunque los prefiero de cochinita. De
+[Permalink](https://twitter.com/fernandeznorona/status/1651275410481741824) | 8 Me Gusta | 1 Retweets

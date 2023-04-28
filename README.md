@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 15:42:38
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 20:41:36
 *****
-RT @senadomexicano: 📌 Termina la sesión y se cita a la siguiente, mañana, viernes 28 de abril, a las 13:00 horas.
-[Permalink](https://twitter.com/fernandeznorona/status/1651733626738884609) | 0 Me Gusta | 37 Retweets
+Ya vi que si hizo una declaración de solidaridad con las víctimas @AlejandraDMV. Muy bien.
+[Permalink](https://twitter.com/fernandeznorona/status/1651808861819420672) | 62 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 15:41:23
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 20:23:20
 *****
-Dice la derecha que no había información sobre la salud del presidente. El 23 de abril de 2023, a las 15 32 de la tarde, él mismo está informando de ésta. Son unos miserables e intrigantes. Eso es lo que son.
-[Permalink](https://twitter.com/fernandeznorona/status/1651733311285510146) | 74 Me Gusta | 19 Retweets
+Ahora dilo sin mentiras y sin llorar señorito X @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1651804263142785034) | 41 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 15:32:10
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 20:21:49
 *****
-RT @adrianasan_v: @aura_fdez @fernandeznorona Pues sí 🇲🇽🇲🇽🇲🇽🇲🇽 #NoroñaEsPueblo
-[Permalink](https://twitter.com/fernandeznorona/status/1651730991193677824) | 0 Me Gusta | 14 Retweets
+RT @Nubia_SCG: No les enoja que Noroña sea educado con Santiago Creel (siempre ha dicho que lo político NO ES PERSONAL)
+
+
+Lo que les molesta…
+[Permalink](https://twitter.com/fernandeznorona/status/1651803885139546118) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 15:26:33
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 20:04:57
 *****
-Ahí les hablan a los sectarios.
-[Permalink](https://twitter.com/fernandeznorona/status/1651729576798855168) | 39 Me Gusta | 14 Retweets
+Ya vi que es cierta la información del accidente en un evento en Tecámac de @AlejandraDMV. Mi solidaridad con familiares y amigos de las víctimas.
+[Permalink](https://twitter.com/fernandeznorona/status/1651799640642052098) | 119 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 15:19:58
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 20:04:04
 *****
-RT @adrianasan_v: #NoroñaEsPueblo 🇲🇽
-[Permalink](https://twitter.com/fernandeznorona/status/1651727919994253312) | 0 Me Gusta | 19 Retweets
+Es correcta la solidaridad, aunque no he visto ningún pronunciamiento de @AlejandraDMV.
+[Permalink](https://twitter.com/fernandeznorona/status/1651799415181520896) | 58 Me Gusta | 18 Retweets

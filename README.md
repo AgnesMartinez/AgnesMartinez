@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 07:14:41
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 15:42:38
 *****
-Voy a hacer mi derecho de réplica con @AristeguiOnline.
-[Permalink](https://twitter.com/fernandeznorona/status/1651605796298317827) | 274 Me Gusta | 51 Retweets
+RT @senadomexicano: 📌 Termina la sesión y se cita a la siguiente, mañana, viernes 28 de abril, a las 13:00 horas.
+[Permalink](https://twitter.com/fernandeznorona/status/1651733626738884609) | 0 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2023 a las 21:25:05
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 15:41:23
 *****
-Ay cabeza hueca @VicenteFoxQue, a ti no te funciona el cerebro ni a una millonésima de maquina.
-[Permalink](https://twitter.com/fernandeznorona/status/1651457417241300992) | 439 Me Gusta | 86 Retweets
+Dice la derecha que no había información sobre la salud del presidente. El 23 de abril de 2023, a las 15 32 de la tarde, él mismo está informando de ésta. Son unos miserables e intrigantes. Eso es lo que son.
+[Permalink](https://twitter.com/fernandeznorona/status/1651733311285510146) | 74 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2023 a las 21:04:53
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 15:32:10
 *****
-Francamente es un chingón el compañero presidente. Y tenía razón charrascas.
-[Permalink](https://twitter.com/fernandeznorona/status/1651452334390534144) | 1,615 Me Gusta | 336 Retweets
+RT @adrianasan_v: @aura_fdez @fernandeznorona Pues sí 🇲🇽🇲🇽🇲🇽🇲🇽 #NoroñaEsPueblo
+[Permalink](https://twitter.com/fernandeznorona/status/1651730991193677824) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2023 a las 20:43:51
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 15:26:33
 *****
-RT @danielmterres: Y resucitó al tercer día, según las escrituras.
-[Permalink](https://twitter.com/fernandeznorona/status/1651447040533204992) | 0 Me Gusta | 459 Retweets
+Ahí les hablan a los sectarios.
+[Permalink](https://twitter.com/fernandeznorona/status/1651729576798855168) | 39 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-04-2023 a las 20:42:59
+**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 15:19:58
 *****
-Ya en Pueblo quieto. Mañana iré a caminar a la montaña.
-[Permalink](https://twitter.com/fernandeznorona/status/1651446823796772865) | 131 Me Gusta | 12 Retweets
+RT @adrianasan_v: #NoroñaEsPueblo 🇲🇽
+[Permalink](https://twitter.com/fernandeznorona/status/1651727919994253312) | 0 Me Gusta | 19 Retweets

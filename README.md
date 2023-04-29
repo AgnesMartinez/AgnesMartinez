@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 15:34:28
+**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 21:28:58
 *****
-Es que no te gusta Rosalía, Dr. Chapatín @JesusMartinMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1652093958284083200) | 24 Me Gusta | 8 Retweets
+Es falso que tenga restricciones.
+[Permalink](https://twitter.com/fernandeznorona/status/1652183171486695425) | 26 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 15:32:55
+**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 21:17:46
 *****
-A ti.
-[Permalink](https://twitter.com/fernandeznorona/status/1652093567387553793) | 57 Me Gusta | 8 Retweets
+4871 en Facebook y, 5517 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1652180350922285062) | 36 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 15:32:20
+**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 19:27:44
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1652093418565238785) | 19 Me Gusta | 3 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1652152661687271425) | 28 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 15:31:36
+**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 19:24:46
 *****
-RT @JesusRCuevas: Ya se fue el avión presidencial, esta tarde realizó su último despegue del Aeropuerto Internacional de la Ciudad de Méxic…
-[Permalink](https://twitter.com/fernandeznorona/status/1652093237207638020) | 0 Me Gusta | 893 Retweets
+Acabamos de aterrizar en Cancún.
+[Permalink](https://twitter.com/fernandeznorona/status/1652151914375569409) | 55 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 14:46:36
+**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 17:34:05
 *****
-De acuerdo.
-[Permalink](https://twitter.com/fernandeznorona/status/1652081910430986242) | 43 Me Gusta | 13 Retweets
+RT @HoyPalestina: Fuerzas de ocupación israelíes asesinan a un niño palestino en la ciudad ocupada de Belén esta mañana.
+[Permalink](https://twitter.com/fernandeznorona/status/1652124059725971459) | 0 Me Gusta | 1,617 Retweets

@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 07:48:47
+**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 15:34:28
 *****
-Pronta recuperación. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1651976764485165062) | 23 Me Gusta | 2 Retweets
+Es que no te gusta Rosalía, Dr. Chapatín @JesusMartinMx.
+[Permalink](https://twitter.com/fernandeznorona/status/1652093958284083200) | 24 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 22:34:25
+**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 15:32:55
 *****
-RT @naocrochet: Buenas noches hasta aquí mi trabajo del Noroñita. Ya mañana le seguimos. Ya va tomando forma #naocrochet #noroñita #noroña…
-[Permalink](https://twitter.com/fernandeznorona/status/1651837252484333573) | 0 Me Gusta | 16 Retweets
+A ti.
+[Permalink](https://twitter.com/fernandeznorona/status/1652093567387553793) | 57 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 22:23:24
+**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 15:32:20
 *****
-Buena evidenciada a @AlvarezMaynez.
-[Permalink](https://twitter.com/fernandeznorona/status/1651834480435384320) | 52 Me Gusta | 11 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1652093418565238785) | 19 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 22:18:37
+**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 15:31:36
 *****
-Ya vi que estuvo y se solidarizó. Fue un accidente y es lamentable. Por otra parte, no ves nada. Haz tu tarea para que no intrigues, zopilotón.
-[Permalink](https://twitter.com/fernandeznorona/status/1651833278582730752) | 51 Me Gusta | 9 Retweets
+RT @JesusRCuevas: Ya se fue el avión presidencial, esta tarde realizó su último despegue del Aeropuerto Internacional de la Ciudad de Méxic…
+[Permalink](https://twitter.com/fernandeznorona/status/1652093237207638020) | 0 Me Gusta | 893 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-04-2023 a las 20:41:36
+**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 14:46:36
 *****
-Ya vi que si hizo una declaración de solidaridad con las víctimas @AlejandraDMV. Muy bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1651808861819420672) | 125 Me Gusta | 9 Retweets
+De acuerdo.
+[Permalink](https://twitter.com/fernandeznorona/status/1652081910430986242) | 43 Me Gusta | 13 Retweets

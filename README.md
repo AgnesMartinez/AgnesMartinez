@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 21:28:58
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 10:07:52
 *****
-Es falso que tenga restricciones.
-[Permalink](https://twitter.com/fernandeznorona/status/1652183171486695425) | 39 Me Gusta | 5 Retweets
+Así fue. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1652374155160080386) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 21:17:46
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 10:07:19
 *****
-4871 en Facebook y, 5517 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1652180350922285062) | 52 Me Gusta | 15 Retweets
+Me parece que tu comentario si equivocado. La aseveración que haces es temeraria. Ayer expliqué claramente porque yo no estuve ahí.
+[Permalink](https://twitter.com/fernandeznorona/status/1652374017159106560) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 19:27:44
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 10:06:22
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1652152661687271425) | 33 Me Gusta | 5 Retweets
+Ya en Tulum, llegando al encuentro.
+[Permalink](https://twitter.com/fernandeznorona/status/1652373774896070656) | 1 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 19:24:46
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 10:00:15
 *****
-Acabamos de aterrizar en Cancún.
-[Permalink](https://twitter.com/fernandeznorona/status/1652151914375569409) | 61 Me Gusta | 7 Retweets
+RT @naocrochet: Ya lista viendo a chequito!!! 🤪 #ChecoPerez  #chequito #sergioperez #f1 #GPazerbaidjan #GPAzerbaiyan
+[Permalink](https://twitter.com/fernandeznorona/status/1652372238010654720) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-04-2023 a las 17:34:05
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 09:41:04
 *****
-RT @HoyPalestina: Fuerzas de ocupación israelíes asesinan a un niño palestino en la ciudad ocupada de Belén esta mañana.
-[Permalink](https://twitter.com/fernandeznorona/status/1652124059725971459) | 0 Me Gusta | 1,838 Retweets
+RT @PonchoGutz: El fenómeno mediático que rodea a Alejandra del Moral es precioso. Salió abiertamente a pedir que violen La Ley y ninguno d…
+[Permalink](https://twitter.com/fernandeznorona/status/1652367409863446534) | 0 Me Gusta | 353 Retweets

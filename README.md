@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 10:07:52
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 16:41:51
 *****
-Así fue. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1652374155160080386) | 0 Me Gusta | 0 Retweets
+Cómo veo las cosas, la video charla será a las siete de la noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1652473303833903106) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 10:07:19
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 16:41:08
 *****
-Me parece que tu comentario si equivocado. La aseveración que haces es temeraria. Ayer expliqué claramente porque yo no estuve ahí.
-[Permalink](https://twitter.com/fernandeznorona/status/1652374017159106560) | 1 Me Gusta | 0 Retweets
+RT @PTQuintana_Roo: ¡Qué experiencia increíble en el evento de Tulum con @fernandeznorona del Partido del Trabajo! La energía y emoción en…
+[Permalink](https://twitter.com/fernandeznorona/status/1652473124196163584) | 0 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 10:06:22
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 16:37:20
 *****
-Ya en Tulum, llegando al encuentro.
-[Permalink](https://twitter.com/fernandeznorona/status/1652373774896070656) | 1 Me Gusta | 0 Retweets
+RT @MoneroTeta:
+[Permalink](https://twitter.com/fernandeznorona/status/1652472165504098309) | 0 Me Gusta | 158 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 10:00:15
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 16:30:46
 *****
-RT @naocrochet: Ya lista viendo a chequito!!! 🤪 #ChecoPerez  #chequito #sergioperez #f1 #GPazerbaidjan #GPAzerbaiyan
-[Permalink](https://twitter.com/fernandeznorona/status/1652372238010654720) | 0 Me Gusta | 6 Retweets
+En breve llegaremos a un lugar para poder transmitir la video charla.
+[Permalink](https://twitter.com/fernandeznorona/status/1652470515414564864) | 18 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 09:41:04
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 16:29:48
 *****
-RT @PonchoGutz: El fenómeno mediático que rodea a Alejandra del Moral es precioso. Salió abiertamente a pedir que violen La Ley y ninguno d…
-[Permalink](https://twitter.com/fernandeznorona/status/1652367409863446534) | 0 Me Gusta | 353 Retweets
+La Pantera, Graciano Sánchez, Bacalar.
+[Permalink](https://twitter.com/fernandeznorona/status/1652470270446190597) | 10 Me Gusta | 6 Retweets

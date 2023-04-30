@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 16:41:51
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 21:22:24
 *****
-Cómo veo las cosas, la video charla será a las siete de la noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1652473303833903106) | 0 Me Gusta | 0 Retweets
+RT @Gabriele_Corno: Sail with orcas
+[Permalink](https://twitter.com/fernandeznorona/status/1652543906943320066) | 0 Me Gusta | 828 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 16:41:08
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 21:15:03
 *****
-RT @PTQuintana_Roo: ¡Qué experiencia increíble en el evento de Tulum con @fernandeznorona del Partido del Trabajo! La energía y emoción en…
-[Permalink](https://twitter.com/fernandeznorona/status/1652473124196163584) | 0 Me Gusta | 2 Retweets
+Ahí falta @RicardoMonrealA.
+[Permalink](https://twitter.com/fernandeznorona/status/1652542054906339328) | 42 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 16:37:20
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 20:59:07
 *****
-RT @MoneroTeta:
-[Permalink](https://twitter.com/fernandeznorona/status/1652472165504098309) | 0 Me Gusta | 158 Retweets
+Dos minutos antes de terminar el día, muchas felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1652538045420253185) | 25 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 16:30:46
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 20:58:34
 *****
-En breve llegaremos a un lugar para poder transmitir la video charla.
-[Permalink](https://twitter.com/fernandeznorona/status/1652470515414564864) | 18 Me Gusta | 6 Retweets
+RT @naocrochet: Ya falta menos pero ya es hora de dormir 🥱, así que buenas noches. 💤 #naocrochet
+[Permalink](https://twitter.com/fernandeznorona/status/1652537909164089344) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 16:29:48
+**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 20:58:26
 *****
-La Pantera, Graciano Sánchez, Bacalar.
-[Permalink](https://twitter.com/fernandeznorona/status/1652470270446190597) | 10 Me Gusta | 6 Retweets
+RT @Nubia_SCG: 📢🔊📣
+
+
+El #SondeoCallejero será un ejercicio de democracia participativa que se realizará en 200 plazas públicas del país, el…
+[Permalink](https://twitter.com/fernandeznorona/status/1652537873135030274) | 0 Me Gusta | 18 Retweets

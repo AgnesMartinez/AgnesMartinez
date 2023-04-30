@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 21:22:24
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 08:44:39
 *****
-RT @Gabriele_Corno: Sail with orcas
-[Permalink](https://twitter.com/fernandeznorona/status/1652543906943320066) | 0 Me Gusta | 954 Retweets
+RT @Proletkult3: Imagen menos conocida de la serie de fotos que tomó Yevgeni Jaldéi a  M. Kantaria, M. Yegorov y A. Berest cuando estaban a…
+[Permalink](https://twitter.com/fernandeznorona/status/1652715600605597699) | 0 Me Gusta | 237 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 21:15:03
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 08:44:18
 *****
-Ahí falta @RicardoMonrealA.
-[Permalink](https://twitter.com/fernandeznorona/status/1652542054906339328) | 73 Me Gusta | 11 Retweets
+RT @AleCamph: 🚨 Atención CDMX 🚨
+\#SondeoCallejero
+[Permalink](https://twitter.com/fernandeznorona/status/1652715509983375360) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 20:59:07
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 08:44:03
 *****
-Dos minutos antes de terminar el día, muchas felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1652538045420253185) | 34 Me Gusta | 2 Retweets
+RT @rosendomarind: #SondeoCallejero frente al Palacio Municipal de Nezahualcóyotl, en el Camellón a un lado de la estatua de Morelos https:…
+[Permalink](https://twitter.com/fernandeznorona/status/1652715446699696128) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 20:58:34
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 08:43:47
 *****
-RT @naocrochet: Ya falta menos pero ya es hora de dormir 🥱, así que buenas noches. 💤 #naocrochet
-[Permalink](https://twitter.com/fernandeznorona/status/1652537909164089344) | 0 Me Gusta | 15 Retweets
+Pues no hubieran pedido permiso.  Suban el video con la agresión. ¿Qué pasó ahí compañera y amiga @ClaraBrugadaM?
+[Permalink](https://twitter.com/fernandeznorona/status/1652715383223099400) | 52 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-04-2023 a las 20:58:26
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 08:42:09
 *****
-RT @Nubia_SCG: 📢🔊📣
-
-
-El #SondeoCallejero será un ejercicio de democracia participativa que se realizará en 200 plazas públicas del país, el…
-[Permalink](https://twitter.com/fernandeznorona/status/1652537873135030274) | 0 Me Gusta | 19 Retweets
+Qué chingón.
+[Permalink](https://twitter.com/fernandeznorona/status/1652714970017153025) | 59 Me Gusta | 25 Retweets

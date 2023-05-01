@@ -1,28 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 19:45:40
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 09:27:15
 *****
-RT @buitengebieden: He changed his mind.. 😂
-[Permalink](https://twitter.com/fernandeznorona/status/1652881948556120064) | 0 Me Gusta | 16,120 Retweets
+Son y sin y con Swing.
+[Permalink](https://twitter.com/fernandeznorona/status/1653088707061202968) | 12 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 19:42:37
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 09:26:32
 *****
-RT @LJyDMX: Resultados en Ziguatanejo
-\#ElPuebloDecide.
-@fernandeznorona arrasa 😉
-[Permalink](https://twitter.com/fernandeznorona/status/1652881182952939520) | 0 Me Gusta | 71 Retweets
+¿Convocan a un megapuente? Quien les iba a decir que ustedes que se burlaban de todas las formas de protesta, hoy desesperadamente buscan realizarlas.
+[Permalink](https://twitter.com/fernandeznorona/status/1653088526785822733) | 37 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 18:40:16
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 09:22:59
 *****
-RT @aura_fdez: Este compañero nos preguntó si había módulo en Coatepec, Veracruz. Le respondimos que no. Un ratito más tarde nos mandó este…
-[Permalink](https://twitter.com/fernandeznorona/status/1652865489587060737) | 0 Me Gusta | 80 Retweets
+RT @NortenaCatrina: 🚨 En Pleno Festejo por el Día del Trabajo, el Neoliberal de Macron manda a su policía a golpear a los protestantes.
+
+
+Pe…
+[Permalink](https://twitter.com/fernandeznorona/status/1653087634825134092) | 0 Me Gusta | 519 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 18:39:32
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 09:13:23
 *****
-NUNCA.
-[Permalink](https://twitter.com/fernandeznorona/status/1652865305369092097) | 44 Me Gusta | 8 Retweets
+RT @HNoticiasMX: ContraRéplica
+[Permalink](https://twitter.com/fernandeznorona/status/1653085217547259904) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 18:39:15
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 09:08:59
 *****
-¡Qué maravilla! ¡Larga vida a ese compañero!
-[Permalink](https://twitter.com/fernandeznorona/status/1652865237320646657) | 160 Me Gusta | 39 Retweets
+RT @tania__rd: Hoy es día internacional de los que mueven a México y al mundo 
+
+
+Siempre va a ser buen día para recordar a este héroe sin ca…
+[Permalink](https://twitter.com/fernandeznorona/status/1653084109336461337) | 0 Me Gusta | 331 Retweets

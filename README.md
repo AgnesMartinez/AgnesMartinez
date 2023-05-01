@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 15:41:31
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 19:45:40
 *****
-¡Qué foto más bella!
-[Permalink](https://twitter.com/fernandeznorona/status/1652820508935864320) | 65 Me Gusta | 23 Retweets
+RT @buitengebieden: He changed his mind.. 😂
+[Permalink](https://twitter.com/fernandeznorona/status/1652881948556120064) | 0 Me Gusta | 11,365 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 15:39:35
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 19:42:37
 *****
-RT @KyleSkynet: 😬😬😬😬😬😬
-[Permalink](https://twitter.com/fernandeznorona/status/1652820020840501248) | 0 Me Gusta | 14 Retweets
+RT @LJyDMX: Resultados en Ziguatanejo
+\#ElPuebloDecide.
+@fernandeznorona arrasa 😉
+[Permalink](https://twitter.com/fernandeznorona/status/1652881182952939520) | 0 Me Gusta | 66 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 15:38:19
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 18:40:16
 *****
-Ésas son ganas de hacer el sondeo.
-[Permalink](https://twitter.com/fernandeznorona/status/1652819701880459265) | 59 Me Gusta | 25 Retweets
+RT @aura_fdez: Este compañero nos preguntó si había módulo en Coatepec, Veracruz. Le respondimos que no. Un ratito más tarde nos mandó este…
+[Permalink](https://twitter.com/fernandeznorona/status/1652865489587060737) | 0 Me Gusta | 76 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 15:34:48
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 18:39:32
 *****
-RT @ramon_flores_: Llegando en carro, bicicleta , camión un solo mensaje esto es muestra que @fernandeznorona tiene pueblo y lo apoyamos @l…
-[Permalink](https://twitter.com/fernandeznorona/status/1652818815963766791) | 0 Me Gusta | 35 Retweets
+NUNCA.
+[Permalink](https://twitter.com/fernandeznorona/status/1652865305369092097) | 37 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 15:18:42
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 18:39:15
 *****
-¿Cómo terminó el resultado?
-[Permalink](https://twitter.com/fernandeznorona/status/1652814764429508608) | 50 Me Gusta | 15 Retweets
+¡Qué maravilla! ¡Larga vida a ese compañero!
+[Permalink](https://twitter.com/fernandeznorona/status/1652865237320646657) | 130 Me Gusta | 35 Retweets

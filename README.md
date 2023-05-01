@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 08:44:39
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 15:41:31
 *****
-RT @Proletkult3: Imagen menos conocida de la serie de fotos que tomó Yevgeni Jaldéi a  M. Kantaria, M. Yegorov y A. Berest cuando estaban a…
-[Permalink](https://twitter.com/fernandeznorona/status/1652715600605597699) | 0 Me Gusta | 237 Retweets
+¡Qué foto más bella!
+[Permalink](https://twitter.com/fernandeznorona/status/1652820508935864320) | 65 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 08:44:18
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 15:39:35
 *****
-RT @AleCamph: 🚨 Atención CDMX 🚨
-\#SondeoCallejero
-[Permalink](https://twitter.com/fernandeznorona/status/1652715509983375360) | 0 Me Gusta | 7 Retweets
+RT @KyleSkynet: 😬😬😬😬😬😬
+[Permalink](https://twitter.com/fernandeznorona/status/1652820020840501248) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 08:44:03
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 15:38:19
 *****
-RT @rosendomarind: #SondeoCallejero frente al Palacio Municipal de Nezahualcóyotl, en el Camellón a un lado de la estatua de Morelos https:…
-[Permalink](https://twitter.com/fernandeznorona/status/1652715446699696128) | 0 Me Gusta | 28 Retweets
+Ésas son ganas de hacer el sondeo.
+[Permalink](https://twitter.com/fernandeznorona/status/1652819701880459265) | 59 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 08:43:47
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 15:34:48
 *****
-Pues no hubieran pedido permiso.  Suban el video con la agresión. ¿Qué pasó ahí compañera y amiga @ClaraBrugadaM?
-[Permalink](https://twitter.com/fernandeznorona/status/1652715383223099400) | 52 Me Gusta | 25 Retweets
+RT @ramon_flores_: Llegando en carro, bicicleta , camión un solo mensaje esto es muestra que @fernandeznorona tiene pueblo y lo apoyamos @l…
+[Permalink](https://twitter.com/fernandeznorona/status/1652818815963766791) | 0 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 08:42:09
+**Fernández Noroña** (**@fernandeznorona**) • 30-04-2023 a las 15:18:42
 *****
-Qué chingón.
-[Permalink](https://twitter.com/fernandeznorona/status/1652714970017153025) | 59 Me Gusta | 25 Retweets
+¿Cómo terminó el resultado?
+[Permalink](https://twitter.com/fernandeznorona/status/1652814764429508608) | 50 Me Gusta | 15 Retweets

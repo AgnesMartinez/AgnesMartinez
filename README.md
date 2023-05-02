@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 14:52:10
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 19:03:41
 *****
-Yo he estado insistiendo que debe ser sólo una pregunta. Pero con esas preguntas que sean perfilado, la disputa está entre @Claudiashein y un servidor.
-[Permalink](https://twitter.com/fernandeznorona/status/1653170474090745856) | 82 Me Gusta | 30 Retweets
+RT @sevillacritico: Lo cierto es que, revisar las facturas que El Universal Compañía Periodística Nacional, S.A. DE C.V., pudimos observar…
+[Permalink](https://twitter.com/fernandeznorona/status/1653233772337176582) | 0 Me Gusta | 249 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 14:00:05
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 18:20:45
 *****
-“No está en el ánimo presidencial”, lo que es extrañar al @PRI_Nacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1653157369956687873) | 66 Me Gusta | 28 Retweets
+Me informó una compañera, vía telefónica, que en Ciudad Altamirano Guerrero, el crimen organizado tiene bloqueados los caminos. Me dice que la gente sólo puede pasar caminando hermanos discapacitados y no pueden moverse de esa manera. @GN_MEXICO_.
+[Permalink](https://twitter.com/fernandeznorona/status/1653222966073720834) | 355 Me Gusta | 170 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 12:43:56
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 18:15:19
 *****
-Sondeo callejero en Michoacán.
-[Permalink](https://twitter.com/fernandeznorona/status/1653138203241488412) | 140 Me Gusta | 59 Retweets
+@jpau74 @KyleSkynet @LJyDMX A ver…
+[Permalink](https://twitter.com/fernandeznorona/status/1653221600811003906) | 3 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 11:52:26
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 18:11:47
 *****
-Encima me dio información imprecisa. Me dijo que si era maestro, lo que no me dijo es que desde 2018 firmaba como tal y que apenas hace dos meses tiene la cédula de maestría.  Néstor Martínez Cristóbal es un falso.
-[Permalink](https://twitter.com/fernandeznorona/status/1653125245593591822) | 100 Me Gusta | 35 Retweets
+RT @sevillacritico: La @UNAM_MX, a través de la Dirección General de Comunicación Social, que encabeza Néstor Martínez Cristo, repartió más…
+[Permalink](https://twitter.com/fernandeznorona/status/1653220710775398400) | 0 Me Gusta | 1,228 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 11:47:23
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 17:20:23
 *****
-RT @Soulincanvas: Cute hug
-[Permalink](https://twitter.com/fernandeznorona/status/1653123972022542342) | 0 Me Gusta | 927 Retweets
+12,817 en Facebook y, 10,443 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1653207776586354689) | 103 Me Gusta | 24 Retweets

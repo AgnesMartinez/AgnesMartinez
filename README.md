@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 09:27:15
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 14:52:10
 *****
-Son y sin y con Swing.
-[Permalink](https://twitter.com/fernandeznorona/status/1653088707061202968) | 12 Me Gusta | 0 Retweets
+Yo he estado insistiendo que debe ser sólo una pregunta. Pero con esas preguntas que sean perfilado, la disputa está entre @Claudiashein y un servidor.
+[Permalink](https://twitter.com/fernandeznorona/status/1653170474090745856) | 82 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 09:26:32
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 14:00:05
 *****
-¿Convocan a un megapuente? Quien les iba a decir que ustedes que se burlaban de todas las formas de protesta, hoy desesperadamente buscan realizarlas.
-[Permalink](https://twitter.com/fernandeznorona/status/1653088526785822733) | 37 Me Gusta | 10 Retweets
+“No está en el ánimo presidencial”, lo que es extrañar al @PRI_Nacional.
+[Permalink](https://twitter.com/fernandeznorona/status/1653157369956687873) | 66 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 09:22:59
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 12:43:56
 *****
-RT @NortenaCatrina: 🚨 En Pleno Festejo por el Día del Trabajo, el Neoliberal de Macron manda a su policía a golpear a los protestantes.
-
-
-Pe…
-[Permalink](https://twitter.com/fernandeznorona/status/1653087634825134092) | 0 Me Gusta | 519 Retweets
+Sondeo callejero en Michoacán.
+[Permalink](https://twitter.com/fernandeznorona/status/1653138203241488412) | 140 Me Gusta | 59 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 09:13:23
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 11:52:26
 *****
-RT @HNoticiasMX: ContraRéplica
-[Permalink](https://twitter.com/fernandeznorona/status/1653085217547259904) | 0 Me Gusta | 14 Retweets
+Encima me dio información imprecisa. Me dijo que si era maestro, lo que no me dijo es que desde 2018 firmaba como tal y que apenas hace dos meses tiene la cédula de maestría.  Néstor Martínez Cristóbal es un falso.
+[Permalink](https://twitter.com/fernandeznorona/status/1653125245593591822) | 100 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 09:08:59
+**Fernández Noroña** (**@fernandeznorona**) • 01-05-2023 a las 11:47:23
 *****
-RT @tania__rd: Hoy es día internacional de los que mueven a México y al mundo 
-
-
-Siempre va a ser buen día para recordar a este héroe sin ca…
-[Permalink](https://twitter.com/fernandeznorona/status/1653084109336461337) | 0 Me Gusta | 331 Retweets
+RT @Soulincanvas: Cute hug
+[Permalink](https://twitter.com/fernandeznorona/status/1653123972022542342) | 0 Me Gusta | 927 Retweets

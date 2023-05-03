@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 16:14:54
+**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 19:54:15
 *****
-Ya voy rumbo a la casa. Espero que en unos 25 minutos en hicimos la video charla.
-[Permalink](https://twitter.com/fernandeznorona/status/1653553684477870082) | 20 Me Gusta | 5 Retweets
+RT @SupsipS: Encontrando la verdadera vocación...
+[Permalink](https://twitter.com/fernandeznorona/status/1653608885050064897) | 0 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 15:53:05
+**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 19:52:57
 *****
-RT @naocrochet: Ya listo Noroña a crochet, muñeco tejido, mide 24 cm tiene estructura de alambre para permitir doblar brazos y piernas. #no…
-[Permalink](https://twitter.com/fernandeznorona/status/1653548194138148865) | 0 Me Gusta | 17 Retweets
+Éste es el cuadro que no vi de la encuesta de ayer.
+[Permalink](https://twitter.com/fernandeznorona/status/1653608557454163968) | 63 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 15:52:44
+**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 19:49:41
 *****
-Lo quiero.
-[Permalink](https://twitter.com/fernandeznorona/status/1653548105273311232) | 19 Me Gusta | 6 Retweets
+Un dato que no había observado de la encuesta que compartí ayer, es que, sobre quien deba ser el candidato del movimiento me reconoce 7%, en tercer lugar. Le da 42 % a @Claudiashein y 29% a @m_ebrard.
+[Permalink](https://twitter.com/fernandeznorona/status/1653607736951681025) | 42 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 15:51:39
+**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 18:58:54
 *****
-Este tiliche aterrizó un poco bruscamente @VivaAerobus. Ya llegamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1653547835130798080) | 18 Me Gusta | 4 Retweets
+Ha vendido.
+[Permalink](https://twitter.com/fernandeznorona/status/1653594954311286785) | 30 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 13:40:05
+**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 18:57:53
 *****
-Al avión. Este inchi teléfono pone lo que le da la gana.
-[Permalink](https://twitter.com/fernandeznorona/status/1653514723311206400) | 31 Me Gusta | 2 Retweets
+Quisieran. Sienten peligrar a la persona que apoyan y por eso la descalificación. Nadie se ocupa de lo intrascendente. Pero es lamentable que @julioastillero se plantee desconocedor de la realización del sondeo callejero.
+[Permalink](https://twitter.com/fernandeznorona/status/1653594699033370624) | 52 Me Gusta | 20 Retweets

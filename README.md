@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 15:49:05
+**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 20:55:09
 *****
-De hecho, yo iré al Estado de México este fin de semana. @mario_delgado.
-[Permalink](https://twitter.com/fernandeznorona/status/1653909576947834880) | 70 Me Gusta | 21 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1653986598533627905) | 19 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 15:46:56
+**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 20:54:47
 *****
-La agenda de esta semana.
-[Permalink](https://twitter.com/fernandeznorona/status/1653909032761950208) | 39 Me Gusta | 16 Retweets
+Se vio generoso. Son simples repetidores, las mentiras las arman en la embajada de Estados Unidos.
+[Permalink](https://twitter.com/fernandeznorona/status/1653986507278143488) | 60 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 13:56:07
+**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 20:49:21
 *****
-Pues yo.
-[Permalink](https://twitter.com/fernandeznorona/status/1653881144176263169) | 152 Me Gusta | 30 Retweets
+Si soy, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1653985139985350657) | 49 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 13:54:49
+**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 20:35:22
 *****
-RT @JulietaRamirezP: Dice la Senadora @kenialopezr que nadie me conoce.
-
-
-Ser representante no es competencia de popularidad, aunque a ella…
-[Permalink](https://twitter.com/fernandeznorona/status/1653880817859411971) | 0 Me Gusta | 773 Retweets
+RT @MoneroTeta:
+[Permalink](https://twitter.com/fernandeznorona/status/1653981618703597569) | 0 Me Gusta | 301 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 12:32:35
+**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 20:34:18
 *****
-Señorito X, @ClaudioXGG ¿No te cansas de hacer el ridículo? ¡Pobre!
-[Permalink](https://twitter.com/fernandeznorona/status/1653860123138224129) | 70 Me Gusta | 19 Retweets
+Por cierto, por si estaban con el pendiente, ya llegué a Pueblo quieto. Mañana iré con mi maestra la montaña.
+[Permalink](https://twitter.com/fernandeznorona/status/1653981352109420549) | 63 Me Gusta | 4 Retweets

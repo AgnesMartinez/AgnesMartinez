@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 20:55:09
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 09:57:29
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1653986598533627905) | 30 Me Gusta | 7 Retweets
+RT @lauralun03: @Marblanca3 @ActivoReco @fernandeznorona @HayTragones Puras patadas de ahogados dan pues!
+[Permalink](https://twitter.com/fernandeznorona/status/1654183478244659211) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 20:54:47
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 09:13:11
 *****
-Se vio generoso. Son simples repetidores, las mentiras las arman en la embajada de Estados Unidos.
-[Permalink](https://twitter.com/fernandeznorona/status/1653986507278143488) | 99 Me Gusta | 18 Retweets
+Aquí te hablan señoritoX @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1654172329906143254) | 20 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 20:49:21
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 09:12:38
 *****
-Si soy, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1653985139985350657) | 71 Me Gusta | 11 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1654172195029909506) | 35 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 20:35:22
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 09:12:10
 *****
-RT @MoneroTeta:
-[Permalink](https://twitter.com/fernandeznorona/status/1653981618703597569) | 0 Me Gusta | 304 Retweets
+Las leyó en lo que estudiaba tu explicación sobre las funciones del @INAImexico, @Mzavalagc.
+[Permalink](https://twitter.com/fernandeznorona/status/1654172074053599248) | 99 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 20:34:18
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 09:06:56
 *****
-Por cierto, por si estaban con el pendiente, ya llegué a Pueblo quieto. Mañana iré con mi maestra la montaña.
-[Permalink](https://twitter.com/fernandeznorona/status/1653981352109420549) | 84 Me Gusta | 4 Retweets
+RT @CamMttz: Así agredieron y golpearon hoy a los vecinos por protestar contra @STaboadaMx . 
+
+
+Ayuden a difundir para denunciar el abuso. h…
+[Permalink](https://twitter.com/fernandeznorona/status/1654170757746900992) | 0 Me Gusta | 724 Retweets

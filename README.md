@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 07:45:49
+**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 15:49:05
 *****
-@satyagraha_yo @Marilu86053 @m_ebrard Presidenciables.
-[Permalink](https://twitter.com/fernandeznorona/status/1653787958103687174) | 17 Me Gusta | 2 Retweets
+De hecho, yo iré al Estado de México este fin de semana. @mario_delgado.
+[Permalink](https://twitter.com/fernandeznorona/status/1653909576947834880) | 70 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 19:54:15
+**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 15:46:56
 *****
-RT @SupsipS: Encontrando la verdadera vocación...
-[Permalink](https://twitter.com/fernandeznorona/status/1653608885050064897) | 0 Me Gusta | 17 Retweets
+La agenda de esta semana.
+[Permalink](https://twitter.com/fernandeznorona/status/1653909032761950208) | 39 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 19:52:57
+**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 13:56:07
 *****
-Éste es el cuadro que no vi de la encuesta de ayer.
-[Permalink](https://twitter.com/fernandeznorona/status/1653608557454163968) | 135 Me Gusta | 22 Retweets
+Pues yo.
+[Permalink](https://twitter.com/fernandeznorona/status/1653881144176263169) | 152 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 19:49:41
+**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 13:54:49
 *****
-Un dato que no había observado de la encuesta que compartí ayer, es que, sobre quien deba ser el candidato del movimiento me reconoce 7%, en tercer lugar. Le da 42 % a @Claudiashein y 29% a @m_ebrard.
-[Permalink](https://twitter.com/fernandeznorona/status/1653607736951681025) | 70 Me Gusta | 11 Retweets
+RT @JulietaRamirezP: Dice la Senadora @kenialopezr que nadie me conoce.
+
+
+Ser representante no es competencia de popularidad, aunque a ella…
+[Permalink](https://twitter.com/fernandeznorona/status/1653880817859411971) | 0 Me Gusta | 773 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-05-2023 a las 18:58:54
+**Fernández Noroña** (**@fernandeznorona**) • 03-05-2023 a las 12:32:35
 *****
-Ha vendido.
-[Permalink](https://twitter.com/fernandeznorona/status/1653594954311286785) | 36 Me Gusta | 1 Retweets
+Señorito X, @ClaudioXGG ¿No te cansas de hacer el ridículo? ¡Pobre!
+[Permalink](https://twitter.com/fernandeznorona/status/1653860123138224129) | 70 Me Gusta | 19 Retweets

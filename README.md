@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 09:57:29
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 13:57:34
 *****
-RT @lauralun03: @Marblanca3 @ActivoReco @fernandeznorona @HayTragones Puras patadas de ahogados dan pues!
-[Permalink](https://twitter.com/fernandeznorona/status/1654183478244659211) | 0 Me Gusta | 4 Retweets
+Muchas felicidades a @save__alejandro, me entero que es su cumpleaños. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1654243900423372802) | 33 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 09:13:11
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 13:55:21
 *****
-Aquí te hablan señoritoX @ClaudioXGG.
-[Permalink](https://twitter.com/fernandeznorona/status/1654172329906143254) | 20 Me Gusta | 9 Retweets
+Esa serpiente es espectacular.
+[Permalink](https://twitter.com/fernandeznorona/status/1654243341947793408) | 60 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 09:12:38
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 13:13:54
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1654172195029909506) | 35 Me Gusta | 8 Retweets
+No, pues gracias por la exclusión @RicardoMonrealA. Soy el único unitario y siguen de sectarios. Pues no podrán dejarme fuera, hagan lo que hagan.
+[Permalink](https://twitter.com/fernandeznorona/status/1654232911590350849) | 281 Me Gusta | 74 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 09:12:10
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 13:11:10
 *****
-Las leyó en lo que estudiaba tu explicación sobre las funciones del @INAImexico, @Mzavalagc.
-[Permalink](https://twitter.com/fernandeznorona/status/1654172074053599248) | 99 Me Gusta | 35 Retweets
+@taller2006 Sectario, inútil. Saludos.
+[Permalink](https://twitter.com/fernandeznorona/status/1654232221488926722) | 20 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 09:06:56
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 11:34:34
 *****
-RT @CamMttz: Así agredieron y golpearon hoy a los vecinos por protestar contra @STaboadaMx . 
-
-
-Ayuden a difundir para denunciar el abuso. h…
-[Permalink](https://twitter.com/fernandeznorona/status/1654170757746900992) | 0 Me Gusta | 724 Retweets
+Nuevo incendio, ahora en Amatlán. La ⁦@GN_MEXICO_⁩ auxiliando.
+[Permalink](https://twitter.com/fernandeznorona/status/1654207912145981459) | 35 Me Gusta | 10 Retweets

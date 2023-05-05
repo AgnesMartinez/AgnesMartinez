@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 20:09:02
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 09:08:33
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1654337379614748672) | 62 Me Gusta | 6 Retweets
+RT @santiagobaeza: Ya me siento tan fifí cómo @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1654533554876092418) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 19:59:40
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 08:41:40
 *****
-Yo, por más que quieran excluirme.
-[Permalink](https://twitter.com/fernandeznorona/status/1654335023909044226) | 175 Me Gusta | 25 Retweets
+“Si el viejo William James tenía razón y la felicidad consiste en vivir en la cúspide de la energía y nosotros estamos aquí para perseguir la felicidad, la locura es, en este caso, una pura bendición, y tiene también su sanción política suprema”. Humboldt.
+[Permalink](https://twitter.com/fernandeznorona/status/1654526787190128647) | 19 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 19:53:46
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 08:37:21
 *****
-RT @LJyDMX: #TlaxcalaConNoroña
-[Permalink](https://twitter.com/fernandeznorona/status/1654333540757061632) | 0 Me Gusta | 52 Retweets
+Muchas gracias. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1654525701125488640) | 77 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 17:47:49
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 08:34:10
 *****
-El señorito X es miserable @ClaudioXGG.
-[Permalink](https://twitter.com/fernandeznorona/status/1654301843399270400) | 368 Me Gusta | 95 Retweets
+Yo. Pero será en seis meses.
+[Permalink](https://twitter.com/fernandeznorona/status/1654524901867257858) | 43 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 17:47:18
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 08:32:33
 *****
-RT @rosendomarind: El domingo 7 de mayo 16 hrs Gerardo  ⁦@fernandeznorona⁩ en apoyo a ⁦@delfinagomeza⁩
-Av. R-1 esq Suterm Col. Río de Luz
-E…
-[Permalink](https://twitter.com/fernandeznorona/status/1654301711748530177) | 0 Me Gusta | 39 Retweets
+Notición. Que les avisen a los que todavía andan con cubrebocas. Cretinazos de la @opsoms.
+[Permalink](https://twitter.com/fernandeznorona/status/1654524491567886337) | 99 Me Gusta | 30 Retweets

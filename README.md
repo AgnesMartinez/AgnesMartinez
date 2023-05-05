@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 13:57:34
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 20:09:02
 *****
-Muchas felicidades a @save__alejandro, me entero que es su cumpleaños. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1654243900423372802) | 33 Me Gusta | 7 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1654337379614748672) | 53 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 13:55:21
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 19:59:40
 *****
-Esa serpiente es espectacular.
-[Permalink](https://twitter.com/fernandeznorona/status/1654243341947793408) | 60 Me Gusta | 7 Retweets
+Yo, por más que quieran excluirme.
+[Permalink](https://twitter.com/fernandeznorona/status/1654335023909044226) | 133 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 13:13:54
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 19:53:46
 *****
-No, pues gracias por la exclusión @RicardoMonrealA. Soy el único unitario y siguen de sectarios. Pues no podrán dejarme fuera, hagan lo que hagan.
-[Permalink](https://twitter.com/fernandeznorona/status/1654232911590350849) | 281 Me Gusta | 74 Retweets
+RT @LJyDMX: #TlaxcalaConNoroña
+[Permalink](https://twitter.com/fernandeznorona/status/1654333540757061632) | 0 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 13:11:10
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 17:47:49
 *****
-@taller2006 Sectario, inútil. Saludos.
-[Permalink](https://twitter.com/fernandeznorona/status/1654232221488926722) | 20 Me Gusta | 2 Retweets
+El señorito X es miserable @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1654301843399270400) | 320 Me Gusta | 81 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 11:34:34
+**Fernández Noroña** (**@fernandeznorona**) • 04-05-2023 a las 17:47:18
 *****
-Nuevo incendio, ahora en Amatlán. La ⁦@GN_MEXICO_⁩ auxiliando.
-[Permalink](https://twitter.com/fernandeznorona/status/1654207912145981459) | 35 Me Gusta | 10 Retweets
+RT @rosendomarind: El domingo 7 de mayo 16 hrs Gerardo  ⁦@fernandeznorona⁩ en apoyo a ⁦@delfinagomeza⁩
+Av. R-1 esq Suterm Col. Río de Luz
+E…
+[Permalink](https://twitter.com/fernandeznorona/status/1654301711748530177) | 0 Me Gusta | 32 Retweets

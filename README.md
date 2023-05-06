@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 09:08:33
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 15:33:14
 *****
-RT @santiagobaeza: Ya me siento tan fifí cómo @fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1654533554876092418) | 0 Me Gusta | 7 Retweets
+Eso dijo @RicardoMeb y debe asumir sus palabras, pero es totalmente incorrecto que no pongas la fecha en que lo dijo. Ya están igual que la derecha.
+[Permalink](https://twitter.com/fernandeznorona/status/1654630360486117376) | 41 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 08:41:40
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 15:30:12
 *****
-“Si el viejo William James tenía razón y la felicidad consiste en vivir en la cúspide de la energía y nosotros estamos aquí para perseguir la felicidad, la locura es, en este caso, una pura bendición, y tiene también su sanción política suprema”. Humboldt.
-[Permalink](https://twitter.com/fernandeznorona/status/1654526787190128647) | 19 Me Gusta | 6 Retweets
+RT @_BarbaraCabrera: La de @El_Universal_Mx es #FakeNews, @Pemex ha dado la información correcta 👉 no hay un incendio en las unidades de la…
+[Permalink](https://twitter.com/fernandeznorona/status/1654629596913090560) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 08:37:21
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 15:29:55
 *****
-Muchas gracias. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1654525701125488640) | 77 Me Gusta | 18 Retweets
+Mientes como respiras, señorito X @ClaudioXGG. Te reto a que demuestres que dijo lo que sostienes.
+[Permalink](https://twitter.com/fernandeznorona/status/1654629527056945152) | 79 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 08:34:10
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 15:20:25
 *****
-Yo. Pero será en seis meses.
-[Permalink](https://twitter.com/fernandeznorona/status/1654524901867257858) | 43 Me Gusta | 6 Retweets
+RT @GabyEspiritu3: @JesusMartinMx @PartidoMorenaMx OBRADOR PRESIDENTE NOROÑA EL SIGUIENTE 🇲🇽🥰🇲🇽🥰🇲🇽
+[Permalink](https://twitter.com/fernandeznorona/status/1654627137264173056) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 08:32:33
+**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 15:20:17
 *****
-Notición. Que les avisen a los que todavía andan con cubrebocas. Cretinazos de la @opsoms.
-[Permalink](https://twitter.com/fernandeznorona/status/1654524491567886337) | 99 Me Gusta | 30 Retweets
+Ya se aclaró que fue en @Shell_USA y es la hora que ustedes no corrigen.
+[Permalink](https://twitter.com/fernandeznorona/status/1654627103273537536) | 268 Me Gusta | 125 Retweets

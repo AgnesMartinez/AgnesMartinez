@@ -1,34 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 20:58:24
+**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 13:27:12
 *****
-Uh, éste debe ser de 2013.
-[Permalink](https://twitter.com/fernandeznorona/status/1654712192737116160) | 37 Me Gusta | 8 Retweets
+Un priísta de la vieja guardia.
+[Permalink](https://twitter.com/fernandeznorona/status/1654961031490224132) | 32 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 18:44:43
+**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 12:36:54
 *****
-¡Cuánto respeto a la libertad de expresión en la @IberoPuebla!
-[Permalink](https://twitter.com/fernandeznorona/status/1654678550698676225) | 558 Me Gusta | 145 Retweets
+RT @Arman_doCA: @LJyDMX Sabado 20 de mayo
+ en la Plaza del Mariachi
+a las 5pm (6pm hora del centro de CDMX)
+[Permalink](https://twitter.com/fernandeznorona/status/1654948375131766784) | 0 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 18:43:23
+**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 12:29:52
 *****
-RT @DavidVargasA18: El profesor de Filosofía de la Ibero-Puebla, Eduardo Sabugal protesta contra Lorenzo Cordova: 
-
-
-Es un racista y clasist…
-[Permalink](https://twitter.com/fernandeznorona/status/1654678214474702849) | 0 Me Gusta | 1,425 Retweets
+Agenda corregida.
+[Permalink](https://twitter.com/fernandeznorona/status/1654946606033108993) | 43 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 18:38:39
+**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 11:15:39
 *****
-Naa, pero qué bestia es el cabeza hueca de @VicenteFoxQue.
-[Permalink](https://twitter.com/fernandeznorona/status/1654677025532289024) | 98 Me Gusta | 23 Retweets
+Naa, la posición antiimperialista no está peleada con los viajes y el conocimiento y disfrute que de ahí deriva. Además, no son excluyentes. Puedes ir a Cuba y a Europa.
+[Permalink](https://twitter.com/fernandeznorona/status/1654927925320495105) | 43 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-05-2023 a las 18:35:05
+**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 11:13:17
 *****
-RT @jzvideo: Asistente de la gasolinera:
-Disculpe, no se permite fumar, apague su cigarro.
-El cliente:
-Oblígame!
-Asistente:
-Como usted quie…
-[Permalink](https://twitter.com/fernandeznorona/status/1654676127888310272) | 0 Me Gusta | 234 Retweets
+Ya en Toluca, a diez minutos del lugar.
+[Permalink](https://twitter.com/fernandeznorona/status/1654927332447072256) | 77 Me Gusta | 12 Retweets

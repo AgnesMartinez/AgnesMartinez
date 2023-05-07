@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 13:27:12
+**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 19:37:50
 *****
-Un priísta de la vieja guardia.
-[Permalink](https://twitter.com/fernandeznorona/status/1654961031490224132) | 32 Me Gusta | 10 Retweets
+Lawfare, corrijo, en Colombia se prepara un golpe de estado en nombre de la ley.
+[Permalink](https://twitter.com/fernandeznorona/status/1655054305286815747) | 56 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 12:36:54
+**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 19:08:33
 *****
-RT @Arman_doCA: @LJyDMX Sabado 20 de mayo
- en la Plaza del Mariachi
-a las 5pm (6pm hora del centro de CDMX)
-[Permalink](https://twitter.com/fernandeznorona/status/1654948375131766784) | 0 Me Gusta | 8 Retweets
+En Colombia se dan los pasos para aplicar el Lawfer, golpe de estado en nombre de la ley. La Corte colombiana impulsa al fiscal golpista contra el presidente @petrogustavo. Toda nuestra solidaridad.
+[Permalink](https://twitter.com/fernandeznorona/status/1655046935118577670) | 240 Me Gusta | 103 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 12:29:52
+**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 18:31:40
 *****
-Agenda corregida.
-[Permalink](https://twitter.com/fernandeznorona/status/1654946606033108993) | 43 Me Gusta | 17 Retweets
+Jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1655037653169864709) | 29 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 11:15:39
+**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 18:12:31
 *****
-Naa, la posición antiimperialista no está peleada con los viajes y el conocimiento y disfrute que de ahí deriva. Además, no son excluyentes. Puedes ir a Cuba y a Europa.
-[Permalink](https://twitter.com/fernandeznorona/status/1654927925320495105) | 43 Me Gusta | 6 Retweets
+A ninguno mi estimado Dr. Chapatín @JesusMartinMx. Cuando tengas un finalista, lo pones a competir conmigo. Besitos.
+[Permalink](https://twitter.com/fernandeznorona/status/1655032836179603456) | 81 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 11:13:17
+**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 18:07:49
 *****
-Ya en Toluca, a diez minutos del lugar.
-[Permalink](https://twitter.com/fernandeznorona/status/1654927332447072256) | 77 Me Gusta | 12 Retweets
+RT @TabascoHOY: #Columna✍| Sondeo callejero | En opinión de @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1655031650412027905) | 0 Me Gusta | 12 Retweets

@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 15:58:29
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 19:54:00
 *****
-Ecatepec hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1655361491829399552) | 45 Me Gusta | 13 Retweets
+Lo terminé. Muy buen libro, es un gran escritor Saul Bellow.
+[Permalink](https://twitter.com/fernandeznorona/status/1655420760574533632) | 58 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 15:56:37
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 19:16:32
 *****
-Ecatepec, hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1655361022692331520) | 60 Me Gusta | 21 Retweets
+Pues tú siempre te saltas el artículo que dice que nadie puede ganar más que el presidente de la República. ¿Me podrías decir en qué parte de la Constitución se sostuvo tu sueldo millonario?@lorenzocordovav #LorenzoSeHaceLorenzo.
+[Permalink](https://twitter.com/fernandeznorona/status/1655411334282870784) | 601 Me Gusta | 221 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 15:48:29
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 19:14:34
 *****
-Él solo fue insolente y falso. NO me han invitado.
-[Permalink](https://twitter.com/fernandeznorona/status/1655358974105886723) | 33 Me Gusta | 6 Retweets
+Es ociosa e insidiosa tu pregunta, pero te respondo. El movimiento conservaría a la presidencia de la República y a quien rompiera por ambición, se lo chuparía la bruja.
+[Permalink](https://twitter.com/fernandeznorona/status/1655410836897255426) | 60 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 15:41:12
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 19:11:36
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1655357144374337537) | 15 Me Gusta | 2 Retweets
+RT @EricV_Garcia: Les presumo la foto con el Dip. @fernandeznorona. 👊❤️
+Por fin se me hizo conocerlo y tener una foto. 🙏
+[Permalink](https://twitter.com/fernandeznorona/status/1655410090118115329) | 0 Me Gusta | 44 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 14:10:19
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 19:11:03
 *****
-No, no miento. No me han invitado. Exijo que seas cuidadoso con tus palabras. Yo siempre te he tratado con respeto y tú llevas rato injuriándome @alvaro_delgado.
-[Permalink](https://twitter.com/fernandeznorona/status/1655334272683720706) | 187 Me Gusta | 54 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1655409954784772097) | 13 Me Gusta | 3 Retweets

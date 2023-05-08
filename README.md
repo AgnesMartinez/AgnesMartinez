@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 07:58:16
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 15:58:29
 *****
-RT @AleCamph: Mi #Popocatepetl que miedo pero que hermoso 😍
-[Permalink](https://twitter.com/fernandeznorona/status/1655240639980662786) | 0 Me Gusta | 21 Retweets
+Ecatepec hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1655361491829399552) | 45 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 19:37:50
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 15:56:37
 *****
-Lawfare, corrijo, en Colombia se prepara un golpe de estado en nombre de la ley.
-[Permalink](https://twitter.com/fernandeznorona/status/1655054305286815747) | 99 Me Gusta | 40 Retweets
+Ecatepec, hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1655361022692331520) | 60 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 19:08:33
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 15:48:29
 *****
-En Colombia se dan los pasos para aplicar el Lawfer, golpe de estado en nombre de la ley. La Corte colombiana impulsa al fiscal golpista contra el presidente @petrogustavo. Toda nuestra solidaridad.
-[Permalink](https://twitter.com/fernandeznorona/status/1655046935118577670) | 414 Me Gusta | 158 Retweets
+Él solo fue insolente y falso. NO me han invitado.
+[Permalink](https://twitter.com/fernandeznorona/status/1655358974105886723) | 33 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 18:31:40
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 15:41:12
 *****
-Jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1655037653169864709) | 41 Me Gusta | 8 Retweets
+Naa.
+[Permalink](https://twitter.com/fernandeznorona/status/1655357144374337537) | 15 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-05-2023 a las 18:12:31
+**Fernández Noroña** (**@fernandeznorona**) • 07-05-2023 a las 14:10:19
 *****
-A ninguno mi estimado Dr. Chapatín @JesusMartinMx. Cuando tengas un finalista, lo pones a competir conmigo. Besitos.
-[Permalink](https://twitter.com/fernandeznorona/status/1655032836179603456) | 109 Me Gusta | 22 Retweets
+No, no miento. No me han invitado. Exijo que seas cuidadoso con tus palabras. Yo siempre te he tratado con respeto y tú llevas rato injuriándome @alvaro_delgado.
+[Permalink](https://twitter.com/fernandeznorona/status/1655334272683720706) | 187 Me Gusta | 54 Retweets

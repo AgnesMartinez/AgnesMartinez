@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 15:29:33
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 22:03:36
 *****
-RT @03690jul: "Cada ser humano que ama la libertad, debe más agradecimiento al Ejército Rojo del que pueda pagar en su vida"
-
-
-Ernest Heming…
-[Permalink](https://twitter.com/fernandeznorona/status/1656078984856195072) | 0 Me Gusta | 322 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1656178151125315584) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 15:27:26
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 21:57:25
 *****
-RT @HLGatell: A partir de la declaratoria de la @WHO, que pone fin a la emergencia sanitaria por #COVID19, el Gobierno de México también to…
-[Permalink](https://twitter.com/fernandeznorona/status/1656078452699668481) | 0 Me Gusta | 664 Retweets
+Lo dice quien compartió la usurpación de la presidencia de la República de 2006 a 2012. Ay @Mzavalagc,  la palabra vergüenza no existe en el vocabulario de tu familia.
+[Permalink](https://twitter.com/fernandeznorona/status/1656176597638971392) | 30 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 15:26:35
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 21:51:59
 *****
-Estimada compañera y amiga, ¿cómo se alcanza la mayoría calificada votando solo por @PartidoMorenaMx? Si arrasáramos sólo con MORENA, lo más que podríamos tener son 300 diputados y se necesitan 330.
-[Permalink](https://twitter.com/fernandeznorona/status/1656078238504943616) | 390 Me Gusta | 117 Retweets
+Agenda de la semana.
+[Permalink](https://twitter.com/fernandeznorona/status/1656175229381799936) | 15 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 15:24:53
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 21:46:06
 *****
-RT @Arquithierry: La oligarquía en acción
-[Permalink](https://twitter.com/fernandeznorona/status/1656077810388160512) | 0 Me Gusta | 6 Retweets
+Miren lo que me encontré, mis chayotes protectores. Ya ni me acordaba.
+[Permalink](https://twitter.com/fernandeznorona/status/1656173747286712320) | 50 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 15:24:22
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 21:14:35
 *****
-RT @PalosMartin: Ya me llegaron otros 2 nuevos libros del @CE_MXdiputados. Este semana por las noches le seguiremos dando tiempo a la lectu…
-[Permalink](https://twitter.com/fernandeznorona/status/1656077681258053633) | 0 Me Gusta | 6 Retweets
+Así ha sido en todos los procesos. Es la figura que se crea para después asumirlo como candidato. Revisa todos los procesos anteriores. En eso estás profundamente equivocada.
+[Permalink](https://twitter.com/fernandeznorona/status/1656165817493364737) | 27 Me Gusta | 6 Retweets

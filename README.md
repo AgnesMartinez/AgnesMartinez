@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 22:03:36
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 09:55:55
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1656178151125315584) | 43 Me Gusta | 7 Retweets
+Otra vez hablándote al espejo cabeza hueca @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1656357414227017734) | 50 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 21:57:25
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 09:54:22
 *****
-Lo dice quien compartió la usurpación de la presidencia de la República de 2006 a 2012. Ay @Mzavalagc,  la palabra vergüenza no existe en el vocabulario de tu familia.
-[Permalink](https://twitter.com/fernandeznorona/status/1656176597638971392) | 175 Me Gusta | 57 Retweets
+Jejeje ¡qué bonito! Felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1656357021531230209) | 22 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 21:51:59
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 09:53:04
 *****
-Agenda de la semana.
-[Permalink](https://twitter.com/fernandeznorona/status/1656175229381799936) | 33 Me Gusta | 5 Retweets
+RT @orlando_jpg: Está hecho un gigante el compañero Dip. @fernandeznorona y ahora que le dicen doctor me hace recordar a otro gigante el DR…
+[Permalink](https://twitter.com/fernandeznorona/status/1656356697005338625) | 0 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 21:46:06
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 09:38:33
 *****
-Miren lo que me encontré, mis chayotes protectores. Ya ni me acordaba.
-[Permalink](https://twitter.com/fernandeznorona/status/1656173747286712320) | 117 Me Gusta | 16 Retweets
+Aquí con mi madre. Ella murió el 21 de septiembre de 2017. Larga vida a Rosa María Noroña Velázquez.
+[Permalink](https://twitter.com/fernandeznorona/status/1656353040805548033) | 332 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 21:14:35
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 09:35:57
 *****
-Así ha sido en todos los procesos. Es la figura que se crea para después asumirlo como candidato. Revisa todos los procesos anteriores. En eso estás profundamente equivocada.
-[Permalink](https://twitter.com/fernandeznorona/status/1656165817493364737) | 37 Me Gusta | 7 Retweets
+Fíjate que ahí no coincido, quien rompa por ambición se lo chupa la bruja.
+[Permalink](https://twitter.com/fernandeznorona/status/1656352389279121410) | 21 Me Gusta | 4 Retweets

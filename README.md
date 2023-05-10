@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 09:46:42
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 15:29:33
 *****
-Agenda de esta semana.
-[Permalink](https://twitter.com/fernandeznorona/status/1655992705338441728) | 23 Me Gusta | 9 Retweets
+RT @03690jul: "Cada ser humano que ama la libertad, debe más agradecimiento al Ejército Rojo del que pueda pagar en su vida"
+
+
+Ernest Heming…
+[Permalink](https://twitter.com/fernandeznorona/status/1656078984856195072) | 0 Me Gusta | 322 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 07:19:46
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 15:27:26
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1655955727913984002) | 132 Me Gusta | 46 Retweets
+RT @HLGatell: A partir de la declaratoria de la @WHO, que pone fin a la emergencia sanitaria por #COVID19, el Gobierno de México también to…
+[Permalink](https://twitter.com/fernandeznorona/status/1656078452699668481) | 0 Me Gusta | 664 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-05-2023 a las 19:53:30
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 15:26:35
 *****
-“Si nuestras acciones no se corresponden con lo que afirmamos, nuestra valía queda mermada”. Julia ‘Butterfly’ Hill.
-[Permalink](https://twitter.com/fernandeznorona/status/1655783024422981632) | 74 Me Gusta | 25 Retweets
+Estimada compañera y amiga, ¿cómo se alcanza la mayoría calificada votando solo por @PartidoMorenaMx? Si arrasáramos sólo con MORENA, lo más que podríamos tener son 300 diputados y se necesitan 330.
+[Permalink](https://twitter.com/fernandeznorona/status/1656078238504943616) | 390 Me Gusta | 117 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-05-2023 a las 18:45:11
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 15:24:53
 *****
-Y NO tiene ningún derecho a excluir a nadie, por remota o imposible que sea su posibilidad de triunfo.
-[Permalink](https://twitter.com/fernandeznorona/status/1655765830418808834) | 57 Me Gusta | 9 Retweets
+RT @Arquithierry: La oligarquía en acción
+[Permalink](https://twitter.com/fernandeznorona/status/1656077810388160512) | 0 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-05-2023 a las 18:45:10
+**Fernández Noroña** (**@fernandeznorona**) • 09-05-2023 a las 15:24:22
 *****
-Eso no está a discusión. Lo que se reclama es la exclusión y la descalificación sin argumentos. Tú dices que no tengo posibilidades, pero no tienes ninguna obligación de sustentar tu opinión, no eres comunicador. La otra persona si está obligada a sustentar su dicho..
-[Permalink](https://twitter.com/fernandeznorona/status/1655765828187439105) | 93 Me Gusta | 22 Retweets
+RT @PalosMartin: Ya me llegaron otros 2 nuevos libros del @CE_MXdiputados. Este semana por las noches le seguiremos dando tiempo a la lectu…
+[Permalink](https://twitter.com/fernandeznorona/status/1656077681258053633) | 0 Me Gusta | 6 Retweets

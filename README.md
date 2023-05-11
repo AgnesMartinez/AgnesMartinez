@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 13:41:42
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 20:13:35
 *****
-RT @PollsMX_: De acuerdo con la encuesta de Cripeso, de esta manera se encuentran las preferencias electorales por los distintos aspirantes…
-[Permalink](https://twitter.com/fernandeznorona/status/1656414232920076289) | 0 Me Gusta | 19 Retweets
+En el Estado de México.
+[Permalink](https://twitter.com/fernandeznorona/status/1656512855594913793) | 77 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 13:40:31
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 20:12:33
 *****
-Pues ya son diversas mediciones que me ubican en tercer lugar, para los que insisten en excluirme. Estoy más que incluido.
-[Permalink](https://twitter.com/fernandeznorona/status/1656413936848367616) | 193 Me Gusta | 47 Retweets
+Corrijo, @CE_MXdiputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1656512593912266752) | 30 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 13:35:49
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 20:11:45
 *****
-RT @andrespaezdi: Feliz día
-[Permalink](https://twitter.com/fernandeznorona/status/1656412753098342400) | 0 Me Gusta | 10 Retweets
+Lo terminé, extraordinaria historia de lucha. Buscaré publicarlo en el @cemx_diputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1656512391532908545) | 58 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 13:31:24
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 19:43:14
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1656411640840200192) | 63 Me Gusta | 20 Retweets
+RT @RocoAlbarrn2:
+[Permalink](https://twitter.com/fernandeznorona/status/1656505217058258946) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 13:00:49
+**Fernández Noroña** (**@fernandeznorona**) • 10-05-2023 a las 19:15:26
 *****
-RT @FundacionToby: El día de hoy no es un día feliz.
-
-
-Hoy Nasha fue envenenadada, tenemos que subir la barda ya que nos avientan cosas que…
-[Permalink](https://twitter.com/fernandeznorona/status/1656403942522363904) | 0 Me Gusta | 1,227 Retweets
+RT @LauraFez32: Resulta que el individuo que ayer lanzó escupitajos e insultos a dos jovenes en plaza arts, es el achichincle de la Ministr…
+[Permalink](https://twitter.com/fernandeznorona/status/1656498220317409281) | 0 Me Gusta | 1,157 Retweets

@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 22:00:58
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 09:56:14
 *****
-No saben lo que me pasó, no pude entrar a mi departamento. Ya les platicaré la historia.
-[Permalink](https://twitter.com/fernandeznorona/status/1656902265830281216) | 151 Me Gusta | 25 Retweets
+RT @MaraMen88320214: Fuera el PRI.
+[Permalink](https://twitter.com/fernandeznorona/status/1657082266667851777) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 22:00:09
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 09:13:49
 *****
-La agenda de estos días.
-[Permalink](https://twitter.com/fernandeznorona/status/1656902061156618240) | 28 Me Gusta | 3 Retweets
+RT @HoyPalestina: Un niño palestino llora sobre los escombros de su casa destruida por aviónes de guerra israelíes en la Franja de Gaza est…
+[Permalink](https://twitter.com/fernandeznorona/status/1657071595049844751) | 0 Me Gusta | 1,058 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 20:27:19
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 09:13:31
 *****
-Lo que tú nunca podrás tener cabeza hueca @VicenteFoxQue.
-[Permalink](https://twitter.com/fernandeznorona/status/1656878696119300096) | 217 Me Gusta | 50 Retweets
+@dejoselapiz @SantiagoCreelM @AccionNacional Transas.
+[Permalink](https://twitter.com/fernandeznorona/status/1657071518809980941) | 6 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 20:13:44
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 09:13:12
 *****
-Chicoloapan.
-[Permalink](https://twitter.com/fernandeznorona/status/1656875281318305792) | 68 Me Gusta | 12 Retweets
+No se quiere asumir que el respeto a los mexicanos en Estados Unidos sólo se logrará por una intensa lucha de nuestros compatriotas fuera de nuestras fronteras. El gobierno mexicano debe apoyar, pero nunca podrá sustituir esa lucha necesaria.
+[Permalink](https://twitter.com/fernandeznorona/status/1657071438069628942) | 26 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 20:13:24
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 08:25:35
 *****
-Chicoloapan.
-[Permalink](https://twitter.com/fernandeznorona/status/1656875193544105985) | 124 Me Gusta | 23 Retweets
+RT @williechirinos: COSAS QUE NO SABIAS
+
+
+Ronnie Bridgeman tenía solo 17 años cuando fue condenado a muerte junto a sus hermanos Ricky y Wil…
+[Permalink](https://twitter.com/fernandeznorona/status/1657059457342541824) | 0 Me Gusta | 1,427 Retweets

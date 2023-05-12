@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 09:32:18
+**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 14:25:03
 *****
-RT @MoneroTeta:
-[Permalink](https://twitter.com/fernandeznorona/status/1656713856184467473) | 0 Me Gusta | 277 Retweets
+RT @GobiernoMX: El presidente @lopezobrador_ propuso que los más de 20 mil millones de pesos de que disponen los ministros de la @SCJN, rep…
+[Permalink](https://twitter.com/fernandeznorona/status/1656787529578995714) | 0 Me Gusta | 250 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 09:28:48
+**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 14:24:52
 *****
-RT @ViAr_DAVID: 2) comparte en redes las vídeo Charlas e intervenciones de @fernandeznorona
-
-
-3) conoce las propuestas más importantes para…
-[Permalink](https://twitter.com/fernandeznorona/status/1656712976492118038) | 0 Me Gusta | 4 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1656787485689786369) | 222 Me Gusta | 64 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 09:28:41
+**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 14:24:04
 *****
-RT @ViAr_DAVID: Para quienes quieren apoyar a @fernandeznorona para lograr la candidatura del Movimiento (4T), es muy sencillo. 
-
-
-1) Coloca…
-[Permalink](https://twitter.com/fernandeznorona/status/1656712945705926661) | 0 Me Gusta | 6 Retweets
+Está jodido el asunto.
+[Permalink](https://twitter.com/fernandeznorona/status/1656787284249956353) | 14 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 07:48:29
+**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 14:18:00
 *****
-Yo estaba en Tepoztlán, se ve que estuvo cabrón. Acá no tembló. Qué bueno que estén todos bien.
-[Permalink](https://twitter.com/fernandeznorona/status/1656687731244687370) | 37 Me Gusta | 3 Retweets
+“Los políticos”, mal seguimos. Tú eres política y muy política. Como bien dice el compañero presidente, se confunde la politiquería con la política.
+[Permalink](https://twitter.com/fernandeznorona/status/1656785757712048128) | 20 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 07:46:12
+**Fernández Noroña** (**@fernandeznorona**) • 11-05-2023 a las 14:16:53
 *****
-Pero yo sí te la acepté desde hace más de un año y tuviste miedo, @CarlosLoret.
-[Permalink](https://twitter.com/fernandeznorona/status/1656687156797005826) | 1,124 Me Gusta | 387 Retweets
+Hampón. Ampón significa otra cosa.
+[Permalink](https://twitter.com/fernandeznorona/status/1656785474231623680) | 28 Me Gusta | 5 Retweets

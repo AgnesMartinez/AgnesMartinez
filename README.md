@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 15:44:13
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 21:10:49
 *****
-Estamos apenas tomando el segundo piso en el toreo rumbo a Guanajuato. Arela video charla por ahí de las 6:30 dónde podamos detenernos. Si puedo antes, antes.
-[Permalink](https://twitter.com/fernandeznorona/status/1657169841827069952) | 52 Me Gusta | 15 Retweets
+Cuando gustes, @terrible100 te atiende.
+[Permalink](https://twitter.com/fernandeznorona/status/1657252031558451202) | 94 Me Gusta | 12 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 21:09:14
+*****
+Apenas en San José Iturbide.
+[Permalink](https://twitter.com/fernandeznorona/status/1657251635221995524) | 29 Me Gusta | 5 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 19:13:35
+*****
+RT @jon_aleman7: Diputado @fernandeznorona los compañeros tienen un proyecto de reforestación urbana con especies nativas. Ya van varias de…
+[Permalink](https://twitter.com/fernandeznorona/status/1657222529470332932) | 0 Me Gusta | 14 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 13:55:12
 *****
 ¿Cómo se puede lograr ese objetivo?
-[Permalink](https://twitter.com/fernandeznorona/status/1657142404217200640) | 59 Me Gusta | 12 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1657142404217200640) | 88 Me Gusta | 23 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 13:39:34
 *****
 55 15 02 53 60 es WhatsApp.
-[Permalink](https://twitter.com/fernandeznorona/status/1657138472665186305) | 55 Me Gusta | 7 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 12:56:47
-*****
-RT @KRASNO620128:
-[Permalink](https://twitter.com/fernandeznorona/status/1657127703164735493) | 0 Me Gusta | 623 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 12:24:48
-*****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1657119658070233119) | 17 Me Gusta | 4 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1657138472665186305) | 70 Me Gusta | 10 Retweets

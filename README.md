@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 09:56:14
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 15:44:13
 *****
-RT @MaraMen88320214: Fuera el PRI.
-[Permalink](https://twitter.com/fernandeznorona/status/1657082266667851777) | 0 Me Gusta | 14 Retweets
+Estamos apenas tomando el segundo piso en el toreo rumbo a Guanajuato. Arela video charla por ahí de las 6:30 dónde podamos detenernos. Si puedo antes, antes.
+[Permalink](https://twitter.com/fernandeznorona/status/1657169841827069952) | 52 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 09:13:49
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 13:55:12
 *****
-RT @HoyPalestina: Un niño palestino llora sobre los escombros de su casa destruida por aviónes de guerra israelíes en la Franja de Gaza est…
-[Permalink](https://twitter.com/fernandeznorona/status/1657071595049844751) | 0 Me Gusta | 1,058 Retweets
+¿Cómo se puede lograr ese objetivo?
+[Permalink](https://twitter.com/fernandeznorona/status/1657142404217200640) | 59 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 09:13:31
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 13:39:34
 *****
-@dejoselapiz @SantiagoCreelM @AccionNacional Transas.
-[Permalink](https://twitter.com/fernandeznorona/status/1657071518809980941) | 6 Me Gusta | 0 Retweets
+55 15 02 53 60 es WhatsApp.
+[Permalink](https://twitter.com/fernandeznorona/status/1657138472665186305) | 55 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 09:13:12
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 12:56:47
 *****
-No se quiere asumir que el respeto a los mexicanos en Estados Unidos sólo se logrará por una intensa lucha de nuestros compatriotas fuera de nuestras fronteras. El gobierno mexicano debe apoyar, pero nunca podrá sustituir esa lucha necesaria.
-[Permalink](https://twitter.com/fernandeznorona/status/1657071438069628942) | 26 Me Gusta | 10 Retweets
+RT @KRASNO620128:
+[Permalink](https://twitter.com/fernandeznorona/status/1657127703164735493) | 0 Me Gusta | 623 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 08:25:35
+**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 12:24:48
 *****
-RT @williechirinos: COSAS QUE NO SABIAS
-
-
-Ronnie Bridgeman tenía solo 17 años cuando fue condenado a muerte junto a sus hermanos Ricky y Wil…
-[Permalink](https://twitter.com/fernandeznorona/status/1657059457342541824) | 0 Me Gusta | 1,427 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1657119658070233119) | 17 Me Gusta | 4 Retweets

@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 15:56:21
+**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 20:30:56
 *****
-Ya estamos en León. la video charla iniciará entre 6:10 y 6:15 PM.
-[Permalink](https://twitter.com/fernandeznorona/status/1657535284018311168) | 27 Me Gusta | 11 Retweets
+RT @LJyDMX: #ElPuebloDecideNoroñaSigue
+@fernandeznorona está en el ánimo del pueblo.
+[Permalink](https://twitter.com/fernandeznorona/status/1657604381783597057) | 0 Me Gusta | 33 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 15:07:23
+**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 20:28:52
 *****
-No. ¿Lla?
-[Permalink](https://twitter.com/fernandeznorona/status/1657522958376550404) | 38 Me Gusta | 2 Retweets
+RT @nancy_contra: EU donó 48.9 millones de pesos a ‘guerra sucia’ de Claudio X
+[Permalink](https://twitter.com/fernandeznorona/status/1657603864378458113) | 0 Me Gusta | 802 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 15:01:55
+**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 20:27:31
 *****
-RT @sevillacritico: Con el aval del oftalmólogo Enrique Graue y del ingeniero Luis Agustín Álvarez-Icaza, la @UNAM_MX recibió más de 270 mi…
-[Permalink](https://twitter.com/fernandeznorona/status/1657521582271614976) | 0 Me Gusta | 902 Retweets
+Tételas se lllaman, efectivamente.
+[Permalink](https://twitter.com/fernandeznorona/status/1657603522232213504) | 19 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 14:24:31
+**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 20:04:37
 *****
-Por cierto, sigo sin escuchar o leer un solo comentario de la oposición frente a la torpe declaración, racista y clasista del senador @JohnKennedyLA. Ni un solo dirigente o legislador opositor ha dicho nada. Será que comparten lo dicho.
-[Permalink](https://twitter.com/fernandeznorona/status/1657512172992200705) | 330 Me Gusta | 145 Retweets
+¿Por qué las luces del baño de un hotel son mejores que las del cuarto? Puedes leer mejor en el baño, que en la recámara.
+[Permalink](https://twitter.com/fernandeznorona/status/1657597762446282754) | 75 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 14:09:00
+**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 18:35:54
 *****
-Y yo con hambre, se ve buenísimo. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1657508268904677380) | 76 Me Gusta | 11 Retweets
+Mira @LetyVarela.
+[Permalink](https://twitter.com/fernandeznorona/status/1657575434786160640) | 49 Me Gusta | 21 Retweets

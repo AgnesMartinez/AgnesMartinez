@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 07:19:39
+**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 15:56:21
 *****
-RT @AnaMendoza1989: Ayudemos a difundir,  todo es en apoyo a nuestro Diputado.
-[Permalink](https://twitter.com/fernandeznorona/status/1657405250238570498) | 0 Me Gusta | 15 Retweets
+Ya estamos en León. la video charla iniciará entre 6:10 y 6:15 PM.
+[Permalink](https://twitter.com/fernandeznorona/status/1657535284018311168) | 27 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 21:10:49
+**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 15:07:23
 *****
-Cuando gustes, @terrible100 te atiende.
-[Permalink](https://twitter.com/fernandeznorona/status/1657252031558451202) | 287 Me Gusta | 52 Retweets
+No. ¿Lla?
+[Permalink](https://twitter.com/fernandeznorona/status/1657522958376550404) | 38 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 21:09:14
+**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 15:01:55
 *****
-Apenas en San José Iturbide.
-[Permalink](https://twitter.com/fernandeznorona/status/1657251635221995524) | 44 Me Gusta | 7 Retweets
+RT @sevillacritico: Con el aval del oftalmólogo Enrique Graue y del ingeniero Luis Agustín Álvarez-Icaza, la @UNAM_MX recibió más de 270 mi…
+[Permalink](https://twitter.com/fernandeznorona/status/1657521582271614976) | 0 Me Gusta | 902 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 19:13:35
+**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 14:24:31
 *****
-RT @jon_aleman7: Diputado @fernandeznorona los compañeros tienen un proyecto de reforestación urbana con especies nativas. Ya van varias de…
-[Permalink](https://twitter.com/fernandeznorona/status/1657222529470332932) | 0 Me Gusta | 15 Retweets
+Por cierto, sigo sin escuchar o leer un solo comentario de la oposición frente a la torpe declaración, racista y clasista del senador @JohnKennedyLA. Ni un solo dirigente o legislador opositor ha dicho nada. Será que comparten lo dicho.
+[Permalink](https://twitter.com/fernandeznorona/status/1657512172992200705) | 330 Me Gusta | 145 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-05-2023 a las 13:55:12
+**Fernández Noroña** (**@fernandeznorona**) • 13-05-2023 a las 14:09:00
 *****
-¿Cómo se puede lograr ese objetivo?
-[Permalink](https://twitter.com/fernandeznorona/status/1657142404217200640) | 104 Me Gusta | 25 Retweets
+Y yo con hambre, se ve buenísimo. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1657508268904677380) | 76 Me Gusta | 11 Retweets

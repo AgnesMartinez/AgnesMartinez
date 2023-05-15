@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2023 a las 19:29:56
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 08:42:13
 *****
-RT @LDatosduros: 🛬Un estudio de la @UNAM_MX  había encontrado  inviable la construcción del NAIM, pero Agustín Alvarez-Icaza, entonces dire…
-[Permalink](https://twitter.com/fernandeznorona/status/1657951422044950529) | 0 Me Gusta | 2,510 Retweets
+La agenda de estos días.
+[Permalink](https://twitter.com/fernandeznorona/status/1658150806921543680) | 33 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2023 a las 19:16:40
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 07:06:25
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1657948079784595456) | 92 Me Gusta | 24 Retweets
+Ricardo, son casi seis puntos de diferencia de tu encuesta pedorra y repites lo mismo que la derecha - que el señorito XJr2 para ser preciso @ClaudioXGG-. Por más indignado que estés no es correcto que hagas ese lamentable papel. No hay ningún empate técnico. Arrasaremos.
+[Permalink](https://twitter.com/fernandeznorona/status/1658126697495949318) | 216 Me Gusta | 68 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2023 a las 19:12:22
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 07:03:25
 *****
-RT @lajornadaonline: Inmobiliaria pretende talar 300 mil árboles en #Puebla
-
-
-\#GrupoProyecta planea construir complejo de lujo en municipio…
-[Permalink](https://twitter.com/fernandeznorona/status/1657946999281553408) | 0 Me Gusta | 819 Retweets
+487 MIL.
+[Permalink](https://twitter.com/fernandeznorona/status/1658125939811680260) | 74 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2023 a las 19:12:22
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 07:02:51
 *****
-RT @CE_MXdiputados: Nuestra participación en la @FenalMX, una feria del libro nutrida, concurrida y la gente cálida y gentil. Gracias.
-[Permalink](https://twitter.com/fernandeznorona/status/1657946998941822979) | 0 Me Gusta | 33 Retweets
+Ni siquiera sé si estaré vivo en el 2024 y tú me mandas al 2030. Qué bueno que me apoyan.
+[Permalink](https://twitter.com/fernandeznorona/status/1658125799323582465) | 50 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-05-2023 a las 18:07:54
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 05:40:41
 *****
-Feria del Libro en León.
-[Permalink](https://twitter.com/fernandeznorona/status/1657930776657141761) | 94 Me Gusta | 24 Retweets
+Abrazote
+[Permalink](https://twitter.com/fernandeznorona/status/1658105122164207616) | 42 Me Gusta | 9 Retweets

@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 14:28:19
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 18:48:22
 *****
-Lo terminé, es muy buen libro. Todos los que dicen tonterías de los acuerdos de Bucareli deberían leerlo. Ni siquiera tendrían que leerlo completo. Sólo con leer la introducción de Patricia Galeana o el epílogo de Rodolfo Villarreal Ríos.
-[Permalink](https://twitter.com/fernandeznorona/status/1658237903007281153) | 61 Me Gusta | 14 Retweets
+RT @jenarovillamil: #Informativo14. Las dirigencias de la CNTE “Son delincuencia organizada”, dijo ante empresarios Claudio X. González par…
+[Permalink](https://twitter.com/fernandeznorona/status/1658303348573872129) | 0 Me Gusta | 248 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 14:24:01
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 18:48:04
 *****
-No se lo muestren a @ClaudioXGG.
-[Permalink](https://twitter.com/fernandeznorona/status/1658236822235799555) | 58 Me Gusta | 22 Retweets
+Muy graves estos hechos. Respeten el amparo @EnriqueAlfaroR, @EnriqueIbarraP.
+[Permalink](https://twitter.com/fernandeznorona/status/1658303270635315200) | 70 Me Gusta | 59 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 14:23:11
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 18:38:10
 *****
-RT @LJyDMX: ‼️El pueblo lo sabe ‼️
-Como dijo ayer un compañero ❗el pueblo somos tus zapatos ❗, vas en los hombros de la gente de a pie mi q…
-[Permalink](https://twitter.com/fernandeznorona/status/1658236613305024512) | 0 Me Gusta | 26 Retweets
+RT @Marquez_Cecilia: Secuestran funcionarios de Gobierno de Jalisco a ciudadanos de San Rafael en Guadalajara #SOS @lopezobrador_ @JesusRCu…
+[Permalink](https://twitter.com/fernandeznorona/status/1658300782498775041) | 0 Me Gusta | 75 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 14:23:05
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 18:28:02
 *****
-Acabo de hacer un video en vivo que se llama: “No hay unidad con exclusión”. Está subiendo en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1658236584997552128) | 64 Me Gusta | 29 Retweets
+En Guadalajara Jalisco están destruyendo el parque San Rafael. Están talando los árboles a pesar de una determinación judicial que se los prohíbe. @EnriqueAlfaroR y @EnriqueIbarraP cerraron con malla ciclónica y mandaron policía a resguardar el lugar, mientras la tala continúa.
+[Permalink](https://twitter.com/fernandeznorona/status/1658298231120601089) | 220 Me Gusta | 168 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 14:06:41
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 18:25:10
 *****
-No se lo muestren a @FelipeLeonLopez porqué si quieres  le dará el telele.
-[Permalink](https://twitter.com/fernandeznorona/status/1658232461392789504) | 39 Me Gusta | 9 Retweets
+RT @princesadelina: ¡Wow! Padrisimo y de excelente ejecución
+[Permalink](https://twitter.com/fernandeznorona/status/1658297508769202177) | 0 Me Gusta | 11 Retweets

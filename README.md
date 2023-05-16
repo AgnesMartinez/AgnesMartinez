@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 08:42:13
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 14:28:19
 *****
-La agenda de estos días.
-[Permalink](https://twitter.com/fernandeznorona/status/1658150806921543680) | 33 Me Gusta | 8 Retweets
+Lo terminé, es muy buen libro. Todos los que dicen tonterías de los acuerdos de Bucareli deberían leerlo. Ni siquiera tendrían que leerlo completo. Sólo con leer la introducción de Patricia Galeana o el epílogo de Rodolfo Villarreal Ríos.
+[Permalink](https://twitter.com/fernandeznorona/status/1658237903007281153) | 61 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 07:06:25
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 14:24:01
 *****
-Ricardo, son casi seis puntos de diferencia de tu encuesta pedorra y repites lo mismo que la derecha - que el señorito XJr2 para ser preciso @ClaudioXGG-. Por más indignado que estés no es correcto que hagas ese lamentable papel. No hay ningún empate técnico. Arrasaremos.
-[Permalink](https://twitter.com/fernandeznorona/status/1658126697495949318) | 216 Me Gusta | 68 Retweets
+No se lo muestren a @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1658236822235799555) | 58 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 07:03:25
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 14:23:11
 *****
-487 MIL.
-[Permalink](https://twitter.com/fernandeznorona/status/1658125939811680260) | 74 Me Gusta | 23 Retweets
+RT @LJyDMX: ‼️El pueblo lo sabe ‼️
+Como dijo ayer un compañero ❗el pueblo somos tus zapatos ❗, vas en los hombros de la gente de a pie mi q…
+[Permalink](https://twitter.com/fernandeznorona/status/1658236613305024512) | 0 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 07:02:51
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 14:23:05
 *****
-Ni siquiera sé si estaré vivo en el 2024 y tú me mandas al 2030. Qué bueno que me apoyan.
-[Permalink](https://twitter.com/fernandeznorona/status/1658125799323582465) | 50 Me Gusta | 10 Retweets
+Acabo de hacer un video en vivo que se llama: “No hay unidad con exclusión”. Está subiendo en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1658236584997552128) | 64 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 05:40:41
+**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 14:06:41
 *****
-Abrazote
-[Permalink](https://twitter.com/fernandeznorona/status/1658105122164207616) | 42 Me Gusta | 9 Retweets
+No se lo muestren a @FelipeLeonLopez porqué si quieres  le dará el telele.
+[Permalink](https://twitter.com/fernandeznorona/status/1658232461392789504) | 39 Me Gusta | 9 Retweets

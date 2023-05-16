@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 16-05-2023 a las 09:51:49
+*****
+RT @lhan55: El malestar cunde entre los profesores de educación indígena. Su demanda es muy sencilla: cancelar la iniciativa de reforma leg…
+[Permalink](https://twitter.com/fernandeznorona/status/1658530708434870274) | 0 Me Gusta | 87 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 16-05-2023 a las 09:42:16
+*****
+Aunque no me pongan en la foto, me reconoce en el tercer lugar. Tengan para que aprendan.
+[Permalink](https://twitter.com/fernandeznorona/status/1658528302796005387) | 58 Me Gusta | 10 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 16-05-2023 a las 09:40:26
+*****
+Atención @CE_MXdiputados.
+[Permalink](https://twitter.com/fernandeznorona/status/1658527842932490275) | 10 Me Gusta | 3 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 16-05-2023 a las 08:52:42
+*****
+RT @LJyDMX: Algunos libros del Consejo Editorial pueden descargarse desde su portal. ¡Visítalo!
+[Permalink](https://twitter.com/fernandeznorona/status/1658515831117033472) | 0 Me Gusta | 9 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 18:48:22
 *****
 RT @jenarovillamil: #Informativo14. Las dirigencias de la CNTE “Son delincuencia organizada”, dijo ante empresarios Claudio X. González par…
-[Permalink](https://twitter.com/fernandeznorona/status/1658303348573872129) | 0 Me Gusta | 288 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 18:48:04
-*****
-Muy graves estos hechos. Respeten el amparo @EnriqueAlfaroR, @EnriqueIbarraP.
-[Permalink](https://twitter.com/fernandeznorona/status/1658303270635315200) | 89 Me Gusta | 77 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 18:38:10
-*****
-RT @Marquez_Cecilia: Secuestran funcionarios de Gobierno de Jalisco a ciudadanos de San Rafael en Guadalajara #SOS @lopezobrador_ @JesusRCu…
-[Permalink](https://twitter.com/fernandeznorona/status/1658300782498775041) | 0 Me Gusta | 95 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 18:28:02
-*****
-En Guadalajara Jalisco están destruyendo el parque San Rafael. Están talando los árboles a pesar de una determinación judicial que se los prohíbe. @EnriqueAlfaroR y @EnriqueIbarraP cerraron con malla ciclónica y mandaron policía a resguardar el lugar, mientras la tala continúa.
-[Permalink](https://twitter.com/fernandeznorona/status/1658298231120601089) | 266 Me Gusta | 183 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 15-05-2023 a las 18:25:10
-*****
-RT @princesadelina: ¡Wow! Padrisimo y de excelente ejecución
-[Permalink](https://twitter.com/fernandeznorona/status/1658297508769202177) | 0 Me Gusta | 14 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1658303348573872129) | 0 Me Gusta | 373 Retweets

@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-05-2023 a las 20:31:37
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 08:55:21
 *****
-Apenas en casa. Estuvo pesado.
-[Permalink](https://twitter.com/fernandeznorona/status/1658691718655651841) | 92 Me Gusta | 5 Retweets
+RT @AtheneaPhalas3: #HistoriasDeVerdad El dueño no encendió su auto un mes hasta eclosionó sus huevos. Él dijo: "Mientras ella elija mi aut…
+[Permalink](https://twitter.com/fernandeznorona/status/1658878885071826949) | 0 Me Gusta | 2,576 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-05-2023 a las 20:21:13
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 08:54:52
 *****
-Tetela del Volcán, Mor.
-[Permalink](https://twitter.com/fernandeznorona/status/1658689100764024833) | 94 Me Gusta | 15 Retweets
+RT @jpau74: Eso Chingaooo..!! Gerardo Fernández Noroña es Pueblo.. PUEBLO..!!✅👏🏻👏🏻💯🇲🇽❤️ #NoroñaVa2024 #NoroñaEsPueblo #NoroñaFarodeEsperanz…
+[Permalink](https://twitter.com/fernandeznorona/status/1658878765232197632) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-05-2023 a las 17:52:48
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 08:52:13
 *****
-@SinLinea_Mx @JuanitaIzaguir5 Zas.
-[Permalink](https://twitter.com/fernandeznorona/status/1658651751963316224) | 21 Me Gusta | 2 Retweets
+RT @MoneroTeta:
+[Permalink](https://twitter.com/fernandeznorona/status/1658878097947774978) | 0 Me Gusta | 336 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-05-2023 a las 17:51:25
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 07:56:52
 *****
-7466 YouTube y, 9609 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1658651402275811329) | 109 Me Gusta | 16 Retweets
+RT @LJyDMX: ¡El pueblo está con Noroña, incluso más allá de nuestras fronteras, se están formando comités en apoyo de nuestro Diputado!
+\#Te…
+[Permalink](https://twitter.com/fernandeznorona/status/1658864169251229696) | 0 Me Gusta | 38 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 16-05-2023 a las 11:54:15
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 07:52:51
 *****
-Lo veremos.
-[Permalink](https://twitter.com/fernandeznorona/status/1658561521176449024) | 48 Me Gusta | 11 Retweets
+RT @alvaro_delgado: El ultraderechista presidente de Ecuador da golpe: disuelve la Asamblea Nacional y pone fin a juicio político https://t…
+[Permalink](https://twitter.com/fernandeznorona/status/1658863156742045701) | 0 Me Gusta | 503 Retweets

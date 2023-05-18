@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 15:58:39
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 20:59:49
 *****
-Haré la video charla como a las 6:30 PM.
-[Permalink](https://twitter.com/fernandeznorona/status/1658985410674974720) | 45 Me Gusta | 14 Retweets
+RT @nmas: 49 de los 50 migrantes que fueron reportados como desaparecidos la madrugada del lunes en los límites de San Luis Potosí y Nuevo…
+[Permalink](https://twitter.com/fernandeznorona/status/1659061201937072128) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 15:36:49
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 20:58:55
 *****
-El compañero presidente hizo pública la exclusión, yo estaba obligado a fijar de la misma manera mi posición.
-[Permalink](https://twitter.com/fernandeznorona/status/1658979919739625472) | 72 Me Gusta | 19 Retweets
+Muchas gracias. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1659060978749677570) | 31 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 15:35:05
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 20:57:24
 *****
-Tonto quien no escucha toda la intervención y saca de contexto lo ahí dicho. Saludos.
-[Permalink](https://twitter.com/fernandeznorona/status/1658979481275473921) | 56 Me Gusta | 15 Retweets
+Si, camino a San Diego.
+[Permalink](https://twitter.com/fernandeznorona/status/1659060595834994690) | 19 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 14:04:10
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 20:55:33
 *****
-Aquí mostrando la moneda de plata conmemorativa, con el rostro de él hoy compañero presidente, un reconocimiento que me entregó por el apoyo dado en los tiempos duros de la lucha entre 2009 y 2012. No muchos pueden presumir algo así.
-[Permalink](https://twitter.com/fernandeznorona/status/1658956603004178432) | 386 Me Gusta | 106 Retweets
+Espero me incluyan.
+[Permalink](https://twitter.com/fernandeznorona/status/1659060129927495681) | 80 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 13:53:34
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 20:54:20
 *****
-Conferencia de prensa, hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1658953934965469184) | 137 Me Gusta | 37 Retweets
+Naa, Pasquín @beltrandelrio, no entendiste nada. Vuelve a escuchar la conferencia, sé que te costará trabajo, pero haz un esfuerzo. El pueblo decidirá.
+[Permalink](https://twitter.com/fernandeznorona/status/1659059824045314048) | 142 Me Gusta | 39 Retweets

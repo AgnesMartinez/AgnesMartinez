@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 08:55:21
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 15:58:39
 *****
-RT @AtheneaPhalas3: #HistoriasDeVerdad El dueño no encendió su auto un mes hasta eclosionó sus huevos. Él dijo: "Mientras ella elija mi aut…
-[Permalink](https://twitter.com/fernandeznorona/status/1658878885071826949) | 0 Me Gusta | 2,576 Retweets
+Haré la video charla como a las 6:30 PM.
+[Permalink](https://twitter.com/fernandeznorona/status/1658985410674974720) | 45 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 08:54:52
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 15:36:49
 *****
-RT @jpau74: Eso Chingaooo..!! Gerardo Fernández Noroña es Pueblo.. PUEBLO..!!✅👏🏻👏🏻💯🇲🇽❤️ #NoroñaVa2024 #NoroñaEsPueblo #NoroñaFarodeEsperanz…
-[Permalink](https://twitter.com/fernandeznorona/status/1658878765232197632) | 0 Me Gusta | 17 Retweets
+El compañero presidente hizo pública la exclusión, yo estaba obligado a fijar de la misma manera mi posición.
+[Permalink](https://twitter.com/fernandeznorona/status/1658979919739625472) | 72 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 08:52:13
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 15:35:05
 *****
-RT @MoneroTeta:
-[Permalink](https://twitter.com/fernandeznorona/status/1658878097947774978) | 0 Me Gusta | 336 Retweets
+Tonto quien no escucha toda la intervención y saca de contexto lo ahí dicho. Saludos.
+[Permalink](https://twitter.com/fernandeznorona/status/1658979481275473921) | 56 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 07:56:52
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 14:04:10
 *****
-RT @LJyDMX: ¡El pueblo está con Noroña, incluso más allá de nuestras fronteras, se están formando comités en apoyo de nuestro Diputado!
-\#Te…
-[Permalink](https://twitter.com/fernandeznorona/status/1658864169251229696) | 0 Me Gusta | 38 Retweets
+Aquí mostrando la moneda de plata conmemorativa, con el rostro de él hoy compañero presidente, un reconocimiento que me entregó por el apoyo dado en los tiempos duros de la lucha entre 2009 y 2012. No muchos pueden presumir algo así.
+[Permalink](https://twitter.com/fernandeznorona/status/1658956603004178432) | 386 Me Gusta | 106 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 07:52:51
+**Fernández Noroña** (**@fernandeznorona**) • 17-05-2023 a las 13:53:34
 *****
-RT @alvaro_delgado: El ultraderechista presidente de Ecuador da golpe: disuelve la Asamblea Nacional y pone fin a juicio político https://t…
-[Permalink](https://twitter.com/fernandeznorona/status/1658863156742045701) | 0 Me Gusta | 503 Retweets
+Conferencia de prensa, hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1658953934965469184) | 137 Me Gusta | 37 Retweets

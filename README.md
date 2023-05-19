@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2023 a las 20:36:33
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 09:17:38
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1659417734667722752) | 261 Me Gusta | 50 Retweets
+Agenda de estos días.
+[Permalink](https://twitter.com/fernandeznorona/status/1659609268205809664) | 21 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2023 a las 19:10:21
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 08:42:27
 *****
-RT @esnoticiaalesal: 😂😂😂😂😂
-[Permalink](https://twitter.com/fernandeznorona/status/1659396043191230464) | 0 Me Gusta | 630 Retweets
+Ahí te hablan señorito X @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1659600413027610624) | 23 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2023 a las 19:09:17
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 08:41:49
 *****
-No fue el senador @VelascoM_, fue mi compañero y amigo @ArturoEsc.
-[Permalink](https://twitter.com/fernandeznorona/status/1659395773191307270) | 44 Me Gusta | 6 Retweets
+RT @nancy_contra: El presidente AMLO reveló esta mañana que la ministra presidenta de la Suprema Corte, Norma Lucía Piña, contrató a Sonia…
+[Permalink](https://twitter.com/fernandeznorona/status/1659600256181608448) | 0 Me Gusta | 1,239 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2023 a las 19:07:13
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 07:24:27
 *****
-Jajajaja
-[Permalink](https://twitter.com/fernandeznorona/status/1659395255421251585) | 80 Me Gusta | 11 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1659580787228831744) | 172 Me Gusta | 65 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 18-05-2023 a las 18:49:42
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 07:20:43
 *****
-A las nueve de la noche entraré a una entrevista con Ricardo Sevilla.
-[Permalink](https://twitter.com/fernandeznorona/status/1659390845014122496) | 83 Me Gusta | 26 Retweets
+RT @MoneroTeta:
+[Permalink](https://twitter.com/fernandeznorona/status/1659579845150474241) | 0 Me Gusta | 321 Retweets

@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 09:17:38
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 16:00:36
 *****
-Agenda de estos días.
-[Permalink](https://twitter.com/fernandeznorona/status/1659609268205809664) | 21 Me Gusta | 10 Retweets
+Acabamos de aterrizar en Tijuana. La video charla será por la noche.
+[Permalink](https://twitter.com/fernandeznorona/status/1659710678905786368) | 52 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 08:42:27
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 12:14:08
 *****
-Ahí te hablan señorito X @ClaudioXGG.
-[Permalink](https://twitter.com/fernandeznorona/status/1659600413027610624) | 23 Me Gusta | 6 Retweets
+Tan falso como tu inocencia @Rosario_Robles_.
+[Permalink](https://twitter.com/fernandeznorona/status/1659653686216523776) | 92 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 08:41:49
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 12:13:14
 *****
-RT @nancy_contra: El presidente AMLO reveló esta mañana que la ministra presidenta de la Suprema Corte, Norma Lucía Piña, contrató a Sonia…
-[Permalink](https://twitter.com/fernandeznorona/status/1659600256181608448) | 0 Me Gusta | 1,239 Retweets
+Mientes como respiras. Información sobre la construcción de los segundos pisos siempre ha sido pública. Una y otra vez, sin ninguna prueba, porque es falso; tan falso como tu inocencia @rosario_robles.
+[Permalink](https://twitter.com/fernandeznorona/status/1659653461712183296) | 788 Me Gusta | 336 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 07:24:27
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 12:09:12
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1659580787228831744) | 172 Me Gusta | 65 Retweets
+RT @contralinea: EU donó 48.9 millones de pesos a ‘guerra sucia’ de Claudio X
+
+
+Lee aquí 👉
+[Permalink](https://twitter.com/fernandeznorona/status/1659652446887755777) | 0 Me Gusta | 703 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 07:20:43
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 12:07:55
 *****
-RT @MoneroTeta:
-[Permalink](https://twitter.com/fernandeznorona/status/1659579845150474241) | 0 Me Gusta | 321 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1659652122122805248) | 37 Me Gusta | 8 Retweets

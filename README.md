@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 16:00:36
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 22:03:12
 *****
-Acabamos de aterrizar en Tijuana. La video charla será por la noche.
-[Permalink](https://twitter.com/fernandeznorona/status/1659710678905786368) | 52 Me Gusta | 9 Retweets
+Ya terminé todas las llamadas pendientes del día de hoy. Por eso me regale un helado en premio a mi buen comportamiento, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1659801929973891073) | 11 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 12:14:08
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 22:02:26
 *****
-Tan falso como tu inocencia @Rosario_Robles_.
-[Permalink](https://twitter.com/fernandeznorona/status/1659653686216523776) | 92 Me Gusta | 29 Retweets
+Están mejor, de lejos, los helados de Rodrigo, en Tepoztlán, de Mozart. Pero este helado de fabricación industrial, como pueden ver, tiene azúcar de caña y no alta fructuosa como los alimentos procesados en México.
+[Permalink](https://twitter.com/fernandeznorona/status/1659801736692006914) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 12:13:14
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 21:57:05
 *****
-Mientes como respiras. Información sobre la construcción de los segundos pisos siempre ha sido pública. Una y otra vez, sin ninguna prueba, porque es falso; tan falso como tu inocencia @rosario_robles.
-[Permalink](https://twitter.com/fernandeznorona/status/1659653461712183296) | 788 Me Gusta | 336 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1659800391654203392) | 2 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 12:09:12
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 21:56:27
 *****
-RT @contralinea: EU donó 48.9 millones de pesos a ‘guerra sucia’ de Claudio X
-
-
-Lee aquí 👉
-[Permalink](https://twitter.com/fernandeznorona/status/1659652446887755777) | 0 Me Gusta | 703 Retweets
+Y tienes razón en parte, no leí bien, pero tampoco es priísta, ya es de @PartidoMorenaMx. Y yo que llevo toda la vida en la lucha, todavía hay quien dice que no soy de MORENA.
+[Permalink](https://twitter.com/fernandeznorona/status/1659800231532457984) | 7 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 12:07:55
+**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 21:54:59
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1659652122122805248) | 37 Me Gusta | 8 Retweets
+No soy ni seré. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1659799863922683904) | 5 Me Gusta | 0 Retweets

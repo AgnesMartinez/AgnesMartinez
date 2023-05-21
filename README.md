@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 23:09:30
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 10:07:24
 *****
-RT @Rocio78680817: Un gusto recibir a nuestro próximo presidente @fernandeznorona en #losangeles #altoalsectarismo #Noronapresidente2024 #N…
-[Permalink](https://twitter.com/fernandeznorona/status/1660181002994749443) | 0 Me Gusta | 16 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1660346568602443776) | 0 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 23:07:35
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 10:07:12
 *****
-L.A.
-[Permalink](https://twitter.com/fernandeznorona/status/1660180522549788672) | 48 Me Gusta | 18 Retweets
+Felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1660346518522535936) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 23:02:18
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 09:46:02
 *****
-En la placita Olvera.
-[Permalink](https://twitter.com/fernandeznorona/status/1660179192749907968) | 36 Me Gusta | 5 Retweets
+Así fue en L.A.
+[Permalink](https://twitter.com/fernandeznorona/status/1660341193014689799) | 24 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 23:01:47
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 08:37:15
 *****
-En la placita Olvera.
-[Permalink](https://twitter.com/fernandeznorona/status/1660179063049449472) | 39 Me Gusta | 11 Retweets
+Esta de cabeza este cuadro que también me regalaron. El artista viajó cuatro horas para vernos.
+[Permalink](https://twitter.com/fernandeznorona/status/1660323880857378816) | 45 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 23:01:13
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 08:28:25
 *****
-Feliz. Ese respaldo no lo tiene ni Obama, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1660178920237584384) | 106 Me Gusta | 25 Retweets
+RT @nancy_contra: Mexicanos Contra la Corrupción pidió al Inai que censurara a AMLO. La información y los documentos aquí:
+[Permalink](https://twitter.com/fernandeznorona/status/1660321659255963651) | 0 Me Gusta | 3,320 Retweets

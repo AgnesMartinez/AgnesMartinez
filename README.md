@@ -1,30 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 09:32:40
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 15:22:32
 *****
-Señorito X @ClaudioXGG es una intervención temporal. Pero te pregunto: ¿existe la figura de la expropiación en el marco constitucional? La respuesta es sí. Hasta el gobierno de Estados Unidos que te financia, reconoce este derecho soberano.
-[Permalink](https://twitter.com/fernandeznorona/status/1659975439593635841) | 106 Me Gusta | 41 Retweets
+Que hizo tu patrocinador @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1660063487299657735) | 70 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 09:30:29
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 15:21:08
 *****
-RT @MoneroTeta:
-[Permalink](https://twitter.com/fernandeznorona/status/1659974890567667715) | 0 Me Gusta | 429 Retweets
+RT @zenenzeferino: Vine a Catemaco a cargar energía. La lucha viene muy intensa y comprometida.
+Somos tierra y naturaleza.
+\#Veracruz #Catem…
+[Permalink](https://twitter.com/fernandeznorona/status/1660063136102088704) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 09:30:16
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 15:20:57
 *****
-RT @hamlet_almaguer: La Constitución sólo considera dos supuestos para convocar a período extraordinario: 
-
-
-- Petición del Ejecutivo
-- Acue…
-[Permalink](https://twitter.com/fernandeznorona/status/1659974837090258944) | 0 Me Gusta | 621 Retweets
+la constitución ha muerto - Búsqueda de Google. Mira cretino ⁦@SergioSarmiento⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1660063087142260737) | 36 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 22:33:59
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 13:57:47
 *****
-“Violet aprendió entonces lo que hasta el momento presente había olvidado: que la risa es seria. Más compleja, más seria que las lágrimas”.
-[Permalink](https://twitter.com/fernandeznorona/status/1659809678992478208) | 59 Me Gusta | 13 Retweets
+Me entero que falleció el compañero Luis Walton, en Acapulco. Mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1660042158294835201) | 49 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-05-2023 a las 22:12:51
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 13:13:10
 *****
-RT @JoseLui17607201:
-[Permalink](https://twitter.com/fernandeznorona/status/1659804358928900104) | 0 Me Gusta | 20 Retweets
+Democracia, por eso no volverán al gobierno nunca más, pandilla de inútiles. @ClaudioXGG.
+[Permalink](https://twitter.com/fernandeznorona/status/1660030932315938816) | 434 Me Gusta | 155 Retweets

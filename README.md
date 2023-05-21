@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 21:36:09
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 23:09:30
 *****
-Me da la impresión que les falta alguien ahí, jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1660157510722936834) | 45 Me Gusta | 9 Retweets
+RT @Rocio78680817: Un gusto recibir a nuestro próximo presidente @fernandeznorona en #losangeles #altoalsectarismo #Noronapresidente2024 #N…
+[Permalink](https://twitter.com/fernandeznorona/status/1660181002994749443) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 21:35:06
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 23:07:35
 *****
-¿Y?
-[Permalink](https://twitter.com/fernandeznorona/status/1660157248587415552) | 20 Me Gusta | 7 Retweets
+L.A.
+[Permalink](https://twitter.com/fernandeznorona/status/1660180522549788672) | 48 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 21:32:03
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 23:02:18
 *****
-Naa, me hubieras dicho que eras @Marblanca3. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1660156478928441345) | 25 Me Gusta | 4 Retweets
+En la placita Olvera.
+[Permalink](https://twitter.com/fernandeznorona/status/1660179192749907968) | 36 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 21:30:58
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 23:01:47
 *****
-RT @LJyDMX: Este Martes,  23 de Mayo, a las 4:00 PM, el Diputado  @fernandeznorona estará en el teatro al aire libre, en Torres de Potrero.…
-[Permalink](https://twitter.com/fernandeznorona/status/1660156205552005120) | 0 Me Gusta | 17 Retweets
+En la placita Olvera.
+[Permalink](https://twitter.com/fernandeznorona/status/1660179063049449472) | 39 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 20:55:48
+**Fernández Noroña** (**@fernandeznorona**) • 20-05-2023 a las 23:01:13
 *****
-8376 en Facebook y, 10,406 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1660147355780546560) | 79 Me Gusta | 13 Retweets
+Feliz. Ese respaldo no lo tiene ni Obama, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1660178920237584384) | 106 Me Gusta | 25 Retweets

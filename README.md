@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 10:07:24
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 12:50:47
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1660346568602443776) | 0 Me Gusta | 0 Retweets
+A tope en Fresno, Cal.
+[Permalink](https://twitter.com/fernandeznorona/status/1660387684228145153) | 160 Me Gusta | 57 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 10:07:12
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 12:46:24
 *****
-Felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1660346518522535936) | 2 Me Gusta | 0 Retweets
+Fresno, Cal.
+[Permalink](https://twitter.com/fernandeznorona/status/1660386583269498880) | 95 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 09:46:02
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 12:09:57
 *****
-Así fue en L.A.
-[Permalink](https://twitter.com/fernandeznorona/status/1660341193014689799) | 24 Me Gusta | 7 Retweets
+Resortera.
+[Permalink](https://twitter.com/fernandeznorona/status/1660377409818959873) | 57 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 08:37:15
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 12:09:42
 *****
-Esta de cabeza este cuadro que también me regalaron. El artista viajó cuatro horas para vernos.
-[Permalink](https://twitter.com/fernandeznorona/status/1660323880857378816) | 45 Me Gusta | 8 Retweets
+RT @SupsipS: Porque donde manda capitán, no gobierna marinero 😘😘😉😉
+[Permalink](https://twitter.com/fernandeznorona/status/1660377346723966980) | 0 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 08:28:25
+**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 12:08:56
 *****
-RT @nancy_contra: Mexicanos Contra la Corrupción pidió al Inai que censurara a AMLO. La información y los documentos aquí:
-[Permalink](https://twitter.com/fernandeznorona/status/1660321659255963651) | 0 Me Gusta | 3,320 Retweets
+Fe de erratas: donde dice jugó, debe decir juzgó.
+[Permalink](https://twitter.com/fernandeznorona/status/1660377155992158211) | 30 Me Gusta | 6 Retweets

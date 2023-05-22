@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 21:47:28
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 09:29:07
 *****
-RT @MacarioBernal3: Un gusto Dip. @fernandeznorona, su presencia nos motiva a seguir luchando a tod@s los compatriotas, nosotr@s tenemos la…
-[Permalink](https://twitter.com/fernandeznorona/status/1660522746210811904) | 0 Me Gusta | 41 Retweets
+Mira @PepetonD.
+[Permalink](https://twitter.com/fernandeznorona/status/1660699321015365633) | 19 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 21:47:10
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 09:27:11
 *****
-RT @kpitan92: Esperemos que @LuisaAlcalde intervenga para darle solución en favor de los trabajadores
-
-
-@lopezobrador_ @fernandeznorona @ada…
-[Permalink](https://twitter.com/fernandeznorona/status/1660522670302318592) | 0 Me Gusta | 7 Retweets
+RT @zenenzeferino: Algo muy chingón está brotando bajo el palmar inspirador.
+\#Veracruz #inspiration #Musica
+[Permalink](https://twitter.com/fernandeznorona/status/1660698835872813056) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 21:43:14
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 09:27:05
 *****
-Hoy cerré en Fresno, California una estupenda gira con nuestros paisanos.
-[Permalink](https://twitter.com/fernandeznorona/status/1660521682946387969) | 93 Me Gusta | 23 Retweets
+RT @nancy_contra: Germán Larrea, de Grupo México, solicitó un pago de 9 mil 500 millones de pesos como indemnización por la concesión de ví…
+[Permalink](https://twitter.com/fernandeznorona/status/1660698812200128513) | 0 Me Gusta | 643 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 21:41:24
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 09:26:40
 *****
-Fresno, California.
-[Permalink](https://twitter.com/fernandeznorona/status/1660521221438705664) | 82 Me Gusta | 17 Retweets
+¡Naa!
+[Permalink](https://twitter.com/fernandeznorona/status/1660698705006313472) | 7 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-05-2023 a las 21:40:49
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 08:21:15
 *****
-Hoy en Fresno, California.
-[Permalink](https://twitter.com/fernandeznorona/status/1660521075258839040) | 67 Me Gusta | 14 Retweets
+RT @MoneroTeta:
+[Permalink](https://twitter.com/fernandeznorona/status/1660682242287456257) | 0 Me Gusta | 223 Retweets

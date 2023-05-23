@@ -1,29 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 23:21:35
+**Fernández Noroña** (**@fernandeznorona**) • 23-05-2023 a las 09:24:29
 *****
-595 en Facebook y 1412 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1660908819545980928) | 72 Me Gusta | 17 Retweets
+Así va la @comunidadUPN.
+[Permalink](https://twitter.com/fernandeznorona/status/1661060545678655511) | 34 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 21:38:39
+**Fernández Noroña** (**@fernandeznorona**) • 23-05-2023 a las 08:39:41
 *****
-RT @Nubia_SCG: ¡8vo episodio!, Segunda temporada de #AunqueSeArdaLaDerecha
+El país, Pasquín @beltrandelrio. Ustedes también la perdieron. Hoy celebran, al tiempo. No se dan cuenta que una @SCJN facciosa y corrupta no sirve a nadie.
+[Permalink](https://twitter.com/fernandeznorona/status/1661049270768910338) | 107 Me Gusta | 36 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 23-05-2023 a las 08:33:19
+*****
+RT @evoespueblo: Nuestra solidaridad con el hermano presidente de México @lopezobrador_ atacado por la derecha que gobierna Perú sometida a…
+[Permalink](https://twitter.com/fernandeznorona/status/1661047666560888832) | 0 Me Gusta | 1,234 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 23-05-2023 a las 08:31:10
+*****
+Agenda de la semana.
+[Permalink](https://twitter.com/fernandeznorona/status/1661047125613084672) | 38 Me Gusta | 12 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 23-05-2023 a las 08:30:25
+*****
+RT @MovNoronistaOf: Les compartimos la agenda de esta semana del diputado @fernandeznorona 
 
 
-Tuvimos el gusto de conversar con los precursores del #SondeoCa…
-[Permalink](https://twitter.com/fernandeznorona/status/1660882915906195456) | 0 Me Gusta | 16 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 21:37:12
-*****
-Acabamos de aterrizar, haré una brevísima video charla pasada la medianoche.
-[Permalink](https://twitter.com/fernandeznorona/status/1660882549902823426) | 69 Me Gusta | 11 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 18:27:03
-*****
-RT @SinEmbargoMX: #Opinión "El fantasma de la expropiación", por @violetavr
-[Permalink](https://twitter.com/fernandeznorona/status/1660834697209950208) | 0 Me Gusta | 299 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 18:20:06
-*****
-@PatoDLaPaz @Meztli_1 Excusas.
-[Permalink](https://twitter.com/fernandeznorona/status/1660832947400835084) | 4 Me Gusta | 2 Retweets
+\#SiElPuebloDecídeNoroñaEsElQueSigue https://t.…
+[Permalink](https://twitter.com/fernandeznorona/status/1661046938236747778) | 0 Me Gusta | 33 Retweets

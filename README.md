@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 14:46:41
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 21:38:39
 *****
-Ahí les hablan.
-[Permalink](https://twitter.com/fernandeznorona/status/1660779242429489152) | 45 Me Gusta | 9 Retweets
+RT @Nubia_SCG: ¡8vo episodio!, Segunda temporada de #AunqueSeArdaLaDerecha
+
+
+Tuvimos el gusto de conversar con los precursores del #SondeoCa…
+[Permalink](https://twitter.com/fernandeznorona/status/1660882915906195456) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 13:18:04
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 21:37:12
 *****
-Le falta la entrevista de mañana a las dos de la tarde con @lopezdoriga.
-[Permalink](https://twitter.com/fernandeznorona/status/1660756939624656897) | 38 Me Gusta | 14 Retweets
+Acabamos de aterrizar, haré una brevísima video charla pasada la medianoche.
+[Permalink](https://twitter.com/fernandeznorona/status/1660882549902823426) | 32 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 12:49:11
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 18:27:03
 *****
-RT @maurojas360: «Cuando en la Revolución se presenta una coyuntura difícil de resolver, es el pueblo quien te muestra el camino a seguir.…
-[Permalink](https://twitter.com/fernandeznorona/status/1660749670778388482) | 0 Me Gusta | 41 Retweets
+RT @SinEmbargoMX: #Opinión "El fantasma de la expropiación", por @violetavr
+[Permalink](https://twitter.com/fernandeznorona/status/1660834697209950208) | 0 Me Gusta | 285 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 10:17:47
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 18:20:06
 *****
-Vamos saliendo de Fresno al aeropuerto de Los Ángeles.
-[Permalink](https://twitter.com/fernandeznorona/status/1660711570211500032) | 103 Me Gusta | 17 Retweets
+@PatoDLaPaz @Meztli_1 Excusas.
+[Permalink](https://twitter.com/fernandeznorona/status/1660832947400835084) | 3 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 09:29:07
+**Fernández Noroña** (**@fernandeznorona**) • 22-05-2023 a las 18:10:20
 *****
-Mira @PepetonD.
-[Permalink](https://twitter.com/fernandeznorona/status/1660699321015365633) | 43 Me Gusta | 8 Retweets
+Todavía no salimos De Los Ángeles, veo difícil hacer video charla hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1660830490562265088) | 83 Me Gusta | 9 Retweets

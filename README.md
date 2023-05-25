@@ -1,32 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2023 a las 21:37:17
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 09:59:40
 *****
-Haruki Murakami es un extraordinario escritor.
-[Permalink](https://twitter.com/fernandeznorona/status/1661607346668462080) | 45 Me Gusta | 9 Retweets
+Pues no, andábamos hechos unos lacras el @ESCORPIONGOLDEN y yo.
+[Permalink](https://twitter.com/fernandeznorona/status/1661794176495927296) | 12 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2023 a las 21:34:52
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 09:52:57
 *****
-RT @jgnaredo: Vamos a terminar el sexenio de AMLO con:
-
-
--Aeropuerto nuevo.
--Refinería nueva.
--Dos trenes nuevos.
--La CFE generando más del…
-[Permalink](https://twitter.com/fernandeznorona/status/1661606737596801027) | 0 Me Gusta | 608 Retweets
+Somos carnalitos @ESCORPIONGOLDEN y yo.
+[Permalink](https://twitter.com/fernandeznorona/status/1661792486262722561) | 18 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2023 a las 21:17:13
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 09:51:29
 *****
-Y me parece bien que le des la espalda a mi exigencia del respeto a la libre sexualidad de las mujeres y al derecho a decidir sobre su cuerpo. Eso exhibe. Ah, y a mi crítica de que esa reforma solo va al ámbito político y no a proteger a las mujeres del pueblo.
-[Permalink](https://twitter.com/fernandeznorona/status/1661602295677612036) | 88 Me Gusta | 33 Retweets
+Jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1661792116320931840) | 11 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2023 a las 21:15:04
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 09:44:35
 *****
-Pues mientes o por lo menos intrigas. Lo que dije y sostengo es que esa ley debe respetar el debido proceso y tener gradualidad considerando la gravedad del delito. Te reto a que hagas público el oficio que sostiene lo que tú dices. De lo contrario, deberías disculparte. Abur.
-[Permalink](https://twitter.com/fernandeznorona/status/1661601758567714817) | 76 Me Gusta | 36 Retweets
+Ahíta.
+[Permalink](https://twitter.com/fernandeznorona/status/1661790380566933504) | 210 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-05-2023 a las 21:09:40
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 09:34:43
 *****
-Mi solidaridad con @HectorAstudillo por la muerte de su hijo Héctor Javier.
-[Permalink](https://twitter.com/fernandeznorona/status/1661600397897728000) | 42 Me Gusta | 11 Retweets
+Estuvo chingona la entrevista con el “Escorpión Dorado”. Obvio, no la he visto, pero me gustó mucho. Me sentí como en casa. El código postal, dicen.
+[Permalink](https://twitter.com/fernandeznorona/status/1661787897228578821) | 78 Me Gusta | 19 Retweets

@@ -1,26 +1,31 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 15:53:29
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 20:30:13
 *****
-Tengan para que aprendan.
-[Permalink](https://twitter.com/fernandeznorona/status/1661883215030931456) | 78 Me Gusta | 29 Retweets
+Imaginas. En verdad cabeza hueca @VicenteFoxQue, tú ignorancia es del tamaño de tu estupidez, es decir, monumental.
+[Permalink](https://twitter.com/fernandeznorona/status/1661952858366046209) | 73 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 09:59:40
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 20:12:42
 *****
-Pues no, andábamos hechos unos lacras el @ESCORPIONGOLDEN y yo.
-[Permalink](https://twitter.com/fernandeznorona/status/1661794176495927296) | 81 Me Gusta | 11 Retweets
+RT @cancun0611: #NoroñaPresidente2024 
+\#CongresoConstituyente2024 
+\#NoroñaEsPueblo 
+\#NuevaConstitución 
+\#NoroñaVa
+Los impulsores de la Cons…
+[Permalink](https://twitter.com/fernandeznorona/status/1661948449611235329) | 0 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 09:52:57
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 20:12:27
 *****
-Somos carnalitos @ESCORPIONGOLDEN y yo.
-[Permalink](https://twitter.com/fernandeznorona/status/1661792486262722561) | 73 Me Gusta | 9 Retweets
+RT @indeseadoo: No voy a poder ver la video charla en vivo, pero díganle al diputado @fernandeznorona que en las efemérides mencione el día…
+[Permalink](https://twitter.com/fernandeznorona/status/1661948385564459009) | 0 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 09:51:29
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 20:11:42
 *****
-Jejeje.
-[Permalink](https://twitter.com/fernandeznorona/status/1661792116320931840) | 27 Me Gusta | 2 Retweets
+RT @SupsipS: @ifllamas Guadiana y Mejía nunca buscaron ganar la gubernatura. Solo es una competencia por el segundo lugar.
+[Permalink](https://twitter.com/fernandeznorona/status/1661948199375085568) | 0 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 09:44:35
+**Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 20:11:11
 *****
-Ahíta.
-[Permalink](https://twitter.com/fernandeznorona/status/1661790380566933504) | 1,125 Me Gusta | 130 Retweets
+RT @save__alejandro: Distintas maneras de tratar el mismo tema.👇
+[Permalink](https://twitter.com/fernandeznorona/status/1661948066239496193) | 0 Me Gusta | 27 Retweets

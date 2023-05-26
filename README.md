@@ -3,7 +3,7 @@
 **Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 20:30:13
 *****
 Imaginas. En verdad cabeza hueca @VicenteFoxQue, tú ignorancia es del tamaño de tu estupidez, es decir, monumental.
-[Permalink](https://twitter.com/fernandeznorona/status/1661952858366046209) | 73 Me Gusta | 29 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1661952858366046209) | 105 Me Gusta | 40 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 20:12:42
 *****
@@ -13,12 +13,12 @@ RT @cancun0611: #NoroñaPresidente2024
 \#NuevaConstitución 
 \#NoroñaVa
 Los impulsores de la Cons…
-[Permalink](https://twitter.com/fernandeznorona/status/1661948449611235329) | 0 Me Gusta | 7 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1661948449611235329) | 0 Me Gusta | 8 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 20:12:27
 *****
 RT @indeseadoo: No voy a poder ver la video charla en vivo, pero díganle al diputado @fernandeznorona que en las efemérides mencione el día…
-[Permalink](https://twitter.com/fernandeznorona/status/1661948385564459009) | 0 Me Gusta | 9 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1661948385564459009) | 0 Me Gusta | 10 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 20:11:42
 *****
@@ -28,4 +28,4 @@ RT @SupsipS: @ifllamas Guadiana y Mejía nunca buscaron ganar la gubernatura. So
 **Fernández Noroña** (**@fernandeznorona**) • 25-05-2023 a las 20:11:11
 *****
 RT @save__alejandro: Distintas maneras de tratar el mismo tema.👇
-[Permalink](https://twitter.com/fernandeznorona/status/1661948066239496193) | 0 Me Gusta | 27 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1661948066239496193) | 0 Me Gusta | 29 Retweets

@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 26-05-2023 a las 19:07:29
+*****
+Es de Acapulco.
+[Permalink](https://twitter.com/fernandeznorona/status/1662294424796160001) | 28 Me Gusta | 4 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 26-05-2023 a las 19:04:21
+*****
+RT @LetyVarela: Dios los cría y ellos se juntan 👇  
+
+
+\#CartelInmobiliario
+[Permalink](https://twitter.com/fernandeznorona/status/1662293636539621378) | 0 Me Gusta | 46 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 26-05-2023 a las 17:28:47
+*****
+17,920 en Facebook y, 5957 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1662269587675652107) | 135 Me Gusta | 29 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 26-05-2023 a las 12:46:29
 *****
 Toda mi solidaridad. Lo que necesites en tu apoyo.
-[Permalink](https://twitter.com/fernandeznorona/status/1662198544189587461) | 87 Me Gusta | 22 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1662198544189587461) | 125 Me Gusta | 36 Retweets
 *****
 **Fernández Noroña** (**@fernandeznorona**) • 26-05-2023 a las 12:45:34
 *****
 RT @scabbiamx: Zedillo privatizó 20 mil km de vías, algo que era propiedad de la nación lo regaló a sus amigos. y la SCJN hizo algo? invali…
-[Permalink](https://twitter.com/fernandeznorona/status/1662198312773066752) | 0 Me Gusta | 99 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 26-05-2023 a las 12:44:46
-*****
-¿Es tu casa señorito X jr. @ClaudioXGG?
-[Permalink](https://twitter.com/fernandeznorona/status/1662198111345991680) | 112 Me Gusta | 27 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 26-05-2023 a las 12:26:42
-*****
-Merecen el basurero de la historia donde ellos solos se instalaron.
-[Permalink](https://twitter.com/fernandeznorona/status/1662193565005479936) | 103 Me Gusta | 26 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 26-05-2023 a las 12:00:13
-*****
-Ya me quedó claro que la @catrina_nortena es una profesional de la mentira y de la intriga. Espero que ese cumplido si me lo reconozca.
-[Permalink](https://twitter.com/fernandeznorona/status/1662186899161661459) | 266 Me Gusta | 60 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1662198312773066752) | 0 Me Gusta | 167 Retweets

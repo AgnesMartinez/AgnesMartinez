@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2023 a las 21:29:45
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2023 a las 07:54:37
 *****
-Le dijeron mal al compañero presidente. 2/3 de 500 es 330. 330 diputados se necesitan para tener mayoría calificada.
-[Permalink](https://twitter.com/fernandeznorona/status/1662692617254207489) | 90 Me Gusta | 23 Retweets
+Borré el comentario de: “le dijeron mal al compañero presidente” sobre la mayoría calificada. Ciertamente la operación aritmética estricta son 334, pero políticamente implicaría una votación superior a mayoría calificada. Por ello el criterio es de 330 diputados para obtenerla.
+[Permalink](https://twitter.com/fernandeznorona/status/1662849870007500800) | 77 Me Gusta | 13 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2023 a las 20:37:53
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2023 a las 07:51:14
 *****
-RT @aura_fdez: Por favor ayúdenme a compartir para encontrarles.
-RT: @fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1662679562025664512) | 0 Me Gusta | 38 Retweets
+Por esta discusión, hice una reflexión sobre el tema y lo explicaré hoy en mi video charla. La ley exige mayoría calificada, no un número superior. Al hacer el cálculo con la fracción, iría a una exigencia mayor que la de la ley. Por ello el criterio de mayoría calificada es 330.
+[Permalink](https://twitter.com/fernandeznorona/status/1662849016718303233) | 32 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2023 a las 20:33:01
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2023 a las 07:34:33
 *****
-Pues aprenda a hacer cuentas compañero. Saque el 66% de 500; verá que es 330.
-[Permalink](https://twitter.com/fernandeznorona/status/1662678339709181960) | 44 Me Gusta | 4 Retweets
+Aritméticamente tienes toda la razón. Políticamente, consideramos mayoría calificada con 330 diputados. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1662844818555572226) | 32 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2023 a las 18:40:27
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2023 a las 07:33:07
 *****
-@AlmaBora @Meztli_1 @FreddyOliviery @TEPJF_informa 330.
-[Permalink](https://twitter.com/fernandeznorona/status/1662650011560157189) | 7 Me Gusta | 2 Retweets
+Todavía te estaba escribiendo ahorita el dato de 330, porque ciertamente consideramos 66%, como dos tercios. No consideramos 66.66. Nunca en las votaciones se ha pedido 334 votos para mayoría calificada.
+[Permalink](https://twitter.com/fernandeznorona/status/1662844459246288896) | 25 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-05-2023 a las 17:58:51
+**Fernández Noroña** (**@fernandeznorona**) • 28-05-2023 a las 07:26:21
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1662639540543328257) | 39 Me Gusta | 6 Retweets
+Intrigantes e ignorantes. Vayan al diccionario. Ustedes no son profesionales de la intriga, son aficionados, porque no viven de ello.
+[Permalink](https://twitter.com/fernandeznorona/status/1662842756463722497) | 45 Me Gusta | 7 Retweets

@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2023 a las 19:36:25
+**Fernández Noroña** (**@fernandeznorona**) • 29-05-2023 a las 09:16:34
 *****
-Hubieras querido tener alguna vez el 80% de respaldo popular, cabeza hueca @VicenteFoxQue. Ni en tus sueños más febriles lo has tenido.
-[Permalink](https://twitter.com/fernandeznorona/status/1663026482082627584) | 327 Me Gusta | 69 Retweets
+RT @rubengluengas: ¿Qué tal esta publicación de febrero del 2021 del diario El Mundo? @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1663232879332147233) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2023 a las 19:35:08
+**Fernández Noroña** (**@fernandeznorona**) • 29-05-2023 a las 09:00:23
 *****
-Lamentable. Mi solidaridad para familiares y amigos de Antonio Gala. Su obra “El Manuscrito Carmesí” es excepcional.
-[Permalink](https://twitter.com/fernandeznorona/status/1663026160270290944) | 40 Me Gusta | 12 Retweets
+Transa.
+[Permalink](https://twitter.com/fernandeznorona/status/1663228804775706625) | 11 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2023 a las 19:27:09
+**Fernández Noroña** (**@fernandeznorona**) • 29-05-2023 a las 08:59:05
 *****
-RT @JOSEALAM: SE DEJA QUERER NOROÑA
-
-
-@fernandeznorona quien es diputado federal del PT y aspirante a la candidatura presidencial del movimi…
-[Permalink](https://twitter.com/fernandeznorona/status/1663024151332892672) | 0 Me Gusta | 44 Retweets
+Le expliqué ayer.
+[Permalink](https://twitter.com/fernandeznorona/status/1663228479457071109) | 8 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2023 a las 19:11:25
+**Fernández Noroña** (**@fernandeznorona**) • 29-05-2023 a las 08:58:48
 *****
-“La iglesia y el gobierno fabricaban una causa en común para ‘quemar’a los indios descontentos. ¡La persecución religiosa!”. Qué tesis más fuerte de Elena Garro sobre la Guerra Cristera.
-[Permalink](https://twitter.com/fernandeznorona/status/1663020189225738241) | 46 Me Gusta | 15 Retweets
+Ya lo expliqué.
+[Permalink](https://twitter.com/fernandeznorona/status/1663228406572650497) | 7 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-05-2023 a las 19:11:24
+**Fernández Noroña** (**@fernandeznorona**) • 29-05-2023 a las 08:58:13
 *****
-“Hacía menos de diez años que las dos facciones habían acordado los asesinatos de Emiliano Zapata, de Francisco Villa y Felipe Ángeles, el recuerdo de los jefes revolucionarios estaba fresco en la memoria de los indios. La iglesia y el gobierno fabricaban una causa para ‘quemar”
-[Permalink](https://twitter.com/fernandeznorona/status/1663020186386169857) | 76 Me Gusta | 17 Retweets
+Acabó en la decrepitud política más absoluta @MaguMonero. Una tristeza ver como acabó una carrera que fue tan brillante.
+[Permalink](https://twitter.com/fernandeznorona/status/1663228260476686336) | 24 Me Gusta | 11 Retweets

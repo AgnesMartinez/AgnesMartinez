@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 13:58:39
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 21:16:35
 *****
-Para los que ya andan de intrigantes, a mí no me puede pasar lo que a @RicardoMeb, pues he insistido TODO el tiempo en la unidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1663666254073434112) | 330 Me Gusta | 79 Retweets
+Estuvo todo el día, se tardaron algunas horas. Gracias igual.
+[Permalink](https://twitter.com/fernandeznorona/status/1663776466025299969) | 20 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 09:55:43
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 21:02:17
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1663605120884527105) | 94 Me Gusta | 12 Retweets
+La generalización es incorrecta. Te mando un abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1663772867476029440) | 25 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 07:04:36
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 21:00:45
 *****
-Oye @zoerobledo ¿cuándo quitarán el uso del cubrebocas en las clínicas y hospitales de @Tu_IMSS? Es absurdo y arbitrario.
-[Permalink](https://twitter.com/fernandeznorona/status/1663562054874304515) | 259 Me Gusta | 63 Retweets
+Me eché la entrevista completa con @ESCORPIONGOLDEN. Francamente está muy buena. Divertida y con contenido. Muy agradecido.
+[Permalink](https://twitter.com/fernandeznorona/status/1663772482191409154) | 151 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-05-2023 a las 22:05:34
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 19:51:20
 *****
-‘Urge que haya defensores y no cómplices, que haya togados y no fantoches, que no se ultraje a la justicia haciendo la apología de los delitos; no se tuerza lamentablemente la ley para hacer resaltar la inocencia de un bandido’. Ricardo Flores Magón hablándole a Norma Piña.
-[Permalink](https://twitter.com/fernandeznorona/status/1663426405705859072) | 142 Me Gusta | 53 Retweets
+Así será. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1663755010998702081) | 39 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-05-2023 a las 22:03:20
+**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 19:24:34
 *****
-‘Nada repugna más que el juez desvergonzado que vende la justicia y trafica con ella. De la recta aplicación de la ley en México, dependerá que no prospere en nuestro sueldo las doctrinas disolventes’. Ricardo Flores Magón citado por Elena Garro.
-[Permalink](https://twitter.com/fernandeznorona/status/1663425842238877697) | 131 Me Gusta | 39 Retweets
+Siguen confundiendo la plaza de Leandro Valle con estacionamiento ⁦@UCS_GCDMX⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1663748275382677509) | 77 Me Gusta | 12 Retweets

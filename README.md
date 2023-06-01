@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 19:47:34
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 07:35:53
 *****
-450,000 vistas en un día, lleva la entrevista con @ESCORPIONGOLDEN.
-[Permalink](https://twitter.com/fernandeznorona/status/1664116453178523649) | 372 Me Gusta | 62 Retweets
+Eres un farsante.
+[Permalink](https://twitter.com/fernandeznorona/status/1664294706748981249) | 131 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 19:29:52
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 06:25:33
 *****
-“Nunca se ha exigido más de un hombre en un lapso tan breve, como se le exigió a don Francisco I. Madero. En unas horas debía resolver problemas que habían durado siglos”. Elena Garro sobre Madero.
-[Permalink](https://twitter.com/fernandeznorona/status/1664111995426344960) | 42 Me Gusta | 9 Retweets
+Ya me iba de @MVSNoticias
+[Permalink](https://twitter.com/fernandeznorona/status/1664277006064955394) | 45 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 19:28:21
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 06:17:21
 *****
-“… frente a un hombre que sabían que no iba a asesinarlos”. Garro hablando de la actitud de poderosos y sometidos frente a Madero. Cualquier coincidencia con la actualidad demuestra que hay que no lee la historia patria.
-[Permalink](https://twitter.com/fernandeznorona/status/1664111617498292226) | 19 Me Gusta | 4 Retweets
+El proceso de convocatoria a un periodo extraordinario está siguiendo su curso. Son ustedes mentirosos e intrigantes. @Reforma.
+[Permalink](https://twitter.com/fernandeznorona/status/1664274941762744321) | 67 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 19:28:21
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 06:00:02
 *****
-Durante el interinato de De la Barra, “una extraña ‘sed de libertad’ se apoderó de los esclavistas y de algunos esclavos. Los primeros buscaban recuperar el poder. Los segundos, aterrados durante 35 años veían ahora la posibilidad de demostrar ‘su hombría’ frente a un hombre…”
-[Permalink](https://twitter.com/fernandeznorona/status/1664111613878706178) | 46 Me Gusta | 8 Retweets
+Falso, sigue el proceso legislativo para convocarse al periodo extraordinario, pasquín @reformanacional.
+[Permalink](https://twitter.com/fernandeznorona/status/1664270585365659648) | 63 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 19:23:25
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 05:53:35
 *****
-‘Yo sólo tengo fe en el pueblo humilde. ¿Con quien hicimos la revolución?’ “Y volviendo hacia uno de sus amigos que lo acompañaban: ‘¿Verdad que no le hicimos con los bombines?’ Garro, citando a Madero según la versión de Lamicq.
-[Permalink](https://twitter.com/fernandeznorona/status/1664110375099412482) | 59 Me Gusta | 20 Retweets
+Estás haciendo propaganda electoral en tiempo te veda Dr. Chapatín @JesusMartinMx. ya que hablas de esta persona ¿por qué no comentas del fraude por 5000 millones de pesos?
+[Permalink](https://twitter.com/fernandeznorona/status/1664268958634225665) | 168 Me Gusta | 63 Retweets

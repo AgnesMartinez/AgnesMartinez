@@ -1,26 +1,38 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 08:13:40
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 14:55:02
 *****
-RT @JesusRCuevas: Sin justificación aparente, @YouTube suspendió la cuenta de @Cepropie que transmite de manera oficial las conferencias ma…
-[Permalink](https://twitter.com/fernandeznorona/status/1663941824543698945) | 0 Me Gusta | 1,461 Retweets
+RT @manuelhborbolla: "Democracia" a la gringa en Perú. Este es el resultado tras el golpe de Estado y la masacre del pueblo peruano. 
+
+
+Bolu…
+[Permalink](https://twitter.com/fernandeznorona/status/1664042833236353026) | 0 Me Gusta | 554 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 21:16:35
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 13:07:00
 *****
-Estuvo todo el día, se tardaron algunas horas. Gracias igual.
-[Permalink](https://twitter.com/fernandeznorona/status/1663776466025299969) | 65 Me Gusta | 11 Retweets
+RT @Nubia_SCG: Me da mucho gusto que el ente anómalo que tuitea a sueldo, navegue mis pantallazos. 
+
+
+Que desquite lo que le pagan, afortuna…
+[Permalink](https://twitter.com/fernandeznorona/status/1664015646739275784) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 21:02:17
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 12:49:40
 *****
-La generalización es incorrecta. Te mando un abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1663772867476029440) | 58 Me Gusta | 7 Retweets
+RT @lximenezsarro: De nueva cuenta, envío toda mi solidaridad con mi gran amiga entrañable @DeniseDresserG, quien actualmente se encuentra…
+[Permalink](https://twitter.com/fernandeznorona/status/1664011283790811136) | 0 Me Gusta | 554 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 21:00:45
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 12:46:34
 *****
-Me eché la entrevista completa con @ESCORPIONGOLDEN. Francamente está muy buena. Divertida y con contenido. Muy agradecido.
-[Permalink](https://twitter.com/fernandeznorona/status/1663772482191409154) | 443 Me Gusta | 65 Retweets
+RT @Nubia_SCG: Adivina adivinador, ¿Quién tuiteó está joya, y luego la eliminó?
+
+
+🤣🤣🤣
+
+
+Mira, colectivo anómalo, te voy a hacer el favor de r…
+[Permalink](https://twitter.com/fernandeznorona/status/1664010504170352642) | 0 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 30-05-2023 a las 19:51:20
+**Fernández Noroña** (**@fernandeznorona**) • 31-05-2023 a las 12:45:14
 *****
-Así será. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1663755010998702081) | 62 Me Gusta | 8 Retweets
+No tiene facultades para exigirnos que obviemos los trámites legislativos.
+[Permalink](https://twitter.com/fernandeznorona/status/1664010166788825089) | 135 Me Gusta | 50 Retweets

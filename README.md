@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 07:35:53
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 18:58:50
 *****
-Eres un farsante.
-[Permalink](https://twitter.com/fernandeznorona/status/1664294706748981249) | 194 Me Gusta | 25 Retweets
+Debí tomarle foto al alacrán tamaño llorarás que salió en el baño. Casi muero del susto.
+[Permalink](https://twitter.com/fernandeznorona/status/1664466574353346560) | 126 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 06:25:33
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 17:49:22
 *****
-Ya me iba de @MVSNoticias
-[Permalink](https://twitter.com/fernandeznorona/status/1664277006064955394) | 55 Me Gusta | 7 Retweets
+Ella no es ni será representante del gobierno de México. Va como una particular.
+[Permalink](https://twitter.com/fernandeznorona/status/1664449095497400321) | 171 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 06:17:21
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 17:24:26
 *****
-El proceso de convocatoria a un periodo extraordinario está siguiendo su curso. Son ustedes mentirosos e intrigantes. @Reforma.
-[Permalink](https://twitter.com/fernandeznorona/status/1664274941762744321) | 94 Me Gusta | 29 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1664442819036041218) | 20 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 06:00:02
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 17:23:21
 *****
-Falso, sigue el proceso legislativo para convocarse al periodo extraordinario, pasquín @reformanacional.
-[Permalink](https://twitter.com/fernandeznorona/status/1664270585365659648) | 90 Me Gusta | 30 Retweets
+RT @BerCorHer: Como no podía ser de otro modo, la entrevista que hizo @ESCORPIONGOLDEN al diputado @fernandeznorona lleva más de 500 mil vi…
+[Permalink](https://twitter.com/fernandeznorona/status/1664442545168871425) | 0 Me Gusta | 61 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 05:53:35
+**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 17:22:56
 *****
-Estás haciendo propaganda electoral en tiempo te veda Dr. Chapatín @JesusMartinMx. ya que hablas de esta persona ¿por qué no comentas del fraude por 5000 millones de pesos?
-[Permalink](https://twitter.com/fernandeznorona/status/1664268958634225665) | 231 Me Gusta | 81 Retweets
+Ya saldrá @ChicChillon a criticar mi dislexia, pues dije 640,000 y van 604,000.
+[Permalink](https://twitter.com/fernandeznorona/status/1664442441162686465) | 73 Me Gusta | 13 Retweets

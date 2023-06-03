@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 18:58:50
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 15:36:45
 *****
-Debí tomarle foto al alacrán tamaño llorarás que salió en el baño. Casi muero del susto.
-[Permalink](https://twitter.com/fernandeznorona/status/1664466574353346560) | 183 Me Gusta | 15 Retweets
+Era diputado del @PTnacionalMX.
+[Permalink](https://twitter.com/fernandeznorona/status/1664778105578311682) | 26 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 17:49:22
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 15:21:14
 *****
-Ella no es ni será representante del gobierno de México. Va como una particular.
-[Permalink](https://twitter.com/fernandeznorona/status/1664449095497400321) | 294 Me Gusta | 62 Retweets
+A este momento, 753,000.
+[Permalink](https://twitter.com/fernandeznorona/status/1664774202711486465) | 140 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 17:24:26
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 15:14:51
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1664442819036041218) | 27 Me Gusta | 2 Retweets
+154. En México sector Salud brinda atención médica integral sin que sea necesaria una NOM | Secretaría de Salud | Gobierno |
+[Permalink](https://twitter.com/fernandeznorona/status/1664772594682454016) | 33 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 17:23:21
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 15:05:25
 *****
-RT @BerCorHer: Como no podía ser de otro modo, la entrevista que hizo @ESCORPIONGOLDEN al diputado @fernandeznorona lleva más de 500 mil vi…
-[Permalink](https://twitter.com/fernandeznorona/status/1664442545168871425) | 0 Me Gusta | 86 Retweets
+RT @RoiLopezRivas: Perú.
+[Permalink](https://twitter.com/fernandeznorona/status/1664770221746298881) | 0 Me Gusta | 2,242 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 01-06-2023 a las 17:22:56
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 15:03:22
 *****
-Ya saldrá @ChicChillon a criticar mi dislexia, pues dije 640,000 y van 604,000.
-[Permalink](https://twitter.com/fernandeznorona/status/1664442441162686465) | 117 Me Gusta | 23 Retweets
+“Oficina presidencial”, no cabe duda que además de cabeza hueca, no superas la lejanía del poder @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1664769707293982723) | 109 Me Gusta | 35 Retweets

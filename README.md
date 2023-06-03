@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 15:36:45
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 21:12:58
 *****
-Era diputado del @PTnacionalMX.
-[Permalink](https://twitter.com/fernandeznorona/status/1664778105578311682) | 26 Me Gusta | 7 Retweets
+Y sigue cometiendo delitos electorales el cabeza hueca @VicenteFoxQue, @INEMexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1664862718694940672) | 135 Me Gusta | 53 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 15:21:14
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 21:11:43
 *****
-A este momento, 753,000.
-[Permalink](https://twitter.com/fernandeznorona/status/1664774202711486465) | 140 Me Gusta | 25 Retweets
+RT @highvanillacoke: Los del ph2 están ebrios gritando que me van a violar. Uno se bajó los pantalones. Tengo el video @UCS_GCDMX @Fiscalia…
+[Permalink](https://twitter.com/fernandeznorona/status/1664862402553290753) | 0 Me Gusta | 478 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 15:14:51
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 21:10:21
 *****
-154. En México sector Salud brinda atención médica integral sin que sea necesaria una NOM | Secretaría de Salud | Gobierno |
-[Permalink](https://twitter.com/fernandeznorona/status/1664772594682454016) | 33 Me Gusta | 12 Retweets
+Ahí te hablan cabeza hueca @VicenteFoxQue. Conmigo no te salvarás de enfrentar el proceso penal que mereces.
+[Permalink](https://twitter.com/fernandeznorona/status/1664862060432470017) | 147 Me Gusta | 57 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 15:05:25
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 19:23:56
 *****
-RT @RoiLopezRivas: Perú.
-[Permalink](https://twitter.com/fernandeznorona/status/1664770221746298881) | 0 Me Gusta | 2,242 Retweets
+No tenía ningún cargo.
+[Permalink](https://twitter.com/fernandeznorona/status/1664835279977324544) | 41 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 15:03:22
+**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 18:46:45
 *****
-“Oficina presidencial”, no cabe duda que además de cabeza hueca, no superas la lejanía del poder @VicenteFoxQue.
-[Permalink](https://twitter.com/fernandeznorona/status/1664769707293982723) | 109 Me Gusta | 35 Retweets
+Aquí el cabeza hueca @VicenteFoxQue violando la ley flagrantemente, llamando a votar por su candidata @INEMexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1664825923101945858) | 189 Me Gusta | 49 Retweets

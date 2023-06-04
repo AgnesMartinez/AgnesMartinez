@@ -1,26 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 15:47:33
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 19:31:57
 *****
-Si soy.
-[Permalink](https://twitter.com/fernandeznorona/status/1665143214888583170) | 25 Me Gusta | 2 Retweets
+RT @aran_tirado: 📚 No estoy en la #FeriaDelLibroMadrid pero mis libros sí estarán. Podéis encontrarlos en la caseta de @AkalEditor hasta el…
+[Permalink](https://twitter.com/fernandeznorona/status/1665199686448193536) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 15:29:06
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 19:28:50
 *****
-Sigue el cabeza hueca cometiendo delitos electorales. @VicenteFoxQue eres un asco de persona. Y te dices demócrata. @INEMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1665138568573116419) | 139 Me Gusta | 63 Retweets
+RT @joangar: También me firmo mi libro!
+Mi Presidente!!! @fernandeznorona @lopezobrador_
+[Permalink](https://twitter.com/fernandeznorona/status/1665198899190190080) | 0 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 14:31:41
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 19:07:28
 *****
-En Los Ángeles.
-[Permalink](https://twitter.com/fernandeznorona/status/1665124119296503809) | 130 Me Gusta | 20 Retweets
+RT @Claudiashein: Estoy en el zócalo. Ya está muy lleno. Ya no hay espacio quédense en las pantallas que están en diferentes zonas
+[Permalink](https://twitter.com/fernandeznorona/status/1665193522214084609) | 0 Me Gusta | 566 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 13:58:55
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 18:33:59
 *****
-RT @Walky7309: Exactamente así 😥😥
-[Permalink](https://twitter.com/fernandeznorona/status/1665115874804596738) | 0 Me Gusta | 28 Retweets
+@buk_celine @lopezobrador_ Arriba.
+[Permalink](https://twitter.com/fernandeznorona/status/1665185096075292674) | 10 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 13:35:39
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 18:00:34
 *****
-RT @MovNoronistaOf: Compañer@s de ciudad Juárez, están todos invitad@s a la presentación del libro EL CAMINO DE LA BESTIA, mañana domingo 4…
-[Permalink](https://twitter.com/fernandeznorona/status/1665110019199713281) | 0 Me Gusta | 26 Retweets
+RT @epigmenioibarra: #AlertaEDOMEX
+“Hace unos momentos: PRIistas repartiendo dinero en Tlalnepantla, comprando Votos para Ale del Moral, Re…
+[Permalink](https://twitter.com/fernandeznorona/status/1665176689435975681) | 0 Me Gusta | 1,517 Retweets

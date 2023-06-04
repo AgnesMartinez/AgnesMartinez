@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 09:42:59
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 15:47:33
 *****
-Lo terminé. Espléndido libro de gran utilidad para el momento que estamos viviendo en la relación de México y Estados Unidos. Imperdible.
-[Permalink](https://twitter.com/fernandeznorona/status/1665051466946736129) | 49 Me Gusta | 19 Retweets
+Si soy.
+[Permalink](https://twitter.com/fernandeznorona/status/1665143214888583170) | 25 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 21:12:58
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 15:29:06
 *****
-Y sigue cometiendo delitos electorales el cabeza hueca @VicenteFoxQue, @INEMexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1664862718694940672) | 368 Me Gusta | 127 Retweets
+Sigue el cabeza hueca cometiendo delitos electorales. @VicenteFoxQue eres un asco de persona. Y te dices demócrata. @INEMexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1665138568573116419) | 139 Me Gusta | 63 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 21:11:43
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 14:31:41
 *****
-RT @highvanillacoke: Los del ph2 están ebrios gritando que me van a violar. Uno se bajó los pantalones. Tengo el video @UCS_GCDMX @Fiscalia…
-[Permalink](https://twitter.com/fernandeznorona/status/1664862402553290753) | 0 Me Gusta | 523 Retweets
+En Los Ángeles.
+[Permalink](https://twitter.com/fernandeznorona/status/1665124119296503809) | 130 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 21:10:21
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 13:58:55
 *****
-Ahí te hablan cabeza hueca @VicenteFoxQue. Conmigo no te salvarás de enfrentar el proceso penal que mereces.
-[Permalink](https://twitter.com/fernandeznorona/status/1664862060432470017) | 423 Me Gusta | 168 Retweets
+RT @Walky7309: Exactamente así 😥😥
+[Permalink](https://twitter.com/fernandeznorona/status/1665115874804596738) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 02-06-2023 a las 19:23:56
+**Fernández Noroña** (**@fernandeznorona**) • 03-06-2023 a las 13:35:39
 *****
-No tenía ningún cargo.
-[Permalink](https://twitter.com/fernandeznorona/status/1664835279977324544) | 50 Me Gusta | 14 Retweets
+RT @MovNoronistaOf: Compañer@s de ciudad Juárez, están todos invitad@s a la presentación del libro EL CAMINO DE LA BESTIA, mañana domingo 4…
+[Permalink](https://twitter.com/fernandeznorona/status/1665110019199713281) | 0 Me Gusta | 26 Retweets

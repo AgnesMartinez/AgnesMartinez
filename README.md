@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-06-2023 a las 21:05:14
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 07:57:39
 *****
-Lo terminé. Buen libro. Cuenta una tragedia cabrona.
-[Permalink](https://twitter.com/fernandeznorona/status/1665585549392871426) | 103 Me Gusta | 15 Retweets
+No solo @Twitter. Lo que está haciendo es pura y dura violencia política de género. Debes denunciarlo en la fiscalía correspondiente.
+[Permalink](https://twitter.com/fernandeznorona/status/1665749736123424769) | 41 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-06-2023 a las 19:02:26
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 07:54:22
 *****
-Ganamos. No confían en el pueblo. Se equivocaron en Coahuila y se están equivocando en el Estado de México.
-[Permalink](https://twitter.com/fernandeznorona/status/1665554644020654080) | 144 Me Gusta | 20 Retweets
+RT @MoneroTeta:
+[Permalink](https://twitter.com/fernandeznorona/status/1665748907186421760) | 0 Me Gusta | 247 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-06-2023 a las 19:00:15
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 07:50:58
 *****
-RT @El_Universal_Mx: 🚨#ÚltimaHora Conteo rápido da triunfo a Delfina Gómez en gubernatura de Edomex
-[Permalink](https://twitter.com/fernandeznorona/status/1665554094306603009) | 0 Me Gusta | 103 Retweets
+Ya en el avión para salir de Ciudad Juárez al DF con @Aeromexico.
+[Permalink](https://twitter.com/fernandeznorona/status/1665748051212881927) | 51 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-06-2023 a las 18:59:35
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 07:08:16
 *****
-Ya dieron el conteo rápido. Les ganamos.
-[Permalink](https://twitter.com/fernandeznorona/status/1665553926324625408) | 309 Me Gusta | 57 Retweets
+Ahora dilo sin llorar.
+[Permalink](https://twitter.com/fernandeznorona/status/1665737304839733250) | 535 Me Gusta | 101 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 04-06-2023 a las 18:58:35
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 07:06:55
 *****
-¿Qué dicen a esto @PRI_Nacional, @AccionNacional y @PRDMexico? Hace seis años nos robaron la elección, hoy no pudieron gracias a la participación popular. @ClaudioXGG por favor sigue como estratega político de la derecha.  Larga vida a Claudio X…
-[Permalink](https://twitter.com/fernandeznorona/status/1665553675115286529) | 1,159 Me Gusta | 385 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1665736968771100672) | 173 Me Gusta | 20 Retweets

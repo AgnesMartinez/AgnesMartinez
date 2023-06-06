@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 07:57:39
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 14:39:54
 *****
-No solo @Twitter. Lo que está haciendo es pura y dura violencia política de género. Debes denunciarlo en la fiscalía correspondiente.
-[Permalink](https://twitter.com/fernandeznorona/status/1665749736123424769) | 41 Me Gusta | 12 Retweets
+Ahí les hablan #TomandanteBorolas alias @FelipeCalderon y @Mzavalagc.
+[Permalink](https://twitter.com/fernandeznorona/status/1665850964136407041) | 150 Me Gusta | 57 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 07:54:22
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 14:07:34
 *****
-RT @MoneroTeta:
-[Permalink](https://twitter.com/fernandeznorona/status/1665748907186421760) | 0 Me Gusta | 247 Retweets
+Xacto
+[Permalink](https://twitter.com/fernandeznorona/status/1665842828306423809) | 132 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 07:50:58
-*****
-Ya en el avión para salir de Ciudad Juárez al DF con @Aeromexico.
-[Permalink](https://twitter.com/fernandeznorona/status/1665748051212881927) | 51 Me Gusta | 8 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 07:08:16
-*****
-Ahora dilo sin llorar.
-[Permalink](https://twitter.com/fernandeznorona/status/1665737304839733250) | 535 Me Gusta | 101 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 07:06:55
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 14:05:23
 *****
 Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1665736968771100672) | 173 Me Gusta | 20 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1665842276554231819) | 37 Me Gusta | 11 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 13:47:02
+*****
+Pues claro que está enojado. ¿Por qué?  No lo sé.
+[Permalink](https://twitter.com/fernandeznorona/status/1665837659821084673) | 26 Me Gusta | 5 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 13:28:47
+*****
+¡Perdieron y celebran resultado en el Estado de México! Son delirantes #TomandanteBorolas alias @FelipeCalderon.
+[Permalink](https://twitter.com/fernandeznorona/status/1665833065023766531) | 73 Me Gusta | 30 Retweets

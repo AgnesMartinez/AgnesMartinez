@@ -1,26 +1,32 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 14:39:54
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 18:36:06
 *****
-Ahí les hablan #TomandanteBorolas alias @FelipeCalderon y @Mzavalagc.
-[Permalink](https://twitter.com/fernandeznorona/status/1665850964136407041) | 150 Me Gusta | 57 Retweets
+Si apoyas el método en la encuesta, él ganó la encuesta.
+[Permalink](https://twitter.com/fernandeznorona/status/1665910405309558786) | 52 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 14:07:34
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 18:35:04
 *****
-Xacto
-[Permalink](https://twitter.com/fernandeznorona/status/1665842828306423809) | 132 Me Gusta | 49 Retweets
+RT @jgnaredo: AMLO se ve muy contento.
+
+
+Hace 6 años el PRI hizo fraude en Edomex.
+
+
+Morena, que no gobernaba nada, podía llamar a movilizaci…
+[Permalink](https://twitter.com/fernandeznorona/status/1665910144683896832) | 0 Me Gusta | 450 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 14:05:23
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 18:30:28
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1665842276554231819) | 37 Me Gusta | 11 Retweets
+Mira, coincido @rivapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1665908986154221568) | 46 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 13:47:02
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 18:27:49
 *****
-Pues claro que está enojado. ¿Por qué?  No lo sé.
-[Permalink](https://twitter.com/fernandeznorona/status/1665837659821084673) | 26 Me Gusta | 5 Retweets
+Podría refutar muchos de los argumentos que has dado y no quise entrar en la polémica. Lo que es un hecho es que su candidatura fue un fiasco. Ni siquiera pudo ganarle a @aguadiana. Ese es un hecho indiscutible que @RicardoMeb fue un mal candidato movido por la ambición.
+[Permalink](https://twitter.com/fernandeznorona/status/1665908322585939968) | 83 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 13:28:47
+**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 18:24:08
 *****
-¡Perdieron y celebran resultado en el Estado de México! Son delirantes #TomandanteBorolas alias @FelipeCalderon.
-[Permalink](https://twitter.com/fernandeznorona/status/1665833065023766531) | 73 Me Gusta | 30 Retweets
+Xacto.
+[Permalink](https://twitter.com/fernandeznorona/status/1665907395174989824) | 30 Me Gusta | 5 Retweets

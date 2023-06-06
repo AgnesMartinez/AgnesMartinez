@@ -1,32 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 18:36:06
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 08:27:25
 *****
-Si apoyas el método en la encuesta, él ganó la encuesta.
-[Permalink](https://twitter.com/fernandeznorona/status/1665910405309558786) | 58 Me Gusta | 8 Retweets
+RT @KyleSkynet: @Mike28dev @lopezobrador_ No se le olvide Sr Presidente
+\#ElPuebloDecideNoroñaEsElQueSigue
+[Permalink](https://twitter.com/fernandeznorona/status/1666119613682253826) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 18:35:04
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 06:46:44
 *****
-RT @jgnaredo: AMLO se ve muy contento.
-
-
-Hace 6 años el PRI hizo fraude en Edomex.
-
-
-Morena, que no gobernaba nada, podía llamar a movilizaci…
-[Permalink](https://twitter.com/fernandeznorona/status/1665910144683896832) | 0 Me Gusta | 479 Retweets
+RT @sabinaberman: Esto no le pasa a ningún candidato del PRIAN. Sin propaganda ni organización de cientos de personas, el fervor espontáneo…
+[Permalink](https://twitter.com/fernandeznorona/status/1666094277078958085) | 0 Me Gusta | 223 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 18:30:28
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 06:42:46
 *****
-Mira, coincido @rivapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1665908986154221568) | 54 Me Gusta | 13 Retweets
+Cada vez está peor. Ya van tres camionetas que tienen como estacionamiento la plaza de Leandro Valle ⁦@UCS_GCDMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1666093275944742914) | 66 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 18:27:49
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 06:40:31
 *****
-Podría refutar muchos de los argumentos que has dado y no quise entrar en la polémica. Lo que es un hecho es que su candidatura fue un fiasco. Ni siquiera pudo ganarle a @aguadiana. Ese es un hecho indiscutible que @RicardoMeb fue un mal candidato movido por la ambición.
-[Permalink](https://twitter.com/fernandeznorona/status/1665908322585939968) | 108 Me Gusta | 25 Retweets
+Lo terminé. Me lo regaló un librero en Ciudad Juárez. Es una joya.
+[Permalink](https://twitter.com/fernandeznorona/status/1666092710200250369) | 140 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 05-06-2023 a las 18:24:08
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 06:28:25
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1665907395174989824) | 36 Me Gusta | 7 Retweets
+Otros que confunden la plaza de Leandro Valle con estacionamiento ⁦@UCS_GCDMX⁩
+[Permalink](https://twitter.com/fernandeznorona/status/1666089665290719234) | 100 Me Gusta | 20 Retweets

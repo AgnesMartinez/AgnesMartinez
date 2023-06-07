@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 15:41:06
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 19:45:13
 *****
-Éste también es un mensaje de una cuenta falsa.
-[Permalink](https://twitter.com/fernandeznorona/status/1666228752509026305) | 65 Me Gusta | 16 Retweets
+RT @fisgonmonero: Solidaridad urgente.
+Mañana 7 de junio, frente a la embajada de Colombia, a las 13:30, mitin en solidaridad a Gustavo Pet…
+[Permalink](https://twitter.com/fernandeznorona/status/1666290189092675584) | 0 Me Gusta | 974 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 15:40:44
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 19:42:28
 *****
-Éste es un mensaje falso @Twitter.
-[Permalink](https://twitter.com/fernandeznorona/status/1666228661450690566) | 58 Me Gusta | 10 Retweets
+Ahí estoy, en primera fila. 5 de junio de 2011.
+[Permalink](https://twitter.com/fernandeznorona/status/1666289493278867456) | 491 Me Gusta | 95 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 14:50:58
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 18:48:29
 *****
-Ese es el sectarismo que alienta la exclusión.
-[Permalink](https://twitter.com/fernandeznorona/status/1666216135120007174) | 156 Me Gusta | 42 Retweets
+Yo creo que no se dio cuenta @alvaro_delgado.
+[Permalink](https://twitter.com/fernandeznorona/status/1666275910616768512) | 75 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 14:48:09
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 18:19:15
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1666215428300079104) | 32 Me Gusta | 7 Retweets
+¿Qué pasó en el Estado de México cabeza hueca @VicenteFoxQue?
+[Permalink](https://twitter.com/fernandeznorona/status/1666268552595210241) | 239 Me Gusta | 38 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 14:07:59
+**Fernández Noroña** (**@fernandeznorona**) • 06-06-2023 a las 17:18:00
 *****
-RT @la_de_rh: Buenas, buenas, buenas.
-[Permalink](https://twitter.com/fernandeznorona/status/1666205320211750918) | 0 Me Gusta | 512 Retweets
+18,993 en Facebook y, 15,022 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1666253140910305282) | 191 Me Gusta | 43 Retweets

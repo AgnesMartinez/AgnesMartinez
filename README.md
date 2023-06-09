@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 09:51:53
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 15:43:06
 *****
-En San Juanico, Tlalnepantla, Estado de México.
-[Permalink](https://twitter.com/fernandeznorona/status/1666865644816728065) | 83 Me Gusta | 12 Retweets
+Pues es una condición para participar que no está a discusión. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1666954033024888832) | 35 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 09:50:23
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 15:42:08
 *****
-Éstas son mis bardas. Muy agradecido de ese apoyo a los compañeros de San Luis Río Colorado, Sonora.
-[Permalink](https://twitter.com/fernandeznorona/status/1666865267836870656) | 55 Me Gusta | 15 Retweets
+No intrigues. Sé decente. Nunca dije tal cosa. Manifesté con claridad que las mañaneras continuarán a la misma hora.
+[Permalink](https://twitter.com/fernandeznorona/status/1666953787859439616) | 37 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 09:34:12
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 15:40:15
 *****
-Los que me apoya no se pierdan en boberías. Tampoco pronuncia bien el apellido de Claudia, ni en el de Marcelo. Y al güero le dijo Velazquez y luego corrigió. Así que no caigan los provocaciones de los odiadores.
-[Permalink](https://twitter.com/fernandeznorona/status/1666861194332733455) | 168 Me Gusta | 28 Retweets
+RT @Radio_Formula: 🚨 #ÚltimaHora | El diputado Gerardo Fernández Noroña (@fernandeznorona) presentó su solicitud de licencia por tiempo ind…
+[Permalink](https://twitter.com/fernandeznorona/status/1666953314951663616) | 0 Me Gusta | 44 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 09:29:02
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 15:39:43
 *****
-Pasquín @beltrandelrio disfruta tus niñerías. La diferencia es que yo formo parte de un poderoso movimiento de transformación, y tú has hecho un pasquín de un periódico nacional que fue un gran diario, @Excelsior. Sobre los problemas de dicción del compañero presidente…
-[Permalink](https://twitter.com/fernandeznorona/status/1666859895768113152) | 91 Me Gusta | 27 Retweets
+@jpau74 A ver.
+[Permalink](https://twitter.com/fernandeznorona/status/1666953181803483138) | 2 Me Gusta | 0 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 09:26:28
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 15:39:24
 *****
-Compañero no veo sentido que le des cuerda a cuentas nuevas odiadoras. Lo otro, yo creo que tiene problemas de dicción. Tú crees otra cosa. Santas pascuas.
-[Permalink](https://twitter.com/fernandeznorona/status/1666859250944196608) | 25 Me Gusta | 5 Retweets
+RT @EVIDEGARAY: Venga @fernandeznorona !! #NoroñaPresidente
+[Permalink](https://twitter.com/fernandeznorona/status/1666953100673044485) | 0 Me Gusta | 12 Retweets

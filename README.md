@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 15:43:06
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 19:53:15
 *****
-Pues es una condición para participar que no está a discusión. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1666954033024888832) | 35 Me Gusta | 6 Retweets
+RT @sabinaberman: Hay varios candidatos que despiertan el entusiasmo de distintos sectores. 
+
+
+Consignar que Noroña goza del fervor de mucho…
+[Permalink](https://twitter.com/fernandeznorona/status/1667016982850588672) | 0 Me Gusta | 48 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 15:42:08
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 19:44:35
 *****
-No intrigues. Sé decente. Nunca dije tal cosa. Manifesté con claridad que las mañaneras continuarán a la misma hora.
-[Permalink](https://twitter.com/fernandeznorona/status/1666953787859439616) | 37 Me Gusta | 11 Retweets
+RT @RobertoMorris: Una sucursal de la cadena Cinemex en el estado de Oaxaca despidió a un grupo aproximado de 20 empleados que la semana pa…
+[Permalink](https://twitter.com/fernandeznorona/status/1667014803821588480) | 0 Me Gusta | 398 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 15:40:15
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 19:42:54
 *****
-RT @Radio_Formula: 🚨 #ÚltimaHora | El diputado Gerardo Fernández Noroña (@fernandeznorona) presentó su solicitud de licencia por tiempo ind…
-[Permalink](https://twitter.com/fernandeznorona/status/1666953314951663616) | 0 Me Gusta | 44 Retweets
+@jibarra889 Dizque.
+[Permalink](https://twitter.com/fernandeznorona/status/1667014380339470336) | 7 Me Gusta | 2 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 15:39:43
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 19:13:04
 *****
-@jpau74 A ver.
-[Permalink](https://twitter.com/fernandeznorona/status/1666953181803483138) | 2 Me Gusta | 0 Retweets
+Y seguro estaba en tu cocina.
+[Permalink](https://twitter.com/fernandeznorona/status/1667006872983838722) | 117 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 15:39:24
+**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 19:11:36
 *****
-RT @EVIDEGARAY: Venga @fernandeznorona !! #NoroñaPresidente
-[Permalink](https://twitter.com/fernandeznorona/status/1666953100673044485) | 0 Me Gusta | 12 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1667006504338112513) | 75 Me Gusta | 14 Retweets

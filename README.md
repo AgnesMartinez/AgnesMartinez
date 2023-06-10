@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 16:01:48
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 20:53:42
 *****
-Pues ahora no funciona Facebook, ni YouTube para poder transmitir.
-[Permalink](https://twitter.com/fernandeznorona/status/1667321126521909248) | 50 Me Gusta | 5 Retweets
+Ya en el Hotel Ancira. Mañana estaré en Cadereyta a las 11:30 y, en Monterrey a las cinco de la tarde.
+[Permalink](https://twitter.com/fernandeznorona/status/1667394586312859649) | 86 Me Gusta | 16 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 15:48:52
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 19:05:40
 *****
-Resulta que si alcance a llegar a tiempo. Habrá video charla breve desde el @aifaaero.
-[Permalink](https://twitter.com/fernandeznorona/status/1667317869544374273) | 64 Me Gusta | 11 Retweets
+RT @zenenzeferino: Aquí  nuestro apoyo a @fernandeznorona con esta canción. ¡Vamos con nuestro Gallo! Gracias @Beatriz84981597 , Macario Ta…
+[Permalink](https://twitter.com/fernandeznorona/status/1667367396833730561) | 0 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 14:25:05
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 19:04:14
 *****
-No habrá video charla hasta en la noche, se me complicó la ida al aeropuerto.
-[Permalink](https://twitter.com/fernandeznorona/status/1667296786443280384) | 78 Me Gusta | 17 Retweets
+RT @LJyDMX: El pueblo te respalda y va contigo hasta la victoria, querido @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1667367036685631488) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 13:20:03
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 19:03:56
 *****
-A ver si no pierdo el vuelo. Estás bloqueada la carretera por un accidente en la Pera.
-[Permalink](https://twitter.com/fernandeznorona/status/1667280420466044928) | 71 Me Gusta | 8 Retweets
+RT @contralinea: En su conferencia matutina, @lopezobrador_ proyectó un video que data de 2004, en el cual se escucha a @VicenteFoxQue decl…
+[Permalink](https://twitter.com/fernandeznorona/status/1667366962702196737) | 0 Me Gusta | 376 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 13:11:57
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 19:03:46
 *****
-Una pesadilla en la carretera Cuernavaca México. No puedo salir del entronque de Tepoztlán a Cuernavaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1667278380381732868) | 72 Me Gusta | 10 Retweets
+RT @LJyDMX: 🚩NOROÑA EN CADEREYTA 🚩
+
+
+Nuestros compañeros Noroñistas de Nuevo León trabajando fuerte en la difusión y promoción de la visita…
+[Permalink](https://twitter.com/fernandeznorona/status/1667366918792126467) | 0 Me Gusta | 20 Retweets

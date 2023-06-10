@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 06:41:35
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 16:01:48
 *****
-No bueno, @heraldodemexico no me incluya en las encuestas y ahora me pone con los opositores. Ahí la llevan.
-[Permalink](https://twitter.com/fernandeznorona/status/1667180142270070786) | 199 Me Gusta | 31 Retweets
+Pues ahora no funciona Facebook, ni YouTube para poder transmitir.
+[Permalink](https://twitter.com/fernandeznorona/status/1667321126521909248) | 50 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 06:37:15
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 15:48:52
 *****
-No quieren debate.
-[Permalink](https://twitter.com/fernandeznorona/status/1667179054460444672) | 95 Me Gusta | 30 Retweets
+Resulta que si alcance a llegar a tiempo. Habrá video charla breve desde el @aifaaero.
+[Permalink](https://twitter.com/fernandeznorona/status/1667317869544374273) | 64 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 06:28:30
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 14:25:05
 *****
-RT @MoneroTeta:
-[Permalink](https://twitter.com/fernandeznorona/status/1667176849833701376) | 0 Me Gusta | 386 Retweets
+No habrá video charla hasta en la noche, se me complicó la ida al aeropuerto.
+[Permalink](https://twitter.com/fernandeznorona/status/1667296786443280384) | 78 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 19:53:15
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 13:20:03
 *****
-RT @sabinaberman: Hay varios candidatos que despiertan el entusiasmo de distintos sectores. 
-
-
-Consignar que Noroña goza del fervor de mucho…
-[Permalink](https://twitter.com/fernandeznorona/status/1667016982850588672) | 0 Me Gusta | 53 Retweets
+A ver si no pierdo el vuelo. Estás bloqueada la carretera por un accidente en la Pera.
+[Permalink](https://twitter.com/fernandeznorona/status/1667280420466044928) | 71 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 08-06-2023 a las 19:44:35
+**Fernández Noroña** (**@fernandeznorona**) • 09-06-2023 a las 13:11:57
 *****
-RT @RobertoMorris: Una sucursal de la cadena Cinemex en el estado de Oaxaca despidió a un grupo aproximado de 20 empleados que la semana pa…
-[Permalink](https://twitter.com/fernandeznorona/status/1667014803821588480) | 0 Me Gusta | 905 Retweets
+Una pesadilla en la carretera Cuernavaca México. No puedo salir del entronque de Tepoztlán a Cuernavaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1667278380381732868) | 72 Me Gusta | 10 Retweets

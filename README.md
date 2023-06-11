@@ -1,32 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 14:57:56
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 21:05:13
 *****
-Cadereyta.
-[Permalink](https://twitter.com/fernandeznorona/status/1667667442435325952) | 73 Me Gusta | 26 Retweets
+Era una chingona mi hermanita María Fernanda Campa Uranga.
+[Permalink](https://twitter.com/fernandeznorona/status/1667759869884252161) | 43 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 14:57:24
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 21:04:00
 *****
-Cadereyta.
-[Permalink](https://twitter.com/fernandeznorona/status/1667667305587769345) | 72 Me Gusta | 21 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 14:56:57
-*****
-Cadereyta.
-[Permalink](https://twitter.com/fernandeznorona/status/1667667196196139010) | 123 Me Gusta | 35 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 09:04:46
-*****
-RT @InformaCosmos: Los tiburones han sobrevivido a las cinco grandes extinciones masivas.
+RT @AlbertoAnayaGt: A 52 años de la matanza del Jueves de Corpus, honramos la memoria de los jóvenes y maestros caídos.
 
 
-Existen desde hace más de 420 millones de años.…
-[Permalink](https://twitter.com/fernandeznorona/status/1667578564206526465) | 0 Me Gusta | 7,782 Retweets
+Desde el @Ptnacion…
+[Permalink](https://twitter.com/fernandeznorona/status/1667759566304735232) | 0 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 09:03:41
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 21:01:14
 *****
-RT @SolArriagaV: A ver, ¿quién va a ser el bueno para el 2024? 
-
-
-Apóyenme con un RT.
-[Permalink](https://twitter.com/fernandeznorona/status/1667578291379740674) | 0 Me Gusta | 176 Retweets
+Ya en el avión para viajar al D.F. desde Monterrey con @viajaVolaris. Saldrá con 15 minutos de retraso.
+[Permalink](https://twitter.com/fernandeznorona/status/1667758870977208320) | 66 Me Gusta | 14 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 20:43:15
+*****
+Más vale tarde que nunca. Me entero recién que es cumpleaños de @Nubia_SCG. Abrazote y muchas felicidades.
+[Permalink](https://twitter.com/fernandeznorona/status/1667754342630162436) | 32 Me Gusta | 6 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 20:38:54
+*****
+Ya no me acordaba, ha corregido.
+[Permalink](https://twitter.com/fernandeznorona/status/1667753248642433024) | 23 Me Gusta | 7 Retweets

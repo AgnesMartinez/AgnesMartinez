@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 21:05:13
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 23:25:43
 *****
-Era una chingona mi hermanita María Fernanda Campa Uranga.
-[Permalink](https://twitter.com/fernandeznorona/status/1667759869884252161) | 43 Me Gusta | 11 Retweets
+Apenas en casa.
+[Permalink](https://twitter.com/fernandeznorona/status/1667795229221752832) | 55 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 21:04:00
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 22:34:09
 *****
-RT @AlbertoAnayaGt: A 52 años de la matanza del Jueves de Corpus, honramos la memoria de los jóvenes y maestros caídos.
-
-
-Desde el @Ptnacion…
-[Permalink](https://twitter.com/fernandeznorona/status/1667759566304735232) | 0 Me Gusta | 24 Retweets
+De @viajaVolaris me gusta que la gente baja por filas, es decir por partes. Como se hacía en la pandemia. En las otras líneas aéreas encima como si pudieran salir más rápido.
+[Permalink](https://twitter.com/fernandeznorona/status/1667782254234304512) | 43 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 21:01:14
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 22:32:28
 *****
-Ya en el avión para viajar al D.F. desde Monterrey con @viajaVolaris. Saldrá con 15 minutos de retraso.
-[Permalink](https://twitter.com/fernandeznorona/status/1667758870977208320) | 66 Me Gusta | 14 Retweets
+Gracias, abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1667781829099651075) | 33 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 20:43:15
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 22:31:20
 *****
-Más vale tarde que nunca. Me entero recién que es cumpleaños de @Nubia_SCG. Abrazote y muchas felicidades.
-[Permalink](https://twitter.com/fernandeznorona/status/1667754342630162436) | 32 Me Gusta | 6 Retweets
+Me avisan en qué fecha. Saludos.
+[Permalink](https://twitter.com/fernandeznorona/status/1667781544117764097) | 45 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 20:38:54
+**Fernández Noroña** (**@fernandeznorona**) • 10-06-2023 a las 22:17:21
 *****
-Ya no me acordaba, ha corregido.
-[Permalink](https://twitter.com/fernandeznorona/status/1667753248642433024) | 23 Me Gusta | 7 Retweets
+Apenas aterrizando en el D.F.
+[Permalink](https://twitter.com/fernandeznorona/status/1667778023188226050) | 67 Me Gusta | 5 Retweets

@@ -1,27 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 20:52:28
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 09:53:46
 *****
-No tienes vergüenza con todas las fotografías que subieron de funcionarios apoyando a quien tú respaldas. Doble moral hablando de piso parejo. Si invirtieran en su campaña lo que yo he gastado no pintarían de nada. Abur.
-[Permalink](https://twitter.com/fernandeznorona/status/1668119052739555329) | 186 Me Gusta | 43 Retweets
+No cabeza hueca @VicenteFoxQue, no puede llegar un payaso porque tú no estás en la contienda.
+[Permalink](https://twitter.com/fernandeznorona/status/1668315669526347797) | 43 Me Gusta | 6 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 20:46:15
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 09:49:33
 *****
-Muchísimas gracias.
-[Permalink](https://twitter.com/fernandeznorona/status/1668117485877624833) | 89 Me Gusta | 19 Retweets
+Puej ji.
+[Permalink](https://twitter.com/fernandeznorona/status/1668314608220643333) | 68 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 20:45:22
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 09:48:24
 *****
-RT @plonysilva: Apoyando al compañero diputado @fernandeznorona con su código QR directo a la entrevista con @sabinaberman , nuestro charro…
-[Permalink](https://twitter.com/fernandeznorona/status/1668117261960503296) | 0 Me Gusta | 25 Retweets
+RT @LJyDMX: Buenos días querida familia Noroñista. 🔆🤗
+
+
+Vamos con más fuerza y con más ánimo, apoyemos a nuestro Diputado y logremos la haza…
+[Permalink](https://twitter.com/fernandeznorona/status/1668314319036006401) | 0 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 20:38:02
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 09:46:16
 *****
-RT @rubenswereber: Fregón el video, y lo que dice nuestro #CharroNegro, siempre vivo.
-Por eso #NoroñaEsPueblo.
-[Permalink](https://twitter.com/fernandeznorona/status/1668115420430364673) | 0 Me Gusta | 40 Retweets
+“Ve y dilo en la montaña” James Baldwin.
+[Permalink](https://twitter.com/fernandeznorona/status/1668313781976408065) | 13 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 20:30:45
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 09:35:08
 *****
-La acepto sin duda alguna. Todavía no te incluyen entre los medios reaccionarios, jejeje. Abrazote. Y ya sé que es con la @ConvencionMorena.
-[Permalink](https://twitter.com/fernandeznorona/status/1668113586487717889) | 109 Me Gusta | 22 Retweets
+No intrigues.
+[Permalink](https://twitter.com/fernandeznorona/status/1668310980512690211) | 39 Me Gusta | 5 Retweets

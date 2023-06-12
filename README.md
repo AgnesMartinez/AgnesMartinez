@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 15:16:55
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 20:52:28
 *****
-No pues chingona tu unidad.
-[Permalink](https://twitter.com/fernandeznorona/status/1668034604807364608) | 340 Me Gusta | 60 Retweets
+No tienes vergüenza con todas las fotografías que subieron de funcionarios apoyando a quien tú respaldas. Doble moral hablando de piso parejo. Si invirtieran en su campaña lo que yo he gastado no pintarían de nada. Abur.
+[Permalink](https://twitter.com/fernandeznorona/status/1668119052739555329) | 111 Me Gusta | 27 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 15:16:18
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 20:46:15
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1668034452260548609) | 75 Me Gusta | 16 Retweets
+Muchísimas gracias.
+[Permalink](https://twitter.com/fernandeznorona/status/1668117485877624833) | 65 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 15:14:31
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 20:45:22
 *****
-6:30 de la tarde será la video charla de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1668034003516149761) | 168 Me Gusta | 36 Retweets
+RT @plonysilva: Apoyando al compañero diputado @fernandeznorona con su código QR directo a la entrevista con @sabinaberman , nuestro charro…
+[Permalink](https://twitter.com/fernandeznorona/status/1668117261960503296) | 0 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 11:34:11
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 20:38:02
 *****
-Ya rumbo al Consejo Nacional del @PartidoMorenaMx.
-[Permalink](https://twitter.com/fernandeznorona/status/1667978555551252480) | 496 Me Gusta | 73 Retweets
+RT @rubenswereber: Fregón el video, y lo que dice nuestro #CharroNegro, siempre vivo.
+Por eso #NoroñaEsPueblo.
+[Permalink](https://twitter.com/fernandeznorona/status/1668115420430364673) | 0 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 10:47:26
+**Fernández Noroña** (**@fernandeznorona**) • 11-06-2023 a las 20:30:45
 *****
-Tengan para que aprendan.
-[Permalink](https://twitter.com/fernandeznorona/status/1667966789941346304) | 89 Me Gusta | 18 Retweets
+La acepto sin duda alguna. Todavía no te incluyen entre los medios reaccionarios, jejeje. Abrazote. Y ya sé que es con la @ConvencionMorena.
+[Permalink](https://twitter.com/fernandeznorona/status/1668113586487717889) | 72 Me Gusta | 15 Retweets

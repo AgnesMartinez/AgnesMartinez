@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 15:34:42
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 20:33:48
 *****
-Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1668401468632866816) | 56 Me Gusta | 8 Retweets
+Pues muchas felicidades, aunque tarde a @rafitarg.
+[Permalink](https://twitter.com/fernandeznorona/status/1668476742770782208) | 32 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 15:11:43
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 20:33:03
 *****
-RT @Leisats: Holis! Compartan porfis, alguien le puede se util. Linda tarde
-[Permalink](https://twitter.com/fernandeznorona/status/1668395685883027456) | 0 Me Gusta | 25 Retweets
+RT @JGG9914: Mira @fernandeznorona mejor descripción gráfica es difícil...
+[Permalink](https://twitter.com/fernandeznorona/status/1668476552227749889) | 0 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 13:22:21
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 20:24:10
 *****
-No sé si me equivoqué o alguna chingadera hiciste.
-[Permalink](https://twitter.com/fernandeznorona/status/1668368164781162497) | 79 Me Gusta | 14 Retweets
+@_MistWolf_ Excluyen.
+[Permalink](https://twitter.com/fernandeznorona/status/1668474316785352704) | 19 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 13:21:23
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 18:56:33
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1668367920794337280) | 32 Me Gusta | 6 Retweets
+RT @HNoticiasMX: Aquellos que apoyan a Noroña.
+
+
+Los invita a que lo acompañen en su lucha por ser el candidato a la presidencia de la repúb…
+[Permalink](https://twitter.com/fernandeznorona/status/1668452268935634944) | 0 Me Gusta | 62 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 13:03:47
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 18:54:50
 *****
-Claro. Por favor, ponte de acuerdo con @adela_bicha.
-[Permalink](https://twitter.com/fernandeznorona/status/1668363491659640832) | 112 Me Gusta | 23 Retweets
+Están bonitos los gansos.
+[Permalink](https://twitter.com/fernandeznorona/status/1668451834858708992) | 53 Me Gusta | 10 Retweets

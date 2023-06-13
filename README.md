@@ -1,29 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 09:53:46
-*****
-No cabeza hueca @VicenteFoxQue, no puede llegar un payaso porque tú no estás en la contienda.
-[Permalink](https://twitter.com/fernandeznorona/status/1668315669526347797) | 43 Me Gusta | 6 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 09:49:33
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 15:34:42
 *****
 Puej ji.
-[Permalink](https://twitter.com/fernandeznorona/status/1668314608220643333) | 68 Me Gusta | 11 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1668401468632866816) | 56 Me Gusta | 8 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 09:48:24
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 15:11:43
 *****
-RT @LJyDMX: Buenos días querida familia Noroñista. 🔆🤗
-
-
-Vamos con más fuerza y con más ánimo, apoyemos a nuestro Diputado y logremos la haza…
-[Permalink](https://twitter.com/fernandeznorona/status/1668314319036006401) | 0 Me Gusta | 35 Retweets
+RT @Leisats: Holis! Compartan porfis, alguien le puede se util. Linda tarde
+[Permalink](https://twitter.com/fernandeznorona/status/1668395685883027456) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 09:46:16
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 13:22:21
 *****
-“Ve y dilo en la montaña” James Baldwin.
-[Permalink](https://twitter.com/fernandeznorona/status/1668313781976408065) | 13 Me Gusta | 5 Retweets
+No sé si me equivoqué o alguna chingadera hiciste.
+[Permalink](https://twitter.com/fernandeznorona/status/1668368164781162497) | 79 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 09:35:08
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 13:21:23
 *****
-No intrigues.
-[Permalink](https://twitter.com/fernandeznorona/status/1668310980512690211) | 39 Me Gusta | 5 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1668367920794337280) | 32 Me Gusta | 6 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 12-06-2023 a las 13:03:47
+*****
+Claro. Por favor, ponte de acuerdo con @adela_bicha.
+[Permalink](https://twitter.com/fernandeznorona/status/1668363491659640832) | 112 Me Gusta | 23 Retweets

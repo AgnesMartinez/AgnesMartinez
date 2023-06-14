@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 22:04:14
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 09:40:59
 *****
-Larga jornada de hoy. Apenas voy a dormir.
-[Permalink](https://twitter.com/fernandeznorona/status/1668861887449292800) | 112 Me Gusta | 12 Retweets
+RT @ViAr_DAVID: A raíz de la video charla de ayerde @fernandeznorona, rescaté estas imágenes de un austero evento en la alameda de Oaxaca e…
+[Permalink](https://twitter.com/fernandeznorona/status/1669037229673521153) | 0 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 21:29:31
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 09:07:03
 *****
-Ya lo encontré.
-[Permalink](https://twitter.com/fernandeznorona/status/1668853150374150144) | 87 Me Gusta | 9 Retweets
+Ahí les hablan @LJyDMX. No sé si la crítica es sólida porque no terminé de ver el video, pero la compañera es muy seria.
+[Permalink](https://twitter.com/fernandeznorona/status/1669028689512927232) | 20 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 21:28:00
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 09:06:18
 *****
-¿Ahora sí que dónde encuentro mi intervención completa del día de hoy?
-[Permalink](https://twitter.com/fernandeznorona/status/1668852767337717761) | 73 Me Gusta | 8 Retweets
+¿En serio? No lo terminé de ver. Me quedé con lo que habían “almorzado”.
+[Permalink](https://twitter.com/fernandeznorona/status/1669028501926858752) | 12 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 21:25:09
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 08:50:29
 *****
-RT @BerCorHer: Muy agradecido el diputado @fernandeznorona se despidió hoy en la sesión de la Comisión Permanente del Congreso de la Unión…
-[Permalink](https://twitter.com/fernandeznorona/status/1668852052913520641) | 0 Me Gusta | 47 Retweets
+RT @MAURICI94504598: Es triste y más triste que hay personas que lloran por que no se hizo un mega aeropuerto o por que se está desarrollan…
+[Permalink](https://twitter.com/fernandeznorona/status/1669024521075019776) | 0 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 17:18:18
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 08:42:38
 *****
-20,225 en Facebook y, 11,514 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1668789930124795905) | 152 Me Gusta | 32 Retweets
+“Tortilla con sal almorzó”, carajo. Tenemos que lograr que nadie pase hambre en nuestra patria.
+[Permalink](https://twitter.com/fernandeznorona/status/1669022544798654466) | 158 Me Gusta | 48 Retweets

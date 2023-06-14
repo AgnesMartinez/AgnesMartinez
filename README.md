@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 16:05:58
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 22:04:14
 *****
-Pues siempre si haré la video charla en este momento.
-[Permalink](https://twitter.com/fernandeznorona/status/1668771726946357249) | 67 Me Gusta | 11 Retweets
+Larga jornada de hoy. Apenas voy a dormir.
+[Permalink](https://twitter.com/fernandeznorona/status/1668861887449292800) | 22 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 15:29:26
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 21:29:31
 *****
-Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1668762532503494658) | 50 Me Gusta | 10 Retweets
+Ya lo encontré.
+[Permalink](https://twitter.com/fernandeznorona/status/1668853150374150144) | 41 Me Gusta | 4 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 15:19:01
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 21:28:00
 *****
-RT @cuauhpeluche: Ay no más pa q se den un quemon...😁😬🤷‍♂️🤣😂
-[Permalink](https://twitter.com/fernandeznorona/status/1668759908920213504) | 0 Me Gusta | 100 Retweets
+¿Ahora sí que dónde encuentro mi intervención completa del día de hoy?
+[Permalink](https://twitter.com/fernandeznorona/status/1668852767337717761) | 45 Me Gusta | 5 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 15:18:45
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 21:25:09
 *****
-Los mariachis se los llevó a sí mismo @RicardoMonrealA.
-[Permalink](https://twitter.com/fernandeznorona/status/1668759843438743554) | 58 Me Gusta | 12 Retweets
+RT @BerCorHer: Muy agradecido el diputado @fernandeznorona se despidió hoy en la sesión de la Comisión Permanente del Congreso de la Unión…
+[Permalink](https://twitter.com/fernandeznorona/status/1668852052913520641) | 0 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 15:16:21
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 17:18:18
 *****
-Hoy voy a empezar la video 
-charla un poco más tarde. Ténganme paciencia.
-[Permalink](https://twitter.com/fernandeznorona/status/1668759237873512449) | 75 Me Gusta | 11 Retweets
+20,225 en Facebook y, 11,514 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1668789930124795905) | 137 Me Gusta | 30 Retweets

@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 09:43:28
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 16:05:58
 *****
-Miren las pegatinas que César y Alyson me acaban de regalar.
-[Permalink](https://twitter.com/fernandeznorona/status/1668675465828085761) | 68 Me Gusta | 13 Retweets
+Pues siempre si haré la video charla en este momento.
+[Permalink](https://twitter.com/fernandeznorona/status/1668771726946357249) | 67 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 09:41:11
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 15:29:26
 *****
-Una chingadera la censura de @YouTube a @julioastillero. Desde siempre ha batallado con ese tema, con @YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1668674892458237965) | 78 Me Gusta | 22 Retweets
+Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1668762532503494658) | 50 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 09:38:21
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 15:19:01
 *****
-RT @LJyDMX: Es el pueblo el líder más importante de este proceso de Transformación. 
-
-
-Es el pueblo el soberano y quién decide el rumbo que…
-[Permalink](https://twitter.com/fernandeznorona/status/1668674180416516096) | 0 Me Gusta | 20 Retweets
+RT @cuauhpeluche: Ay no más pa q se den un quemon...😁😬🤷‍♂️🤣😂
+[Permalink](https://twitter.com/fernandeznorona/status/1668759908920213504) | 0 Me Gusta | 100 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 09:37:36
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 15:18:45
 *****
-Mi último pase de lista, mi sesión de despedida, en la Comisión Permanente.
-[Permalink](https://twitter.com/fernandeznorona/status/1668673991765118976) | 106 Me Gusta | 21 Retweets
+Los mariachis se los llevó a sí mismo @RicardoMonrealA.
+[Permalink](https://twitter.com/fernandeznorona/status/1668759843438743554) | 58 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 09:35:03
+**Fernández Noroña** (**@fernandeznorona**) • 13-06-2023 a las 15:16:21
 *****
-Acabo de hacer mi video columna, desde mi curul, para @sdpnoticias: “Solo vine a despedirme”.
-[Permalink](https://twitter.com/fernandeznorona/status/1668673348207890433) | 32 Me Gusta | 8 Retweets
+Hoy voy a empezar la video 
+charla un poco más tarde. Ténganme paciencia.
+[Permalink](https://twitter.com/fernandeznorona/status/1668759237873512449) | 75 Me Gusta | 11 Retweets

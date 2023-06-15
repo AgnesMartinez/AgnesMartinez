@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 15:25:38
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 20:57:36
 *****
-Es diputada.
-[Permalink](https://twitter.com/fernandeznorona/status/1669123965481259009) | 32 Me Gusta | 7 Retweets
+Soporten…
+[Permalink](https://twitter.com/fernandeznorona/status/1669207505908449280) | 45 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 15:24:02
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 20:56:56
 *****
-RT @alfcer: @fernandeznorona @LJyDMX 
-Mi apoyo total para la mejor opción a la presidencia de México y del avance profundo de la 4ta transf…
-[Permalink](https://twitter.com/fernandeznorona/status/1669123563104911360) | 0 Me Gusta | 25 Retweets
+Me pasó tu mensaje @Ascension528Hz, muy bello. Te lo agradezco mucho. Con ese me voy a dormir. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1669207338031497216) | 30 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 14:59:04
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 20:55:18
 *****
-Ya vi que aunque la foto sólo están los cuatro aspirantes de @PartidoMorenaMx, si habla de todos @epigmenioibarra.
-[Permalink](https://twitter.com/fernandeznorona/status/1669117278640820225) | 144 Me Gusta | 14 Retweets
+Ya me voy a dormir. Lo único bueno de todo el chisme de hoy es que ya quedó claro que yo no soy mecha corta, jejeje.
+[Permalink](https://twitter.com/fernandeznorona/status/1669206928516587520) | 397 Me Gusta | 48 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 14:49:38
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 20:52:25
 *****
-En la despedida con ⁦@CE_MXdiputados⁩. Hasta los Panquecitos pedorros salieron.
-[Permalink](https://twitter.com/fernandeznorona/status/1669114903893012480) | 192 Me Gusta | 30 Retweets
+No estoy regañando, manifesté una diferencia. Lo que me parece muy lamentable es que le diga señora soltera. ¿Eso qué? ¿Porque ellos se han portado miserables conmigo nosotros debemos actuar igual? La respuesta es no.
+[Permalink](https://twitter.com/fernandeznorona/status/1669206200884273153) | 50 Me Gusta | 11 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 14:48:24
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 20:45:33
 *****
-Conquistando el mundo. Bueno no, sólo México.
-[Permalink](https://twitter.com/fernandeznorona/status/1669114593686466564) | 184 Me Gusta | 29 Retweets
+Ya ni yo pido piso parejo. No creo que en la cena del lunes en “El Mayor”, ninguno de mis cuatro compañeros haya pedido piso parejo y reclamado por ello mi exclusión de la reunión.
+[Permalink](https://twitter.com/fernandeznorona/status/1669204475351801857) | 58 Me Gusta | 5 Retweets

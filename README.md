@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 09:40:59
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 15:25:38
 *****
-RT @ViAr_DAVID: A raíz de la video charla de ayerde @fernandeznorona, rescaté estas imágenes de un austero evento en la alameda de Oaxaca e…
-[Permalink](https://twitter.com/fernandeznorona/status/1669037229673521153) | 0 Me Gusta | 28 Retweets
+Es diputada.
+[Permalink](https://twitter.com/fernandeznorona/status/1669123965481259009) | 32 Me Gusta | 7 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 09:07:03
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 15:24:02
 *****
-Ahí les hablan @LJyDMX. No sé si la crítica es sólida porque no terminé de ver el video, pero la compañera es muy seria.
-[Permalink](https://twitter.com/fernandeznorona/status/1669028689512927232) | 20 Me Gusta | 4 Retweets
+RT @alfcer: @fernandeznorona @LJyDMX 
+Mi apoyo total para la mejor opción a la presidencia de México y del avance profundo de la 4ta transf…
+[Permalink](https://twitter.com/fernandeznorona/status/1669123563104911360) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 09:06:18
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 14:59:04
 *****
-¿En serio? No lo terminé de ver. Me quedé con lo que habían “almorzado”.
-[Permalink](https://twitter.com/fernandeznorona/status/1669028501926858752) | 12 Me Gusta | 3 Retweets
+Ya vi que aunque la foto sólo están los cuatro aspirantes de @PartidoMorenaMx, si habla de todos @epigmenioibarra.
+[Permalink](https://twitter.com/fernandeznorona/status/1669117278640820225) | 144 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 08:50:29
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 14:49:38
 *****
-RT @MAURICI94504598: Es triste y más triste que hay personas que lloran por que no se hizo un mega aeropuerto o por que se está desarrollan…
-[Permalink](https://twitter.com/fernandeznorona/status/1669024521075019776) | 0 Me Gusta | 4 Retweets
+En la despedida con ⁦@CE_MXdiputados⁩. Hasta los Panquecitos pedorros salieron.
+[Permalink](https://twitter.com/fernandeznorona/status/1669114903893012480) | 192 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 08:42:38
+**Fernández Noroña** (**@fernandeznorona**) • 14-06-2023 a las 14:48:24
 *****
-“Tortilla con sal almorzó”, carajo. Tenemos que lograr que nadie pase hambre en nuestra patria.
-[Permalink](https://twitter.com/fernandeznorona/status/1669022544798654466) | 158 Me Gusta | 48 Retweets
+Conquistando el mundo. Bueno no, sólo México.
+[Permalink](https://twitter.com/fernandeznorona/status/1669114593686466564) | 184 Me Gusta | 29 Retweets

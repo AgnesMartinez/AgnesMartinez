@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-06-2023 a las 20:34:37
+**Fernández Noroña** (**@fernandeznorona**) • 16-06-2023 a las 14:40:10
 *****
-Más vale tarde que nunca: muchas felicidades amigo y compañero de lucha @rochamoya_. Que hayas pasado bien tu cumpleaños a pesar de las dificultades.
-[Permalink](https://twitter.com/fernandeznorona/status/1669564109325754368) | 124 Me Gusta | 17 Retweets
+Muchas felicidades y éxito en tu gestión. Abrazote.
+[Permalink](https://twitter.com/fernandeznorona/status/1669837296592461829) | 189 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-06-2023 a las 20:31:05
+**Fernández Noroña** (**@fernandeznorona**) • 16-06-2023 a las 14:27:45
 *****
-Racistas y clasistas.
-[Permalink](https://twitter.com/fernandeznorona/status/1669563222251425792) | 168 Me Gusta | 21 Retweets
+Muchas felicidades a mi compañero @martibatres por su nombramiento como jefe de gobierno.
+[Permalink](https://twitter.com/fernandeznorona/status/1669834171290615808) | 185 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-06-2023 a las 20:14:10
+**Fernández Noroña** (**@fernandeznorona**) • 16-06-2023 a las 12:45:59
 *****
-A la decencia le llamas coqueteo. Les ganaré.
-[Permalink](https://twitter.com/fernandeznorona/status/1669558962600161280) | 107 Me Gusta | 28 Retweets
+RT @rosendomarind: Listos para el  registro de @fernandeznorona 
+Hotel Marriott Revolución 
+Av. Revolución 333
+Tacubaya CDMX
+[Permalink](https://twitter.com/fernandeznorona/status/1669808562753642498) | 0 Me Gusta | 98 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-06-2023 a las 20:06:41
+**Fernández Noroña** (**@fernandeznorona**) • 16-06-2023 a las 12:01:07
 *****
-Larguísima entrevista con @rubengluengas, casi dos horas. Ya no salí a cenar.
-[Permalink](https://twitter.com/fernandeznorona/status/1669557081282850818) | 240 Me Gusta | 49 Retweets
+Más bien ya es hora de que reconozcas que no eres bueno para dirigir un diario nacional, Pasquín @beltrandelrio.
+[Permalink](https://twitter.com/fernandeznorona/status/1669797272866148352) | 130 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 15-06-2023 a las 17:07:08
+**Fernández Noroña** (**@fernandeznorona**) • 16-06-2023 a las 11:58:04
 *****
-13,985 en Facebook y, 17,307 en YouTube.
-[Permalink](https://twitter.com/fernandeznorona/status/1669511895878094848) | 123 Me Gusta | 25 Retweets
+RT @MovNoronistaOf: 📢📢A todas y todos los noroñistas que tengan oportunidad de acompañar a nuestro Charro Negro Fernández Noroña, la cita e…
+[Permalink](https://twitter.com/fernandeznorona/status/1669796504440127488) | 0 Me Gusta | 62 Retweets

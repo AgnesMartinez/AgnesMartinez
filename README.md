@@ -1,27 +1,31 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 10:05:24
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 15:49:01
 *****
-Ojalá gane Noroña | La Silla Rota. No se lo enseñe a la académica ⁦@GCorreaCabrera⁩.
-[Permalink](https://twitter.com/fernandeznorona/status/1670130538433376257) | 10 Me Gusta | 5 Retweets
+Vuelvo a compartir la información del lunes en Oaxaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1670217013921476608) | 82 Me Gusta | 26 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 10:03:05
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 15:30:09
 *****
-Ojalá gane Noroña | La Silla Rota. Lectura obligada.
-[Permalink](https://twitter.com/fernandeznorona/status/1670129955030855680) | 18 Me Gusta | 4 Retweets
+RT @momentoviral: Sus saltos son brutales 😳
+[Permalink](https://twitter.com/fernandeznorona/status/1670212262588719105) | 0 Me Gusta | 311 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 09:57:49
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 15:27:36
 *****
-Naa.
-[Permalink](https://twitter.com/fernandeznorona/status/1670128629924397057) | 6 Me Gusta | 2 Retweets
+RT @LJyDMX: 🔴 Asi el ánimo de los Noroñistas en apoyo a nuestro #CharroNegro y futuro presidente @fernandeznorona 
+
+
+❗Noroña amigo, el puebl…
+[Permalink](https://twitter.com/fernandeznorona/status/1670211622680526848) | 0 Me Gusta | 60 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 09:40:02
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 15:08:17
 *****
-RT @KyleSkynet: Y allí estuvimos como en cada llamado qué nos haga @fernandeznorona
+Corregimos. Mañana en Oaxaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1670206760274247680) | 115 Me Gusta | 27 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 13:38:56
+*****
+RT @rosendomarind: Agradecimiento al Pueblo y a la militancia 
+Registro de Gerardo @fernandeznorona
 \#NoroñaEsPueblo
-[Permalink](https://twitter.com/fernandeznorona/status/1670124152836218882) | 0 Me Gusta | 5 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 09:39:39
-*****
-Naa, ¿me insultó @MiguelTorrucoG? No lo creo.
-[Permalink](https://twitter.com/fernandeznorona/status/1670124059798175745) | 11 Me Gusta | 4 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1670184275772313600) | 0 Me Gusta | 61 Retweets

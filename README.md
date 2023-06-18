@@ -1,31 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 15:49:01
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 20:20:28
 *****
-Vuelvo a compartir la información del lunes en Oaxaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1670217013921476608) | 82 Me Gusta | 26 Retweets
+RT @LJyDMX: En este tramo tan complejo de la batalla @fernandeznorona no está sólo, tiene a todo un pueblo que lo acompaña y que luchará co…
+[Permalink](https://twitter.com/fernandeznorona/status/1670285326697504768) | 0 Me Gusta | 43 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 15:30:09
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 20:20:06
 *****
-RT @momentoviral: Sus saltos son brutales 😳
-[Permalink](https://twitter.com/fernandeznorona/status/1670212262588719105) | 0 Me Gusta | 311 Retweets
+RT @CasaDeLaLectura: Anoche se robaron nuestro buzón. Es antiguo y le tenemos mucho aprecio, pues lo rescatamos de una demolición. Si lo ve…
+[Permalink](https://twitter.com/fernandeznorona/status/1670285232275357696) | 0 Me Gusta | 574 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 15:27:36
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 20:18:53
 *****
-RT @LJyDMX: 🔴 Asi el ánimo de los Noroñistas en apoyo a nuestro #CharroNegro y futuro presidente @fernandeznorona 
-
-
-❗Noroña amigo, el puebl…
-[Permalink](https://twitter.com/fernandeznorona/status/1670211622680526848) | 0 Me Gusta | 60 Retweets
+Seré curioso: ¿cuántos millones de pesos están pagando al mes por los espectaculares que tienen en todo el país?
+[Permalink](https://twitter.com/fernandeznorona/status/1670284924488937477) | 162 Me Gusta | 47 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 15:08:17
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 20:16:35
 *****
-Corregimos. Mañana en Oaxaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1670206760274247680) | 115 Me Gusta | 27 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1670284345901449216) | 33 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 13:38:56
+**Fernández Noroña** (**@fernandeznorona**) • 17-06-2023 a las 18:38:51
 *****
-RT @rosendomarind: Agradecimiento al Pueblo y a la militancia 
-Registro de Gerardo @fernandeznorona
-\#NoroñaEsPueblo
-[Permalink](https://twitter.com/fernandeznorona/status/1670184275772313600) | 0 Me Gusta | 61 Retweets
+Echaremos. Es increíble que alguien tan ignorante y bruto como tú haya sido presidente de la República, cabeza hueca @VicenteFoxQue.
+[Permalink](https://twitter.com/fernandeznorona/status/1670259752201502722) | 518 Me Gusta | 111 Retweets

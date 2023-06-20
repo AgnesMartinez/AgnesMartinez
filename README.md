@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 13:38:28
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 20:40:24
 *****
-Después, una súper cálida recepción en los mercados del centro de Oaxaca: Benito Juárez y 20 de Noviembre.
-[Permalink](https://twitter.com/fernandeznorona/status/1670908932301426689) | 146 Me Gusta | 37 Retweets
+En la asamblea informativa.
+[Permalink](https://twitter.com/fernandeznorona/status/1671015116597493761) | 104 Me Gusta | 21 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 13:37:48
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 20:39:56
 *****
-Nos fue de maravilla en la venta de libros a las 11 de la mañana. Una fila enorme de gente para la foto y la firma del libro.
-[Permalink](https://twitter.com/fernandeznorona/status/1670908766118883328) | 287 Me Gusta | 65 Retweets
+Durante la marcha de hoy en Oaxaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1671014998657859584) | 125 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 13:31:38
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 20:39:23
 *****
-¡Y sin dinero! Ni un solo espectacular tengo, ni tendré.
-[Permalink](https://twitter.com/fernandeznorona/status/1670907215883149312) | 408 Me Gusta | 116 Retweets
+Feliz Feliciano en Oaxaca capital.
+[Permalink](https://twitter.com/fernandeznorona/status/1671014863030857728) | 93 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 08:18:29
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 20:38:35
 *****
-RT @BenjaminRoblesM: Después de una primera ronda de entrevistas de radio Noroña (@fernandeznorona) y el grupo responsable de la organizaci…
-[Permalink](https://twitter.com/fernandeznorona/status/1670828408828248065) | 0 Me Gusta | 65 Retweets
+Muy feliz en la marcha de hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1671014660483723264) | 115 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 06:13:25
+**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 20:37:43
 *****
-@MultimiedosTv @lopezobrador_ Reelija.
-[Permalink](https://twitter.com/fernandeznorona/status/1670796931377901568) | 0 Me Gusta | 0 Retweets
+Durante la marcha de hoy.
+[Permalink](https://twitter.com/fernandeznorona/status/1671014440555388929) | 93 Me Gusta | 26 Retweets

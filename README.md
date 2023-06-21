@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 22:42:50
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 09:44:39
 *****
-Agenda de miércoles y jueves.
-[Permalink](https://twitter.com/fernandeznorona/status/1671408317212549120) | 77 Me Gusta | 22 Retweets
+Cuenta de Instagram:
+[Permalink](https://twitter.com/fernandeznorona/status/1671574866510716929) | 62 Me Gusta | 20 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 22:41:52
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 09:03:35
 *****
-Apenas llegando a Córdoba. Mañana saldremos a las siete de la mañana rumbo a Tlaxcala.
-[Permalink](https://twitter.com/fernandeznorona/status/1671408074396139522) | 64 Me Gusta | 7 Retweets
+La venta de libros En Tlaxcala, será a las 12:30 en los portales.
+[Permalink](https://twitter.com/fernandeznorona/status/1671564532484042753) | 59 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 21:00:50
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 07:43:28
 *****
-Vamos camino a Córdoba, Veracruz. Ahí dormiremos para salir mañana temprano rumbo a Tlaxcala.
-[Permalink](https://twitter.com/fernandeznorona/status/1671382645584871424) | 201 Me Gusta | 36 Retweets
+Yo.
+[Permalink](https://twitter.com/fernandeznorona/status/1671544370611486721) | 128 Me Gusta | 36 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 19:39:04
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 07:42:00
 *****
-Tuxtepec, Oaxaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1671362069193687040) | 160 Me Gusta | 45 Retweets
+Lamento profundamente el fallecimiento de Nino Canún. Un periodista que siempre fue abierto a la izquierda. Mi solidaridad para familiares y amigos.
+[Permalink](https://twitter.com/fernandeznorona/status/1671544003765096448) | 217 Me Gusta | 54 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 19:38:11
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 07:22:41
 *****
-Tuxtepec, Oaxaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1671361846350352385) | 220 Me Gusta | 67 Retweets
+
+
+[Permalink](https://twitter.com/fernandeznorona/status/1671539142411407366) | 84 Me Gusta | 29 Retweets

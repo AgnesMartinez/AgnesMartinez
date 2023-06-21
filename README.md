@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 16:34:29
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 21:00:50
 *****
-Como Alejandra, ¿verdad cabeza hueca @VicenteFoxQue? Que te sigan haciendo caso, eso deseo.
-[Permalink](https://twitter.com/fernandeznorona/status/1671315616714887170) | 18 Me Gusta | 3 Retweets
+Vamos camino a Córdoba, Veracruz. Ahí dormiremos para salir mañana temprano rumbo a Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1671382645584871424) | 151 Me Gusta | 28 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 16:29:56
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 19:39:04
 *****
-¡Qué buena voz tiene! Pero esa canción la hicieron los compañeros de Los Ángeles.
-[Permalink](https://twitter.com/fernandeznorona/status/1671314473401892872) | 43 Me Gusta | 15 Retweets
+Tuxtepec, Oaxaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1671362069193687040) | 127 Me Gusta | 37 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 16:28:49
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 19:38:11
 *****
-RT @AgarciAcostA: #TeamNoroña @LJyDMX
-[Permalink](https://twitter.com/fernandeznorona/status/1671314193297940481) | 0 Me Gusta | 32 Retweets
+Tuxtepec, Oaxaca.
+[Permalink](https://twitter.com/fernandeznorona/status/1671361846350352385) | 181 Me Gusta | 60 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 16:28:19
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 19:11:59
 *****
-RT @DuckyFabiel: Que siga la transformación con @fernandeznorona Noroña Es Pueblo!!!! #NoroñaEsPueblo
-[Permalink](https://twitter.com/fernandeznorona/status/1671314064536924160) | 0 Me Gusta | 43 Retweets
+RT @BenjaminRoblesM: Arranca @fernandeznorona gira por todo el país para obtener la coordinación nacional de la #4T. 
+
+
+¡Y empezó en #Oaxaca…
+[Permalink](https://twitter.com/fernandeznorona/status/1671355255756587008) | 0 Me Gusta | 82 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 16:18:03
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 19:09:45
 *****
-En la reproducción de la casa de Juárez, en San Pablo Guelatao.
-[Permalink](https://twitter.com/fernandeznorona/status/1671311480707338240) | 45 Me Gusta | 10 Retweets
+8690 en Facebook y, 9782 en YouTube.
+[Permalink](https://twitter.com/fernandeznorona/status/1671354692386050048) | 83 Me Gusta | 15 Retweets

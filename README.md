@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 20:40:24
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 16:34:29
 *****
-En la asamblea informativa.
-[Permalink](https://twitter.com/fernandeznorona/status/1671015116597493761) | 240 Me Gusta | 48 Retweets
+Como Alejandra, ¿verdad cabeza hueca @VicenteFoxQue? Que te sigan haciendo caso, eso deseo.
+[Permalink](https://twitter.com/fernandeznorona/status/1671315616714887170) | 18 Me Gusta | 3 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 20:39:56
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 16:29:56
 *****
-Durante la marcha de hoy en Oaxaca.
-[Permalink](https://twitter.com/fernandeznorona/status/1671014998657859584) | 241 Me Gusta | 48 Retweets
+¡Qué buena voz tiene! Pero esa canción la hicieron los compañeros de Los Ángeles.
+[Permalink](https://twitter.com/fernandeznorona/status/1671314473401892872) | 43 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 20:39:23
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 16:28:49
 *****
-Feliz Feliciano en Oaxaca capital.
-[Permalink](https://twitter.com/fernandeznorona/status/1671014863030857728) | 210 Me Gusta | 53 Retweets
+RT @AgarciAcostA: #TeamNoroña @LJyDMX
+[Permalink](https://twitter.com/fernandeznorona/status/1671314193297940481) | 0 Me Gusta | 32 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 20:38:35
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 16:28:19
 *****
-Muy feliz en la marcha de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1671014660483723264) | 328 Me Gusta | 75 Retweets
+RT @DuckyFabiel: Que siga la transformación con @fernandeznorona Noroña Es Pueblo!!!! #NoroñaEsPueblo
+[Permalink](https://twitter.com/fernandeznorona/status/1671314064536924160) | 0 Me Gusta | 43 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 19-06-2023 a las 20:37:43
+**Fernández Noroña** (**@fernandeznorona**) • 20-06-2023 a las 16:18:03
 *****
-Durante la marcha de hoy.
-[Permalink](https://twitter.com/fernandeznorona/status/1671014440555388929) | 210 Me Gusta | 49 Retweets
+En la reproducción de la casa de Juárez, en San Pablo Guelatao.
+[Permalink](https://twitter.com/fernandeznorona/status/1671311480707338240) | 45 Me Gusta | 10 Retweets

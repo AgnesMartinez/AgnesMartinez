@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 09:44:39
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 14:54:29
 *****
-Cuenta de Instagram:
-[Permalink](https://twitter.com/fernandeznorona/status/1671574866510716929) | 62 Me Gusta | 20 Retweets
+Texoloc, Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1671652839230193664) | 160 Me Gusta | 47 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 09:03:35
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 13:47:33
 *****
-La venta de libros En Tlaxcala, será a las 12:30 en los portales.
-[Permalink](https://twitter.com/fernandeznorona/status/1671564532484042753) | 59 Me Gusta | 17 Retweets
+Hoy en la venta de libros en Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1671635997099192320) | 127 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 07:43:28
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 13:46:11
 *****
-Yo.
-[Permalink](https://twitter.com/fernandeznorona/status/1671544370611486721) | 128 Me Gusta | 36 Retweets
+Muy unitarios mis compañeros de ⁦@PartidoMorenaMx⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1671635653573111808) | 279 Me Gusta | 62 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 07:42:00
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 12:20:33
 *****
-Lamento profundamente el fallecimiento de Nino Canún. Un periodista que siempre fue abierto a la izquierda. Mi solidaridad para familiares y amigos.
-[Permalink](https://twitter.com/fernandeznorona/status/1671544003765096448) | 217 Me Gusta | 54 Retweets
+Salió muy bien la venta de libros.
+[Permalink](https://twitter.com/fernandeznorona/status/1671614101980860416) | 200 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 07:22:41
+**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 12:20:02
 *****
-
-
-[Permalink](https://twitter.com/fernandeznorona/status/1671539142411407366) | 84 Me Gusta | 29 Retweets
+La venta de libros en Tlaxcala.
+[Permalink](https://twitter.com/fernandeznorona/status/1671613969491169281) | 137 Me Gusta | 43 Retweets

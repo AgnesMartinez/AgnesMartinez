@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 20:42:36
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 09:00:45
 *****
-San Pablo del Monte.
-[Permalink](https://twitter.com/fernandeznorona/status/1671740444957605888) | 95 Me Gusta | 28 Retweets
+Muy buena convocatoria y como siempre, fuertes declaraciones.
+[Permalink](https://twitter.com/fernandeznorona/status/1671926206080647170) | 128 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 20:42:10
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 09:00:13
 *****
-San Pablo del Monte, Tlaxcala. Pinche teléfono, pone bien el nombre y luego lo cambia a minúsculas.
-[Permalink](https://twitter.com/fernandeznorona/status/1671740335490502656) | 255 Me Gusta | 60 Retweets
+Espléndida conferencia de prensa.
+[Permalink](https://twitter.com/fernandeznorona/status/1671926072471089154) | 72 Me Gusta | 22 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 20:41:24
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 08:59:55
 *****
-San Pablo del monte, Tlaxcala. Y apenas vamos empezando los recorridos.
-[Permalink](https://twitter.com/fernandeznorona/status/1671740142678343680) | 161 Me Gusta | 60 Retweets
+Entrevista para Canal 6 de televisión.
+[Permalink](https://twitter.com/fernandeznorona/status/1671925997850198016) | 49 Me Gusta | 10 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 20:39:30
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 08:59:12
 *****
-Ya estamos en Puebla. Mañana empezaremos temprano, para variar.
-[Permalink](https://twitter.com/fernandeznorona/status/1671739666687746050) | 115 Me Gusta | 14 Retweets
+Entrevista para Imagen TV.
+[Permalink](https://twitter.com/fernandeznorona/status/1671925816824045570) | 85 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 21-06-2023 a las 20:39:09
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 06:43:52
 *****
-Apenas llegando al hotel.
-[Permalink](https://twitter.com/fernandeznorona/status/1671739579815321602) | 103 Me Gusta | 10 Retweets
+RT @MoneroTeta:
+[Permalink](https://twitter.com/fernandeznorona/status/1671891758475788292) | 0 Me Gusta | 196 Retweets

@@ -1,26 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 09:00:45
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 15:02:00
 *****
-Muy buena convocatoria y como siempre, fuertes declaraciones.
-[Permalink](https://twitter.com/fernandeznorona/status/1671926206080647170) | 128 Me Gusta | 34 Retweets
+RT @RutaElectoralmx: 🗞 El viaje de Fernández Noroña rumbo a la presidencia de Mexico, en imágenes.
+
+
+@fernandeznorona invita a repensar a lo…
+[Permalink](https://twitter.com/fernandeznorona/status/1672017118890708995) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 09:00:13
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 14:26:36
 *****
-Espléndida conferencia de prensa.
-[Permalink](https://twitter.com/fernandeznorona/status/1671926072471089154) | 72 Me Gusta | 22 Retweets
+Recorrido en San Pablo Xochimehuacan, Puebla.
+[Permalink](https://twitter.com/fernandeznorona/status/1672008211682197505) | 104 Me Gusta | 41 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 08:59:55
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 14:25:42
 *****
-Entrevista para Canal 6 de televisión.
-[Permalink](https://twitter.com/fernandeznorona/status/1671925997850198016) | 49 Me Gusta | 10 Retweets
+Recorrido en San Pablo Xochimehuacan.
+[Permalink](https://twitter.com/fernandeznorona/status/1672007983977598976) | 85 Me Gusta | 24 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 08:59:12
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 14:23:55
 *****
-Entrevista para Imagen TV.
-[Permalink](https://twitter.com/fernandeznorona/status/1671925816824045570) | 85 Me Gusta | 17 Retweets
+En el recorrido en San Pablo Xochimehuacán. Al final di un mensaje a las brigadistas que me acompañaron.
+[Permalink](https://twitter.com/fernandeznorona/status/1672007537334587393) | 173 Me Gusta | 57 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 06:43:52
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 12:21:28
 *****
-RT @MoneroTeta:
-[Permalink](https://twitter.com/fernandeznorona/status/1671891758475788292) | 0 Me Gusta | 196 Retweets
+RT @LJyDMX: ¡El pueblo lo tiene claro, la profundización sólo llegará de la mano de @fernandeznorona!
+[Permalink](https://twitter.com/fernandeznorona/status/1671976721606922241) | 0 Me Gusta | 59 Retweets

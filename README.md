@@ -1,29 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 15:02:00
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 21:23:26
 *****
-RT @RutaElectoralmx: 🗞 El viaje de Fernández Noroña rumbo a la presidencia de Mexico, en imágenes.
-
-
-@fernandeznorona invita a repensar a lo…
-[Permalink](https://twitter.com/fernandeznorona/status/1672017118890708995) | 0 Me Gusta | 25 Retweets
+Jajajajejejejijijijojojojujuju
+[Permalink](https://twitter.com/fernandeznorona/status/1672113108985446402) | 102 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 14:26:36
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 21:20:14
 *****
-Recorrido en San Pablo Xochimehuacan, Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1672008211682197505) | 104 Me Gusta | 41 Retweets
+RT @NoraMEscamilla: Cerramos el día en una reunión masiva con vecinos y vecinas de San Francisco Totimehuacán, que encabezó nuestro amigo y…
+[Permalink](https://twitter.com/fernandeznorona/status/1672112306971623424) | 0 Me Gusta | 17 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 14:25:42
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 21:19:27
 *****
-Recorrido en San Pablo Xochimehuacan.
-[Permalink](https://twitter.com/fernandeznorona/status/1672007983977598976) | 85 Me Gusta | 24 Retweets
+RT @rosendomarind: En San Luis Río Colorado, Sonora #NoronaEsPueblo 
+@fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1672112109659000833) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 14:23:55
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 21:19:13
 *****
-En el recorrido en San Pablo Xochimehuacán. Al final di un mensaje a las brigadistas que me acompañaron.
-[Permalink](https://twitter.com/fernandeznorona/status/1672007537334587393) | 173 Me Gusta | 57 Retweets
+RT @NoeDoroteo: #NoronaEsPueblo en Oaxaca vamos con todo con @fernandeznorona y @BenjaminRoblesM @AlbertoAnayaGt @PTnacionalMX @TaniaValPTM…
+[Permalink](https://twitter.com/fernandeznorona/status/1672112049302941698) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 12:21:28
+**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 21:19:05
 *****
-RT @LJyDMX: ¡El pueblo lo tiene claro, la profundización sólo llegará de la mano de @fernandeznorona!
-[Permalink](https://twitter.com/fernandeznorona/status/1671976721606922241) | 0 Me Gusta | 59 Retweets
+Mañana 23 de junio estaré en Xalapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1672112014347612161) | 50 Me Gusta | 18 Retweets

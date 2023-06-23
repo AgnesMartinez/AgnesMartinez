@@ -1,27 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 22:20:45
-*****
-Me falta una p… cuartilla y no lo puedo acabar porque se quedó en Puebla.
-[Permalink](https://twitter.com/fernandeznorona/status/1672127533570195458) | 39 Me Gusta | 4 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 21:23:26
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 07:30:15
 *****
 Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1672113108985446402) | 172 Me Gusta | 29 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1672265820272197632) | 73 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 21:20:14
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 07:28:54
 *****
-RT @NoraMEscamilla: Cerramos el día en una reunión masiva con vecinos y vecinas de San Francisco Totimehuacán, que encabezó nuestro amigo y…
-[Permalink](https://twitter.com/fernandeznorona/status/1672112306971623424) | 0 Me Gusta | 22 Retweets
+Cabeza hueca @VicenteFoxQue, ¿no apoyabas a @SantiagoCreelM y a @LillyTellez? Hasta tus mesías les llamabas. Además de bono, eres voluble.
+[Permalink](https://twitter.com/fernandeznorona/status/1672265480810422273) | 108 Me Gusta | 30 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 21:19:27
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 07:26:42
 *****
-RT @rosendomarind: En San Luis Río Colorado, Sonora #NoronaEsPueblo 
-@fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1672112109659000833) | 0 Me Gusta | 32 Retweets
+RT @sofianosabia: En 1856, la discusión parlamentaria que hizo nacer la Constitución se logró de la mano de la política.
+Los discursos, neg…
+[Permalink](https://twitter.com/fernandeznorona/status/1672264926172450817) | 0 Me Gusta | 14 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 22-06-2023 a las 21:19:13
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 07:23:21
 *****
-RT @NoeDoroteo: #NoronaEsPueblo en Oaxaca vamos con todo con @fernandeznorona y @BenjaminRoblesM @AlbertoAnayaGt @PTnacionalMX @TaniaValPTM…
-[Permalink](https://twitter.com/fernandeznorona/status/1672112049302941698) | 0 Me Gusta | 18 Retweets
+Hoy en Xalapa.
+[Permalink](https://twitter.com/fernandeznorona/status/1672264084899905536) | 66 Me Gusta | 26 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 06:24:30
+*****
+Publican una mentira y después, otros espacios sólo la replican. ¡Son un asco!
+[Permalink](https://twitter.com/fernandeznorona/status/1672249273285775364) | 229 Me Gusta | 95 Retweets

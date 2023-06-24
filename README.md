@@ -1,28 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 16:24:04
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 22:09:21
 *****
-RT @CitlaHM: ¡Otra más de @Aeromexico! Decenas de personas estamos formadas para que se nos resuelva el mismo caso de diferentes destinos,…
-[Permalink](https://twitter.com/fernandeznorona/status/1672400158464815106) | 0 Me Gusta | 185 Retweets
+Agenda de los próximos días.
+[Permalink](https://twitter.com/fernandeznorona/status/1672487055094366209) | 1 Me Gusta | 1 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 16:23:07
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 22:04:36
 *****
-RT @MovNoronistaOf: "Yo estoy muy motivado, muy contento, muy comprometido con la gente por la respuesta tan fuerte que está dando.✅💯
-Ferná…
-[Permalink](https://twitter.com/fernandeznorona/status/1672399920282894343) | 0 Me Gusta | 12 Retweets
+Lo terminé. Confirmo, Elena Garro es una escritora extraordinaria.
+[Permalink](https://twitter.com/fernandeznorona/status/1672485858207842307) | 27 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 16:22:57
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 20:50:03
 *****
-RT @aura_fdez: En Mexicali Noroña es pueblo.
-@fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1672399878260146177) | 0 Me Gusta | 49 Retweets
+Mañana sábado 24 de junio del 2023, la asamblea informativa será en el malecón, en Veracruz puerto.
+[Permalink](https://twitter.com/fernandeznorona/status/1672467097107197952) | 95 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 16:22:44
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 20:44:27
 *****
-6: 30 será la video charla.
-[Permalink](https://twitter.com/fernandeznorona/status/1672399824535293954) | 30 Me Gusta | 12 Retweets
+RT @juanbaaq: En estos mommentos converso con Gerardo Fernández Noroñoa @fernandeznorona sobre sus recorridos en búsqueda de la coordinació…
+[Permalink](https://twitter.com/fernandeznorona/status/1672465687913046016) | 0 Me Gusta | 15 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 15:21:41
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 20:12:16
 *****
-Xalapa, Ver.
-[Permalink](https://twitter.com/fernandeznorona/status/1672384460896206848) | 132 Me Gusta | 49 Retweets
+RT @hugo_Beats81: Encontré esto en el baúl de los recuerdos y solo para demostrar la CONSTANCIA del trabajo y la visión política de quien h…
+[Permalink](https://twitter.com/fernandeznorona/status/1672457586568749062) | 0 Me Gusta | 100 Retweets

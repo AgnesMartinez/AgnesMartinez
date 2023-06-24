@@ -1,27 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 07:30:15
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 16:24:04
 *****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1672265820272197632) | 73 Me Gusta | 19 Retweets
+RT @CitlaHM: ¡Otra más de @Aeromexico! Decenas de personas estamos formadas para que se nos resuelva el mismo caso de diferentes destinos,…
+[Permalink](https://twitter.com/fernandeznorona/status/1672400158464815106) | 0 Me Gusta | 185 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 07:28:54
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 16:23:07
 *****
-Cabeza hueca @VicenteFoxQue, ¿no apoyabas a @SantiagoCreelM y a @LillyTellez? Hasta tus mesías les llamabas. Además de bono, eres voluble.
-[Permalink](https://twitter.com/fernandeznorona/status/1672265480810422273) | 108 Me Gusta | 30 Retweets
+RT @MovNoronistaOf: "Yo estoy muy motivado, muy contento, muy comprometido con la gente por la respuesta tan fuerte que está dando.✅💯
+Ferná…
+[Permalink](https://twitter.com/fernandeznorona/status/1672399920282894343) | 0 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 07:26:42
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 16:22:57
 *****
-RT @sofianosabia: En 1856, la discusión parlamentaria que hizo nacer la Constitución se logró de la mano de la política.
-Los discursos, neg…
-[Permalink](https://twitter.com/fernandeznorona/status/1672264926172450817) | 0 Me Gusta | 14 Retweets
+RT @aura_fdez: En Mexicali Noroña es pueblo.
+@fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1672399878260146177) | 0 Me Gusta | 49 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 07:23:21
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 16:22:44
 *****
-Hoy en Xalapa.
-[Permalink](https://twitter.com/fernandeznorona/status/1672264084899905536) | 66 Me Gusta | 26 Retweets
+6: 30 será la video charla.
+[Permalink](https://twitter.com/fernandeznorona/status/1672399824535293954) | 30 Me Gusta | 12 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 06:24:30
+**Fernández Noroña** (**@fernandeznorona**) • 23-06-2023 a las 15:21:41
 *****
-Publican una mentira y después, otros espacios sólo la replican. ¡Son un asco!
-[Permalink](https://twitter.com/fernandeznorona/status/1672249273285775364) | 229 Me Gusta | 95 Retweets
+Xalapa, Ver.
+[Permalink](https://twitter.com/fernandeznorona/status/1672384460896206848) | 132 Me Gusta | 49 Retweets

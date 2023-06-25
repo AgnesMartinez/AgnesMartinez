@@ -1,28 +1,29 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-06-2023 a las 15:03:35
+**Fernández Noroña** (**@fernandeznorona**) • 24-06-2023 a las 20:51:31
 *****
-RT @rosendomarind: En Tultepec, EdoMéx, Barrio Santa Isabel
+RT @DANTEMONTANO: Mi ventana es tu espectacular.  Noroña sucesor de López Obrador. @fernandeznorona 
 \#NoronaEsPueblo 
-@fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1672742292010958848) | 0 Me Gusta | 42 Retweets
+@LJyDMX 
+@NoeDoroteo…
+[Permalink](https://twitter.com/fernandeznorona/status/1672829853530300418) | 0 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-06-2023 a las 11:24:43
+**Fernández Noroña** (**@fernandeznorona**) • 24-06-2023 a las 20:49:48
 *****
-Todos queremos debate.
-[Permalink](https://twitter.com/fernandeznorona/status/1672687215468748800) | 216 Me Gusta | 83 Retweets
+Veracruz.
+[Permalink](https://twitter.com/fernandeznorona/status/1672829422246789120) | 96 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-06-2023 a las 11:06:22
+**Fernández Noroña** (**@fernandeznorona**) • 24-06-2023 a las 20:49:27
 *****
-Mientras la alcaldesa de Veracruz puerto recibió a @m_ebrard y le autorizaron el uso del auditorio, en nuestro caso, pretenden obstaculizarnos el uso del malecón -7P.M.- Parece que el derecho constitucional de libre reunión y libre manifestación no lo conocen los paniaguados.
-[Permalink](https://twitter.com/fernandeznorona/status/1672682595862319104) | 842 Me Gusta | 333 Retweets
+En el puerto de Veracruz.
+[Permalink](https://twitter.com/fernandeznorona/status/1672829334992695296) | 79 Me Gusta | 18 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-06-2023 a las 07:43:48
+**Fernández Noroña** (**@fernandeznorona**) • 24-06-2023 a las 20:49:04
 *****
-RT @rosendomarind: En Celaya Guanajuato, #NoroñaEsPueblo  @fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1672631620036358144) | 0 Me Gusta | 47 Retweets
+Finalmente se pudo.
+[Permalink](https://twitter.com/fernandeznorona/status/1672829239173709826) | 134 Me Gusta | 29 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 24-06-2023 a las 04:33:16
+**Fernández Noroña** (**@fernandeznorona**) • 24-06-2023 a las 20:48:41
 *****
-RT @alvaro_delgado: La alcaldesa panista de León, Guanajuato, @AleGutierrez_mx, justifica la tala de decenas de árboles para favorecer a lo…
-[Permalink](https://twitter.com/fernandeznorona/status/1672583670325198848) | 0 Me Gusta | 782 Retweets
+Con ⁦@JaimeHumbertoPB⁩.
+[Permalink](https://twitter.com/fernandeznorona/status/1672829139831648256) | 70 Me Gusta | 12 Retweets

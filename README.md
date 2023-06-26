@@ -1,26 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2023 a las 13:46:15
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2023 a las 20:20:11
 *****
-Ya en Coatzacoalcos.
-[Permalink](https://twitter.com/fernandeznorona/status/1673085219983818753) | 90 Me Gusta | 18 Retweets
+RT @AleCamph: @Monix139 @AVA192714 🥰🤗
+[Permalink](https://twitter.com/fernandeznorona/status/1673184354678329355) | 0 Me Gusta | 39 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2023 a las 13:34:17
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2023 a las 20:12:52
 *****
-Mire usted, pues no. El presidente es el compañero presidente @lopezobrador_. Y su relevo aún no se decide.
-[Permalink](https://twitter.com/fernandeznorona/status/1673082206405656576) | 207 Me Gusta | 51 Retweets
+Coatzacoalcos, Veracruz.
+[Permalink](https://twitter.com/fernandeznorona/status/1673182514444374016) | 78 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2023 a las 12:59:49
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2023 a las 20:12:13
 *****
-Miren lo que me escribió mi amigo ⁦@ByronBarranco⁩. Muy agradecido.
-[Permalink](https://twitter.com/fernandeznorona/status/1673073533528973312) | 268 Me Gusta | 119 Retweets
+Coatzacoalcos, Veracruz.
+[Permalink](https://twitter.com/fernandeznorona/status/1673182351252406274) | 159 Me Gusta | 53 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2023 a las 12:50:37
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2023 a las 20:11:42
 *****
-Pero debes ponerle @.
-[Permalink](https://twitter.com/fernandeznorona/status/1673071218713579520) | 62 Me Gusta | 9 Retweets
+Coatzacoalcos.
+[Permalink](https://twitter.com/fernandeznorona/status/1673182221195415552) | 63 Me Gusta | 19 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 25-06-2023 a las 12:49:01
+**Fernández Noroña** (**@fernandeznorona**) • 25-06-2023 a las 19:58:10
 *****
-Xacto.
-[Permalink](https://twitter.com/fernandeznorona/status/1673070814823084032) | 49 Me Gusta | 6 Retweets
+Ya sólo me faltan 28 estados. Para allá vamos.
+[Permalink](https://twitter.com/fernandeznorona/status/1673178815122612224) | 200 Me Gusta | 33 Retweets

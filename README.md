@@ -1,32 +1,31 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 26-06-2023 a las 20:48:28
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 07:53:05
 *****
-RT @PalomecBiaani: Todo #Oaxaca está con @fernandeznorona. 
+RT @MoneroTeta:
+[Permalink](https://twitter.com/fernandeznorona/status/1673721118564204544) | 0 Me Gusta | 411 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 07:51:38
+*****
+Muy buena entrevista en @Telereportaje1.
+[Permalink](https://twitter.com/fernandeznorona/status/1673720753890394113) | 56 Me Gusta | 12 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 06:10:50
+*****
+RT @LJyDMX: Que bonita cartulina ❤️👍 
+Los espectaculares del pueblo para su #CharroNegro 
+\#NoroñaVa #NoronaEsPueblo
+[Permalink](https://twitter.com/fernandeznorona/status/1673695386999898114) | 0 Me Gusta | 43 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 06:08:21
+*****
+Ahí la derecha aplaudirá.
+[Permalink](https://twitter.com/fernandeznorona/status/1673694760744132608) | 241 Me Gusta | 61 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 06:07:57
+*****
+RT @JulietaRamirezP: Nunca digas nunca.
 
 
-\#NoronaEsPueblo 
-@BenjaminRoblesM 
-@maribelmruiz
-[Permalink](https://twitter.com/fernandeznorona/status/1673553863838961665) | 0 Me Gusta | 35 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 26-06-2023 a las 20:42:39
-*****
-¿Ahora sí que con cuál?
-[Permalink](https://twitter.com/fernandeznorona/status/1673552399284465666) | 50 Me Gusta | 6 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 26-06-2023 a las 20:40:21
-*****
-Jejeje, estuvo muy bien. Abrazote.
-[Permalink](https://twitter.com/fernandeznorona/status/1673551817404477440) | 265 Me Gusta | 42 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 26-06-2023 a las 20:39:46
-*****
-RT @aura_fdez: En Puebla Noroña es pueblo. 
-@fernandeznorona
-[Permalink](https://twitter.com/fernandeznorona/status/1673551672621293569) | 0 Me Gusta | 70 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 26-06-2023 a las 20:39:39
-*****
-A dormir. Mañana empezaré 6:30 de la mañana con una entrevista de radio.
-[Permalink](https://twitter.com/fernandeznorona/status/1673551643772854273) | 134 Me Gusta | 23 Retweets
+La derecha primero se rió de las consultas, luego las criticaron, después trataron de impedirlas a…
+[Permalink](https://twitter.com/fernandeznorona/status/1673694659669893123) | 0 Me Gusta | 573 Retweets

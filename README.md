@@ -1,31 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 07:53:05
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 14:52:13
 *****
-RT @MoneroTeta:
-[Permalink](https://twitter.com/fernandeznorona/status/1673721118564204544) | 0 Me Gusta | 411 Retweets
+Entrevista en “Tabasco hoy”.
+[Permalink](https://twitter.com/fernandeznorona/status/1673826596413927424) | 143 Me Gusta | 31 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 07:51:38
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 13:56:51
 *****
-Muy buena entrevista en @Telereportaje1.
-[Permalink](https://twitter.com/fernandeznorona/status/1673720753890394113) | 56 Me Gusta | 12 Retweets
+RT @rosendomarind: #NoroñaEsPueblo en 
+Iczotitla. Naupan. Puebla
+@fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1673812662344462338) | 0 Me Gusta | 78 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 06:10:50
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 11:57:09
 *****
-RT @LJyDMX: Que bonita cartulina ❤️👍 
-Los espectaculares del pueblo para su #CharroNegro 
-\#NoroñaVa #NoronaEsPueblo
-[Permalink](https://twitter.com/fernandeznorona/status/1673695386999898114) | 0 Me Gusta | 43 Retweets
+Dibujo de Miguel Ángel Ortega Flores.
+[Permalink](https://twitter.com/fernandeznorona/status/1673782540937617410) | 275 Me Gusta | 70 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 06:08:21
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 11:53:11
 *****
-Ahí la derecha aplaudirá.
-[Permalink](https://twitter.com/fernandeznorona/status/1673694760744132608) | 241 Me Gusta | 61 Retweets
+Con ⁦@NachoRgz⁩ y Mauricio Rodríguez.
+[Permalink](https://twitter.com/fernandeznorona/status/1673781541464416258) | 191 Me Gusta | 35 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 06:07:57
+**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 11:51:48
 *****
-RT @JulietaRamirezP: Nunca digas nunca.
-
-
-La derecha primero se rió de las consultas, luego las criticaron, después trataron de impedirlas a…
-[Permalink](https://twitter.com/fernandeznorona/status/1673694659669893123) | 0 Me Gusta | 573 Retweets
+Rueda de prensa.
+[Permalink](https://twitter.com/fernandeznorona/status/1673781192489852930) | 94 Me Gusta | 20 Retweets

@@ -1,30 +1,28 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 10:03:46
+**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 16:25:21
 *****
-Muy buen evento en Ciudad Del Carmen, Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1674116394588184579) | 19 Me Gusta | 6 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 08:55:53
-*****
-Ciudad del Carmen.
-[Permalink](https://twitter.com/fernandeznorona/status/1674099310739193866) | 154 Me Gusta | 48 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 23:19:04
-*****
-Apenas llegando al hotel en Ciudad del Carmen. Está cabrón.
-[Permalink](https://twitter.com/fernandeznorona/status/1673954151603003392) | 284 Me Gusta | 31 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 18:19:04
-*****
-RT @JohnMAckerman: ¡Extra, extra!🗞️🗞️
 
 
-@fernandeznorona es el primer anteprecandidato en poner fecha para el encuentro con las dignas bases…
-[Permalink](https://twitter.com/fernandeznorona/status/1673878652122013696) | 0 Me Gusta | 158 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1674212420628393986) | 27 Me Gusta | 9 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 27-06-2023 a las 18:18:47
+**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 16:00:57
 *****
-RT @rosendomarind: En Ciudad Azteca III, en Ecatepec están con Gerardo @fernandeznorona 
-\#NoroñaEsPueblo
-[Permalink](https://twitter.com/fernandeznorona/status/1673878581787734018) | 0 Me Gusta | 71 Retweets
+Voy terminando reunión con CCE en Ciudad del Carmen. En unos 15 minutos iniciaré la Videos charla
+[Permalink](https://twitter.com/fernandeznorona/status/1674206283661029378) | 81 Me Gusta | 20 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 14:24:53
+*****
+RT @A_Encinas_R: Gualberto Ramírez es uno de los principales orquestadores de la #VerdadHistórica. Privó del derecho a la verdad a los fami…
+[Permalink](https://twitter.com/fernandeznorona/status/1674182103917789184) | 0 Me Gusta | 678 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 14:24:27
+*****
+RT @ConvenMorena: ¡Gerardo Fernández Noroña es el primer anteprecandidato en aceptar el diálogo con las dignas bases de la #Convención! 😎…
+[Permalink](https://twitter.com/fernandeznorona/status/1674181996459769862) | 0 Me Gusta | 61 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 14:23:32
+*****
+RT @aura_fdez: En el Estado de México Noroña es pueblo @fernandeznorona
+\#MiVentanaEsTuEspectacular
+[Permalink](https://twitter.com/fernandeznorona/status/1674181764539899905) | 0 Me Gusta | 49 Retweets

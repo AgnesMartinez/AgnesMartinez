@@ -1,27 +1,26 @@
 # Changoleón Legislativo 🙈
 *****
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 10:07:50
+*****
+Para mi informe de gastos, mostraré que me costó 3000 pesos el NoroñaBus.
+[Permalink](https://twitter.com/fernandeznorona/status/1674479806606372864) | 23 Me Gusta | 5 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 10:04:52
+*****
+Muy bien el encuentro en Campeche, aunque el calor está cabrón.
+[Permalink](https://twitter.com/fernandeznorona/status/1674479057415577617) | 23 Me Gusta | 5 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 06:01:20
+*****
+Chingón.
+[Permalink](https://twitter.com/fernandeznorona/status/1674417772594606082) | 347 Me Gusta | 64 Retweets
+*****
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 05:49:01
+*****
+Ya rumbo a una entrevista de TV.
+[Permalink](https://twitter.com/fernandeznorona/status/1674414671460433922) | 102 Me Gusta | 17 Retweets
+*****
 **Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 21:57:36
 *****
 Mire usted, pues no. Pobrísima su propaganda, además de majadera.
-[Permalink](https://twitter.com/fernandeznorona/status/1674296037194842115) | 161 Me Gusta | 20 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 21:55:10
-*****
-He dicho muy claramente, no tengo espectaculares ni quiero tenerlos.
-[Permalink](https://twitter.com/fernandeznorona/status/1674295424180449280) | 69 Me Gusta | 19 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 21:37:46
-*****
-RT @martamarco__: 🇺🇸| Bill Gates ha admitido que la vacunación fue un error.
-Cometimos un terrible error. Queríamos proteger a la gente de…
-[Permalink](https://twitter.com/fernandeznorona/status/1674291043813011456) | 0 Me Gusta | 2,277 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 21:36:18
-*****
-Mañana, 29 de junio a las 10:10 de la mañana, presentación del NoroñaBus en el Hotel Baluarte en Campeche, Campeche.
-[Permalink](https://twitter.com/fernandeznorona/status/1674290677159452675) | 139 Me Gusta | 39 Retweets
-*****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 21:33:46
-*****
-Jajajajejejejijijijojojojujuju
-[Permalink](https://twitter.com/fernandeznorona/status/1674290037783945218) | 271 Me Gusta | 45 Retweets
+[Permalink](https://twitter.com/fernandeznorona/status/1674296037194842115) | 305 Me Gusta | 43 Retweets

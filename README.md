@@ -1,26 +1,27 @@
 # Changoleón Legislativo 🙈
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 10:07:50
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 12:55:13
 *****
-Para mi informe de gastos, mostraré que me costó 3000 pesos el NoroñaBus.
-[Permalink](https://twitter.com/fernandeznorona/status/1674479806606372864) | 23 Me Gusta | 5 Retweets
+RT @rosendomarind: #NoroñaEsPueblo en Santa María Tecuanulco, Tex. Méx Gerardo @fernandeznorona
+[Permalink](https://twitter.com/fernandeznorona/status/1674521929393360897) | 0 Me Gusta | 34 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 10:04:52
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 12:55:10
 *****
-Muy bien el encuentro en Campeche, aunque el calor está cabrón.
-[Permalink](https://twitter.com/fernandeznorona/status/1674479057415577617) | 23 Me Gusta | 5 Retweets
+Es incorrecto cuestionar a @Claudiashein. El judaísmo es una religión y Claudia no la practica.
+[Permalink](https://twitter.com/fernandeznorona/status/1674521914843226116) | 91 Me Gusta | 23 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 06:01:20
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 11:57:48
 *****
-Chingón.
-[Permalink](https://twitter.com/fernandeznorona/status/1674417772594606082) | 347 Me Gusta | 64 Retweets
+RT @GabyEspiritu3: Listo!!! Familia Espiritu apoyando a NOROÑA!!! 
+Por la profundización de la 4T NOROÑA es la única opción! 🇲🇽🥰🇲🇽🇲🇽👍🏾 http…
+[Permalink](https://twitter.com/fernandeznorona/status/1674507478912888832) | 0 Me Gusta | 56 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 05:49:01
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 11:57:17
 *****
-Ya rumbo a una entrevista de TV.
-[Permalink](https://twitter.com/fernandeznorona/status/1674414671460433922) | 102 Me Gusta | 17 Retweets
+RT @NoeDoroteo: No tenemos espectaculares, solo un espacio en el corazón del pueblo. Desde Oaxaca vamos con todo con #NoronaEsPueblo @LJyDM…
+[Permalink](https://twitter.com/fernandeznorona/status/1674507347643756572) | 0 Me Gusta | 25 Retweets
 *****
-**Fernández Noroña** (**@fernandeznorona**) • 28-06-2023 a las 21:57:36
+**Fernández Noroña** (**@fernandeznorona**) • 29-06-2023 a las 11:56:56
 *****
-Mire usted, pues no. Pobrísima su propaganda, además de majadera.
-[Permalink](https://twitter.com/fernandeznorona/status/1674296037194842115) | 305 Me Gusta | 43 Retweets
+Muy contento.
+[Permalink](https://twitter.com/fernandeznorona/status/1674507259601207296) | 102 Me Gusta | 24 Retweets
